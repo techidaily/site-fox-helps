@@ -1,7 +1,7 @@
 ---
 title: "[New] Unveiling the Prowess of Yuneec's Typhoon UAV"
-date: 2024-06-22 16:56:21
-updated: 2024-06-24 11:18:31
+date: 2024-06-25T18:39:41.160Z
+updated: 2024-06-26T18:39:41.160Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
 ## Unveiling the Prowess of Yuneec's Typhoon UAV
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-are-earnings-associated-with-good-and-service-analysis/"><u>[Updated] 2024 Approved  Are Earnings Associated with Good and Service Analysis?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-viewing-vistas-backdrop-recommendations/"><u>[Updated] 2024 Approved  Ultimate Viewing Vistas  Backdrop Recommendations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/techniques-for-interpreting-video-reactions-on-youtube/"><u>Techniques for Interpreting Video Reactions on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-adding-eye-catching-text-to-vids-without-costs-for-2024/"><u>[Updated] Adding Eye-Catching Text to Vids Without Costs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-motion-review-full-scope-2023/"><u>2024 Approved  Motion Review  Full Scope 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-text-techniques-top-10-video-enhancers/"><u>[New] In 2024, Text Techniques  Top 10 Video Enhancers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-masters-crafting-unparalleled-vr-adventures/"><u>[New] 2024 Approved  Masters Crafting Unparalleled VR Adventures</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-superior-systems-best-of-the-desk-lineup-for-2024/"><u>[New] Superior Systems  Best of the Desk Lineup for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tints-shades-and-tones-practical-application-in-art/"><u>[New] 2024 Approved  Tints, Shades & Tones  Practical Application in Art</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unleashing-photography-potential-with-lightroom-hdrs-for-2024/"><u>[New] Unleashing Photography Potential with Lightroom HDRs for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-inside-look-at-vimeo-and-youtubes-market-strategies/"><u>[Updated] Inside Look at Vimeo and YouTube’s Market Strategies</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-motorola-edgeplus-2023-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Motorola Edge+ (2023) Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-factory-reset-ipad-or-apple-iphone-11-pro-max-without-icloud-password-or-apple-id-by-drfone-ios/"><u>In 2024, How to Factory Reset iPad or Apple iPhone 11 Pro Max without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-time-lapse-like-a-pro-expert-techniques-for-final-cut-pro-users/"><u>New Time Lapse Like a Pro Expert Techniques for Final Cut Pro Users</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-youtubes-secrets-transcribe-for-free-and-efficiently/"><u>2024 Approved  Unlock YouTube's Secrets  Transcribe for Free and Efficiently</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-nokia-105-classic-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Nokia 105 Classic Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-perfect-timing-adjust-video-speed-in-snapchat-easily/"><u>[New] Perfect Timing  Adjust Video Speed in Snapchat Easily</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-livestream-success-on-television-four-pathways/"><u>2024 Approved  FB Livestream Success on Television  Four Pathways</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-comprehensive-guide-to-permanently-sever-tiktok-connection-for-2024/"><u>[New] Comprehensive Guide to Permanently Sever TikTok Connection for 2024</u></a></li>
+</ul></div>

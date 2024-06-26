@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Free NBA Action at Home  The Best 15 Ways to Watch Games Online for 2024\""
-date: 2024-06-25 23:17:15
-updated: 2024-06-26 12:18:40
+date: 2024-06-25T18:49:07.258Z
+updated: 2024-06-26T18:49:07.258Z
 tags: 
   - screen-recording
   - ai video
@@ -62,9 +62,7 @@ Below, we’ll look at the eight best streaming apps where you can **watch NBA l
 | **Basketball Live: Live NBA scores, stats, and news** | Free to use                  | iOS and Android   | HD resolution             |
 | **Fox Sports**                                        | Free to use                  | iOS and Android   | 1080p HD                  |
 
-### 1\. NBA Live Streaming
-
-![nba basket ball live streaming app](https://images.wondershare.com/filmora/article-images/2022/11/nba-basket-ball-live-streaming-app.png)
+### 1\. NBA Live Streaming ![nba basket ball live streaming app](https://images.wondershare.com/filmora/article-images/2022/11/nba-basket-ball-live-streaming-app.png)
 
 **Price:** Free
 
@@ -105,9 +103,7 @@ The NBA Live Game & Scores is the official app of the National Basketball Associ
 * Only covers the NBA league.
 * Runs like a poorly organized web page.
 
-### 3\. ESPN
-
-![espn app for nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/espn-app-for-nba-live-streaming.png)
+### 3\. ESPN ![espn app for nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/espn-app-for-nba-live-streaming.png)
 
 **Price:** $9.99 per month
 
@@ -127,9 +123,7 @@ For basketball fans, ESPN is the go-to source for news, highlights, live stream,
 * The app is full of bugs.
 * Constant lags and freezing.
 
-### 4\. Sling TV
-
-![sling tv for live nba](https://images.wondershare.com/filmora/article-images/2022/11/sling-tv-for-live-nba.png)
+### 4\. Sling TV ![sling tv for live nba](https://images.wondershare.com/filmora/article-images/2022/11/sling-tv-for-live-nba.png)
 
 **Price:** $35/month
 
@@ -150,9 +144,7 @@ With this app, you'll never miss a game and will be able to watch your favorite 
 
 * Limited local and regional sports channels.
 
-### 5\. Yahoo Sports
-
-![yahoo sports for live nba game](https://images.wondershare.com/filmora/article-images/2022/11/yahoo-sports-for-live-nba-game.png)
+### 5\. Yahoo Sports ![yahoo sports for live nba game](https://images.wondershare.com/filmora/article-images/2022/11/yahoo-sports-for-live-nba-game.png)
 
 **Price:** Free
 
@@ -171,9 +163,7 @@ The NBA season is upon us, and there is no better way to catch all the action th
 
 * Some users experience glitches while using the app.
 
-### 6\. YouTube TV
-
-![youtube tv for live nba stream](https://images.wondershare.com/filmora/article-images/2022/11/youtube-tv-for-live-nba-stream.png)
+### 6\. YouTube TV ![youtube tv for live nba stream](https://images.wondershare.com/filmora/article-images/2022/11/youtube-tv-for-live-nba-stream.png)
 
 **Price:** $64.99 per month
 
@@ -195,9 +185,7 @@ YouTube TV offers TNT, ESPN, and NBA TV channels, making sure you won’t miss a
 
 * Expensive for some users.
 
-### 7\. Basketball Live: Live NBA Scores, Stats, And News
-
-![basket ball live app](https://images.wondershare.com/filmora/article-images/2022/11/basket-ball-live-app.png)
+### 7\. Basketball Live: Live NBA Scores, Stats, And News ![basket ball live app](https://images.wondershare.com/filmora/article-images/2022/11/basket-ball-live-app.png)
 
 **Price:** Free
 
@@ -215,9 +203,7 @@ With the Basketball Live app, you can get up-to-the-second live scores, stats, a
 
 * Individual player stats are sometimes out of order.
 
-### 8\. FOX Sports
-
-![fox sports app for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/fox-sports-app-for-nba-live-stream.png)
+### 8\. FOX Sports ![fox sports app for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/fox-sports-app-for-nba-live-stream.png)
 
 **Price:** Free
 
@@ -251,9 +237,7 @@ There are a ton of different ways to watch NBA games online, but finding the bes
 | [**Stream2Watch**](https://docs.google.com/document/d/1r-3L-t5xZiwEowGL2GaRQyTnqNDspqEDKQ4hN9RlJ-s/edit) | Free to use                      | HD resolution         |
 | [**USTV Go**](https://docs.google.com/document/d/1r-3L-t5xZiwEowGL2GaRQyTnqNDspqEDKQ4hN9RlJ-s/edit)     | Free to use                      | 480p resolution       |
 
-### 1\. [NBA STREAMS](https://reddit.rnbastreams.com/)
-
-![nba streams website for live stream](https://images.wondershare.com/filmora/article-images/2022/11/nba-streams-website-for-live-stream.png)
+### 1\. NBA STREAMS ![nba streams website for live stream](https://images.wondershare.com/filmora/article-images/2022/11/nba-streams-website-for-live-stream.png)
 
 **Price**: Free
 
@@ -269,7 +253,7 @@ NBA Streams is an exceptional website for basketball enthusiasts to watch **free
 
 * Asks to install VPN.
 
-### 2\. [NBA Official Website](https://www.nba.com/)
+### 2\. NBA Official Website
 
 **Price:** Free
 
@@ -286,7 +270,7 @@ NBA.com is the official website of the National Basketball Association, where yo
 
 * Local broadcasts’ blackout can affect live streaming.
 
-### 3\. [Hulu](https://www.hulu.com/)
+### 3\. Hulu
 
 **Price:** $6.99/month
 
@@ -302,9 +286,7 @@ Hulu is one of the leading premium **NBA streaming sites** because it includes t
 
 * The lower tier contains many ads.
 
-### 4\. [Buffstreams](https://buffstreams.sx/)
-
-![buffstreams nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/buffstreams-nba-live-streaming.png)
+### 4\. Buffstreams ![buffstreams nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/buffstreams-nba-live-streaming.png)
 
 **Price:** Free
 
@@ -321,9 +303,7 @@ If you're a basketball/NBA fan, then you know there's nothing quite like watchin
 
 * Too many ads.
 
-### 5\. [Skysports](https://www.skysports.com/)
-
-![skysports for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/skysports-for-nba-live-stream.png)
+### 5\. Skysports ![skysports for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/skysports-for-nba-live-stream.png)
 
 **Price**: Free, $4.99 per month
 
@@ -341,9 +321,7 @@ This online streaming service also offers multiple Sky sports channels to make s
 
 * Requires signup.
 
-### 6\. [Stream2Watch](https://today.istream2watch.com/)
-
-![stream 2 watch for live nba](https://images.wondershare.com/filmora/article-images/2022/11/stream-2-watch-for-live-nba.png)
+### 6\. Stream2Watch ![stream 2 watch for live nba](https://images.wondershare.com/filmora/article-images/2022/11/stream-2-watch-for-live-nba.png)
 
 **Price:** Free
 
@@ -361,9 +339,7 @@ We researched and concluded that this website is one of the best platforms to wa
 
 * Ads interrupt the stream intermittently.
 
-### 7\. [USTV Go](https://ustvgo.tv/)
-
-![ustv go for live nba streaming](https://images.wondershare.com/filmora/article-images/2022/11/ustv-go-for-live-nba-streaming.png)
+### 7\. USTV Go ![ustv go for live nba streaming](https://images.wondershare.com/filmora/article-images/2022/11/ustv-go-for-live-nba-streaming.png)
 
 **Price:** Free
 
@@ -417,9 +393,7 @@ Below, we’ll look at the eight best streaming apps where you can **watch NBA l
 | **Basketball Live: Live NBA scores, stats, and news** | Free to use                  | iOS and Android   | HD resolution             |
 | **Fox Sports**                                        | Free to use                  | iOS and Android   | 1080p HD                  |
 
-### 1\. NBA Live Streaming
-
-![nba basket ball live streaming app](https://images.wondershare.com/filmora/article-images/2022/11/nba-basket-ball-live-streaming-app.png)
+### 1\. NBA Live Streaming ![nba basket ball live streaming app](https://images.wondershare.com/filmora/article-images/2022/11/nba-basket-ball-live-streaming-app.png)
 
 **Price:** Free
 
@@ -460,9 +434,7 @@ The NBA Live Game & Scores is the official app of the National Basketball Associ
 * Only covers the NBA league.
 * Runs like a poorly organized web page.
 
-### 3\. ESPN
-
-![espn app for nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/espn-app-for-nba-live-streaming.png)
+### 3\. ESPN ![espn app for nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/espn-app-for-nba-live-streaming.png)
 
 **Price:** $9.99 per month
 
@@ -482,9 +454,7 @@ For basketball fans, ESPN is the go-to source for news, highlights, live stream,
 * The app is full of bugs.
 * Constant lags and freezing.
 
-### 4\. Sling TV
-
-![sling tv for live nba](https://images.wondershare.com/filmora/article-images/2022/11/sling-tv-for-live-nba.png)
+### 4\. Sling TV ![sling tv for live nba](https://images.wondershare.com/filmora/article-images/2022/11/sling-tv-for-live-nba.png)
 
 **Price:** $35/month
 
@@ -505,9 +475,7 @@ With this app, you'll never miss a game and will be able to watch your favorite 
 
 * Limited local and regional sports channels.
 
-### 5\. Yahoo Sports
-
-![yahoo sports for live nba game](https://images.wondershare.com/filmora/article-images/2022/11/yahoo-sports-for-live-nba-game.png)
+### 5\. Yahoo Sports ![yahoo sports for live nba game](https://images.wondershare.com/filmora/article-images/2022/11/yahoo-sports-for-live-nba-game.png)
 
 **Price:** Free
 
@@ -526,9 +494,7 @@ The NBA season is upon us, and there is no better way to catch all the action th
 
 * Some users experience glitches while using the app.
 
-### 6\. YouTube TV
-
-![youtube tv for live nba stream](https://images.wondershare.com/filmora/article-images/2022/11/youtube-tv-for-live-nba-stream.png)
+### 6\. YouTube TV ![youtube tv for live nba stream](https://images.wondershare.com/filmora/article-images/2022/11/youtube-tv-for-live-nba-stream.png)
 
 **Price:** $64.99 per month
 
@@ -550,9 +516,7 @@ YouTube TV offers TNT, ESPN, and NBA TV channels, making sure you won’t miss a
 
 * Expensive for some users.
 
-### 7\. Basketball Live: Live NBA Scores, Stats, And News
-
-![basket ball live app](https://images.wondershare.com/filmora/article-images/2022/11/basket-ball-live-app.png)
+### 7\. Basketball Live: Live NBA Scores, Stats, And News ![basket ball live app](https://images.wondershare.com/filmora/article-images/2022/11/basket-ball-live-app.png)
 
 **Price:** Free
 
@@ -570,9 +534,7 @@ With the Basketball Live app, you can get up-to-the-second live scores, stats, a
 
 * Individual player stats are sometimes out of order.
 
-### 8\. FOX Sports
-
-![fox sports app for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/fox-sports-app-for-nba-live-stream.png)
+### 8\. FOX Sports ![fox sports app for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/fox-sports-app-for-nba-live-stream.png)
 
 **Price:** Free
 
@@ -606,9 +568,7 @@ There are a ton of different ways to watch NBA games online, but finding the bes
 | [**Stream2Watch**](https://docs.google.com/document/d/1r-3L-t5xZiwEowGL2GaRQyTnqNDspqEDKQ4hN9RlJ-s/edit) | Free to use                      | HD resolution         |
 | [**USTV Go**](https://docs.google.com/document/d/1r-3L-t5xZiwEowGL2GaRQyTnqNDspqEDKQ4hN9RlJ-s/edit)     | Free to use                      | 480p resolution       |
 
-### 1\. [NBA STREAMS](https://reddit.rnbastreams.com/)
-
-![nba streams website for live stream](https://images.wondershare.com/filmora/article-images/2022/11/nba-streams-website-for-live-stream.png)
+### 1\. NBA STREAMS ![nba streams website for live stream](https://images.wondershare.com/filmora/article-images/2022/11/nba-streams-website-for-live-stream.png)
 
 **Price**: Free
 
@@ -624,7 +584,7 @@ NBA Streams is an exceptional website for basketball enthusiasts to watch **free
 
 * Asks to install VPN.
 
-### 2\. [NBA Official Website](https://www.nba.com/)
+### 2\. NBA Official Website
 
 **Price:** Free
 
@@ -641,7 +601,7 @@ NBA.com is the official website of the National Basketball Association, where yo
 
 * Local broadcasts’ blackout can affect live streaming.
 
-### 3\. [Hulu](https://www.hulu.com/)
+### 3\. Hulu
 
 **Price:** $6.99/month
 
@@ -657,9 +617,7 @@ Hulu is one of the leading premium **NBA streaming sites** because it includes t
 
 * The lower tier contains many ads.
 
-### 4\. [Buffstreams](https://buffstreams.sx/)
-
-![buffstreams nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/buffstreams-nba-live-streaming.png)
+### 4\. Buffstreams ![buffstreams nba live streaming](https://images.wondershare.com/filmora/article-images/2022/11/buffstreams-nba-live-streaming.png)
 
 **Price:** Free
 
@@ -676,9 +634,7 @@ If you're a basketball/NBA fan, then you know there's nothing quite like watchin
 
 * Too many ads.
 
-### 5\. [Skysports](https://www.skysports.com/)
-
-![skysports for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/skysports-for-nba-live-stream.png)
+### 5\. Skysports ![skysports for nba live stream](https://images.wondershare.com/filmora/article-images/2022/11/skysports-for-nba-live-stream.png)
 
 **Price**: Free, $4.99 per month
 
@@ -696,9 +652,7 @@ This online streaming service also offers multiple Sky sports channels to make s
 
 * Requires signup.
 
-### 6\. [Stream2Watch](https://today.istream2watch.com/)
-
-![stream 2 watch for live nba](https://images.wondershare.com/filmora/article-images/2022/11/stream-2-watch-for-live-nba.png)
+### 6\. Stream2Watch ![stream 2 watch for live nba](https://images.wondershare.com/filmora/article-images/2022/11/stream-2-watch-for-live-nba.png)
 
 **Price:** Free
 
@@ -716,9 +670,7 @@ We researched and concluded that this website is one of the best platforms to wa
 
 * Ads interrupt the stream intermittently.
 
-### 7\. [USTV Go](https://ustvgo.tv/)
-
-![ustv go for live nba streaming](https://images.wondershare.com/filmora/article-images/2022/11/ustv-go-for-live-nba-streaming.png)
+### 7\. USTV Go ![ustv go for live nba streaming](https://images.wondershare.com/filmora/article-images/2022/11/ustv-go-for-live-nba-streaming.png)
 
 **Price:** Free
 
@@ -766,3 +718,23 @@ Hopefully, this detailed article helped you find an app or a site to stream NBA 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-elite-comic-image-crafting-suite-for-2024/"><u>[Updated] Elite Comic Image Crafting Suite for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vision-and-craft-best-cinematography-practices/"><u>[New] Vision and Craft  Best Cinematography Practices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-comparing-magix-graphics-software-variants/"><u>[New] Comparing MAGIX Graphics Software Variants</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-memory-upgrade-for-sony-a7c-for-2024/"><u>[New] Ultimate Memory Upgrade for Sony A7C for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-toolkit-for-dominating-social-media-management-smm/"><u>2024 Approved  The Ultimate Toolkit for Dominating Social Media Management (SMM)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-chronos-shifts-using-phantoms-time-reversed-footage-for-2024/"><u>Mastering Chronos Shifts  Using Phantom's Time-Reversed Footage for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-building-a-strong-introduction-examples-and-methods/"><u>[New] In 2024, Building a Strong Introduction  Examples & Methods</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-proactive-preservation-ios-photos-to-your-snap-story/"><u>[Updated] 2024 Approved  Proactive Preservation  IOS Photos to Your Snap Story</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-the-video-vault-mastering-the-art-of-live-video-storage/"><u>[Updated] 2024 Approved  The Video Vault  Mastering the Art of Live Video Storage</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-make-a-statement-with-these-whatsapp-status-builder-apps/"><u>Updated 2024 Approved Make a Statement with These WhatsApp Status Builder Apps</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-video-for-your-babys-first-year/"><u>New 2024 Approved How to Make a Video for Your Babys First Year</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-quintessential-guide-to-secret-story-viewing/"><u>2024 Approved  The Quintessential Guide to Secret Story Viewing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-realme-10t-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Realme 10T 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/secrets-unveiled-best-practices-in-remote-audio-capture-for-2024/"><u>Secrets Unveiled  Best Practices in Remote Audio Capture for 2024</u></a></li>
+</ul></div>

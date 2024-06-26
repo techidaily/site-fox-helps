@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Penning Podcasts to Perfection  A Compreomed Writer’s Guide\""
-date: 2024-06-21 22:58:17
-updated: 2024-06-24 11:49:22
+date: 2024-06-25T19:49:46.437Z
+updated: 2024-06-26T19:49:46.437Z
 tags: 
   - screen-recording
   - ai video
@@ -74,24 +74,24 @@ The first right candidate for the word-for-word script is the one about to land 
 
 **Structure**
 
-* Intro: Introduce yourself, the topic of discussion, and the guests if there; episode teaser (Span: \_\_\_ )
+* Intro: Introduce yourself, the topic of discussion, and the guests if there; episode teaser (Span: \_\_\_)
 * \[Sponsor message\]
 * \[Theme music\]
-* Topic 1: \_\_\_\_\_(Span: \_\_ )
+* Topic 1: \_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
 * Segue (can be a phrase, a piece of music, or a sound effect)
-* Topic 2: \_\_\_\_\_\_\_(Span: \_\_ )
+* Topic 2: \_\_\_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
 * \[Sponsor message\]
-* Topic 3: \_\_\_\_\_\_\_(Span: \_\_ )
+* Topic 3: \_\_\_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
-* Outro: \_\_\_\_\_ (Span: \_\_ )
+* Outro: \_\_\_\_\_ (Span: \_\_)
 * Overview
 * Call to action
 * \[Closing theme music\]
@@ -132,19 +132,19 @@ See you in the upcoming episode with another interesting topic \[topic name\].
 
 **Podcast Example:**
 
-##### [Unfictional](https://www.kcrw.com/culture/shows/unfictional/cabin-notebook?utm%5Fsource=KCRW&utm%5Fmedium=RSS&utm%5Fcampaign=kcrw-show-rss)
+##### Unfictional
 
 An interesting narrative-style podcast hosted and produced by Bob Carlson.
 
 ![unfictional narrative podcast](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-2.jpg)
 
-##### [S-Town](https://podcasts.apple.com/us/podcast/s-town/id1212558767)
+##### S-Town
 
 A crime story podcast hosted by Brian Reed from Serial Productions, a New York Times company.
 
 ![s town cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-3.jpg)
 
-##### [Bill Burr's Monday Morning](https://open.spotify.com/show/5SFiQlOQ3EKmwp0chE1QzY)
+##### Bill Burr's Monday Morning
 
 A solo podcast hosted by Bill Burr.
 
@@ -201,13 +201,13 @@ CTAs: If you want to hear more interesting podcasts like this one, follow the ch
 
 **Podcast Example**
 
-##### [Smartless](https://open.spotify.com/show/0Yzd0g8NYmn27k2HFNplv7)
+##### Smartless
 
 "SmartLess" with Jason Bateman, Sean Hayes, & Will Arnett is a podcast where people from different fields of life come to share their life experiences.
 
 ![smartless podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-5.jpg)
 
-##### [The Joe Rogan Experience](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+##### The Joe Rogan Experience
 
 Hosted by Joe Rogan, a conversational style podcast it is.
 
@@ -224,17 +224,17 @@ Hosts who love ad-libbing just need a bulleted list of some points to do an epis
 
 **Structure**
 
-* Intro: \_\_\_\_\_ (Span: \_\_\_\_\_ )
+* Intro: \_\_\_\_\_ (Span: \_\_\_\_\_)
 * \[Sponsor message\]
 * \[Theme music\]
-* Topic 1: \_\_\_\_\_\_\_ (Span: \_\_\_\_ )
+* Topic 1: \_\_\_\_\_\_\_ (Span: \_\_\_\_)
 * Notations
-* Topic 2: \_\_\_\_\_\_\_ (Span: \_\_\_\_ )
+* Topic 2: \_\_\_\_\_\_\_ (Span: \_\_\_\_)
 * Notations
 * Segue
-* Topic 3: \_\_\_\_\_\_\_ (Duration: \_\_\_\_ )
+* Topic 3: \_\_\_\_\_\_\_ (Duration: \_\_\_\_)
 * Notations
-* Outro: \_\_\_\_\_ (Duration: \_\_\_\_ )
+* Outro: \_\_\_\_\_ (Duration: \_\_\_\_)
 * \[Ending music\]
 
 **Template**
@@ -261,19 +261,19 @@ CTAs: Follow the channel and forward it to your friends if you want to listen to
 
 **Podcast Example**
 
-##### [WTF with Marc Maron](http://www.wtfpod.com/)
+##### WTF with Marc Maron
 
 "WTF with Marc Maron" is a comedy podcast show with a growing list of episodes. It's one of the best examples of an Ad-libbed flexible podcast script.
 
 ![wtf podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-7.jpg)
 
-##### [Conan O'Brien Needs a Friend](https://open.spotify.com/show/3u26tlz7A3WyWRtXliX9a9)
+##### Conan O'Brien Needs a Friend
 
 A comedy podcast hosted by Conan.
 
 ![comedy podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-8.jpg)
 
-##### [2 Bears, 1 Cave with Tom Segura & Bert Kreischer](https://open.spotify.com/show/1PgDUTgeyu3FOzK1FcBoqa)
+##### 2 Bears, 1 Cave with Tom Segura & Bert Kreischer
 
 Together, two close friends make each other laugh.
 
@@ -390,3 +390,24 @@ The crux of our discussion is that a compelling podcast script makes it simple t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-gamers-top-picks-1-ranked-4k-laptops-for-2024/"><u>[New] Gamers' Top Picks  #1 Ranked 4K Laptops for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-comparing-apples-with-oranges-not-when-it-comes-to-m1-pro-and-m1-max/"><u>[New] 2024 Approved  Comparing Apples with Oranges? Not When It Comes to M1 Pro & M1 Max</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-maximizing-iphone-to-mac-file-transfer-for-large-videos/"><u>2024 Approved  Maximizing iPhone-to-Mac File Transfer for Large Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-minds-on-trial-best-general-knowledge-channels-for-2024/"><u>[Updated] Minds on Trial  Best General Knowledge Channels for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-constructing-an-affordable-google-vr-helmet-at-home/"><u>In 2024, Constructing an Affordable Google VR Helmet at Home</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-essential-knowledge-base-using-googles-ai-for-speech-recognition/"><u>In 2024, Essential Knowledge Base  Using Google's AI for Speech Recognition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-action-seekers-guide-to-polaroid-xs-100i/"><u>[New] 2024 Approved  The Action Seeker's Guide to Polaroid XS 100I</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-excellent-free-memes-at-your-fingertips/"><u>2024 Approved  Excellent FREE Memes at Your Fingertips</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-eye-opening-journey-with-q500-for-2024/"><u>The Eye-Opening Journey with Q500 for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-time-efficient-tips-to-purify-audio-from-static-interference/"><u>New In 2024, Time-Efficient Tips to Purify Audio From Static Interference</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/guidelines-to-affirm-your-youtube-status-for-2024/"><u>Guidelines to Affirm Your YouTube Status for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-say-cheese-16-best-apps-to-convert-your-photos-into-cartoons/"><u>Updated In 2024, Say Cheese! 16 Best Apps to Convert Your Photos Into Cartoons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-filmoras-secrets-to-captivating-youtube-trailers/"><u>[Updated] Filmora's Secrets to Captivating YouTube Trailers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-navigating-rights-in-instagram-songs/"><u>In 2024, Navigating Rights in Instagram Songs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-squared-success-creating-compelling-video-posts-on-facebook/"><u>[New] In 2024, Squared Success  Creating Compelling Video Posts on Facebook</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-skypessay-revolutionize-communication-by-altering-your-voice-on-video-calls/"><u>Updated SkypEssay Revolutionize Communication by Altering Your Voice on Video Calls</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-y78plus-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo Y78+ | Dr.fone</u></a></li>
+</ul></div>

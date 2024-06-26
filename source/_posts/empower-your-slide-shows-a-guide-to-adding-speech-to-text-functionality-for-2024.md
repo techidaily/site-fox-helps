@@ -1,7 +1,7 @@
 ---
 title: "\"Empower Your Slide Shows  A Guide to Adding Speech-to-Text Functionality for 2024\""
-date: 2024-06-21 14:29:48
-updated: 2024-06-23 12:54:35
+date: 2024-06-25T19:51:10.483Z
+updated: 2024-06-26T19:51:10.483Z
 tags: 
   - screen-recording
   - ai video
@@ -135,9 +135,7 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ##### Step 2
 
-Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
-
-![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 ## FAQs
 
@@ -157,9 +155,9 @@ You can use your device's in-built microphone. However, you may need external ge
 
 Speech-to-text is an additional feature for all users. Typing is, however, the default practice.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -181,3 +179,24 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-step-by-step-guide-for-vintage-photo-conversion-and-storage/"><u>2024 Approved  The Step-by-Step Guide for Vintage Photo Conversion & Storage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-integrating-ai-assistants-into-slides-with-s2t-for-2024/"><u>[New] Integrating AI Assistants Into Slides with S2T for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/download-free-preview-clip-kits-for-2024/"><u>Download Free Preview Clip Kits for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-iconic-imagery-stories-a-peek-inside/"><u>2024 Approved  Iconic Imagery Stories  A Peek Inside</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-ultimate-blueprint-creating-exceptional-podcast-content-on-idevices/"><u>[Updated] 2024 Approved  The Ultimate Blueprint  Creating Exceptional Podcast Content on iDevices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-long-is-a-video-at-20-megabits-in-2024/"><u>How Long Is a Video at 20 Megabits, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elevate-your-window-experience-with-these-undiscovered-tricks/"><u>[Updated] In 2024, Elevate Your Window Experience with These Undiscovered Tricks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beneath-the-surface-secrets-to-professional-underwater-videos-with-gopro/"><u>Beneath the Surface  Secrets to Professional Underwater Videos with GoPro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-top-10-capture-cards-for-youtube/"><u>The Top 10 Capture Cards for YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-imageharmony-pro-8-version-visualizer/"><u>In 2024, ImageHarmony Pro  8-Version Visualizer</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-all-you-need-to-know-about-upgrading-to-macos-11-big-sur/"><u>In 2024, All You Need to Know About Upgrading to macOS 11 Big Sur</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-advanced-selective-softness-in-mobile-photography/"><u>2024 Approved  Advanced Selective Softness in Mobile Photography</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-samsung-galaxy-m14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-master-your-video-transforming-youtube-to-avi/"><u>[New] 2024 Approved  Master Your Video  Transforming YouTube to AVI</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-in-2024-secrets-to-make-2d-game-animation/"><u>New In 2024, Secrets to Make 2D Game Animation</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/in-2024-how-to-make-gif-stickers-for-whatsapp-100-the-easy-way/"><u>In 2024, How to Make GIF Stickers for WhatsApp 100 The Easy Way</u></a></li>
+</ul></div>

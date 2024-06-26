@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tech-Driven Drones – The Rise of Syma X8C\""
-date: 2024-06-21 21:34:15
-updated: 2024-06-23 10:50:24
+date: 2024-06-25T19:20:46.790Z
+updated: 2024-06-26T19:20:46.790Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/d57dd9f54952f4e7ca5edd2db9c4efad701c22be4
 
 ## Tech-Driven Drones – The Rise of Syma X8C
 
-# Syma X8C Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Syma X8C Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -69,9 +67,7 @@ thumbnail: https://thmb.techidaily.com/d57dd9f54952f4e7ca5edd2db9c4efad701c22be4
 | Charging Time        | 200 Minutes            | Control Distance        | 100 meter approx.                                     |
 | Transmitter Power    | 4 x 1.5 V AA Batteries | Camera                  | 2 MP                                                  |
 
-#### 2\.  Design
-
-![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+#### 2\.  Design ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -85,15 +81,11 @@ thumbnail: https://thmb.techidaily.com/d57dd9f54952f4e7ca5edd2db9c4efad701c22be4
 
  With the headless mode, Syma X8C appears similar to X5C design with little bigger structure. This drone unit is extremely stable with easy to fly options that appear much easier to beginners too. The best part is that this drone responds perfectly to transmitter with very small delay. The performance is much better as compared to many models of this price range. If we talk about the wind stability then larger size and heavier design make this drone much stable. It will rarely face an undesired flip due to unfavourable weather conditions so you need not to struggle more to keep it tuned to its normal position. Those who want a drone for aerial photography will also e able to take advantage from Syma X8C design.
 
-#### 5\.  Controller/Transmitter
-
-![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
+#### 5\.  Controller/Transmitter ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
-#### 6\.  Camera
-
-![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+#### 6\.  Camera ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -125,3 +117,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-detailed-review-of-vsco-editing-techniques-and-tools-for-2024/"><u>[New] Detailed Review of VSCO Editing Techniques and Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/crystalclear-conversion-high-res-format-for-2024/"><u>CrystalClear Conversion - High Res Format for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-adept-methods-for-mass-acquiring-videos-on-tiktok-app/"><u>[New] In 2024, Adept Methods for Mass Acquiring Videos on TikTok App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-transforming-drones-into-cinematic-experiences-with-editing/"><u>[New] In 2024, Transforming Drones Into Cinematic Experiences with Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/superior-pc-experience-innovation-at-your-fingertips-for-2024/"><u>Superior PC Experience  Innovation at Your Fingertips for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-understanding-video-storage-in-24-hours/"><u>[Updated] In 2024, Understanding Video Storage in 24-Hours</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-preserving-the-past-in-motion-photo-to-video-transition-for-2024/"><u>[Updated] Preserving the Past in Motion  Photo to Video Transition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-key-strategies-for-navigating-complex-youtube-discussions/"><u>[New] 2024 Approved  Key Strategies for Navigating Complex YouTube Discussions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-expert-picks-top-1-cookie-cutter-list-of-10-apps-for-basketball-and-rugby-streaming/"><u>[New] Expert Picks  Top 1 Cookie Cutter List of 10 Apps for Basketball and Rugby Streaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-leading-iphone-apps-the-ultimate-guide-to-removing-photo-clutter/"><u>In 2024, Leading iPhone Apps  The Ultimate Guide to Removing Photo Clutter</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tamil-tunes-steps-for-ringtones-and-editing-songs-as-alerts/"><u>Tamil Tunes  Steps for Ringtones & Editing Songs as Alerts</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-se-apples-new-iphone-by-drfone-ios/"><u>How to Unlock Apple iPhone SE, Apples New iPhone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-battle-of-av1-and-vp9-outcomes-revealed/"><u>2024 Approved  The Battle of AV1 and VP9  Outcomes Revealed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-srt-to-sub-mastery-unveiling-3-key-strategies/"><u>[Updated] SRT-to-SUB Mastery  Unveiling 3 Key Strategies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-a-step-by-step-roadmap-for-lasting-tiktok-account-loss/"><u>In 2024, A Step-by-Step Roadmap for Lasting TikTok Account Loss</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-expert-discord-video-capturing-apps-mobile-desktop-for-2024/"><u>[New] Expert Discord Video Capturing Apps  Mobile, Desktop for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-expert-guide-to-displaying-audio-waves-and-adding-motion-graphics-in-premiere-pro/"><u>Updated Expert Guide to Displaying Audio Waves and Adding Motion Graphics in Premiere Pro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-capturing-on-win10-the-leading-apps-to-check-out/"><u>[New] Capturing on Win10  The Leading Apps to Check Out</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-sonicscope-in-depth-auditory-evaluation/"><u>[New] In 2024, SonicScope  In-Depth Auditory Evaluation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-zte-nubia-z60-ultra-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change ZTE Nubia Z60 Ultra Lock Screen Clock in Seconds</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Audio Amplification for PowerPoint Presentations\""
-date: 2024-06-23 12:54:17
-updated: 2024-06-24 11:55:28
+date: 2024-06-25T19:18:22.115Z
+updated: 2024-06-26T19:18:22.115Z
 tags: 
   - screen-recording
   - ai video
@@ -44,17 +44,13 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 **Steps to add audio to PowerPoint from PC**
 
-##### Step1 Select Insert > Audio
-
-![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+##### Step1 Select Insert > Audio ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
 
 ##### Step3 Select the audio file you want to add in the Insert Audio dialogue box
 
-##### Step4 Select Insert
-
-![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
+##### Step4 Select Insert ![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
 
 ## Part 2 Record audio on PowerPoint
 
@@ -108,13 +104,9 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ##### Step1 Click the audio icon you’ve just added to the presentation in previous steps
 
-##### Step2 Click Playback> Trim Audio as shown below
+##### Step2 Click Playback> Trim Audio as shown below ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
-
-##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
-
-![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
+##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
@@ -132,9 +124,7 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-##### Step1 Click Add Bookmark after clicking the place
-
-![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
+##### Step1 Click Add Bookmark after clicking the place ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
 ## Part 4 How to play audio automatically in PowerPoint
 
@@ -158,9 +148,7 @@ Let’s see how we can achieve this!
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -242,3 +230,27 @@ In this guide, we’ll specifically talk about the feature by which you can reco
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mirthful-mayhem-makers/"><u>[New] 2024 Approved  Mirthful Mayhem Makers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-pearlescent-pictures-brighten-with-android/"><u>[New] 2024 Approved  Pearlescent Pictures  Brighten with Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-tvs-to-accompany-your-highest-rated-consoles/"><u>[New] 2024 Approved  Best TVs to Accompany Your Highest Rated Consoles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-guide-to-supercharging-srt-with-macwindows/"><u>[New] In 2024, The Ultimate Guide to Supercharging SRT with Mac/Windows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/excellent-series-of-animated-type-options/"><u>Excellent Series of Animated Type Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fast-forward-to-flawless-windows-11-photography/"><u>[New] Fast Forward to Flawless Windows 11 Photography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ideal-photo-and-video-shows-on-latest-iphone-models-xr-ios12/"><u>In 2024, Ideal Photo & Video Shows on Latest iPhone Models (XR-iOS12)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-must-see-vr-platforms-and-places/"><u>[Updated] Must-See VR Platforms and Places</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mechanized-sky-dwellers-classes-for-2024/"><u>[Updated] Mechanized Sky-Dwellers' Classes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-galaxy-visionhub-premium-integrated-4k-all-in-one-panels-for-2024/"><u>[New] Galaxy VisionHub  Premium Integrated 4K All-in-One Panels for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-high-end-drones-expert-buyers-choices-top-5/"><u>[New] High-End Drones - Expert Buyers' Choices, Top 5</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-motorola-moto-g-stylus-2023-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Motorola Moto G Stylus (2023) without App | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-invisible-realities-of-stories-a-closer-look-for-viewers-for-2024/"><u>[New] Invisible Realities of Stories  A Closer Look for Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unleashing-facebooks-auto-play-feature-for-youtube-clips/"><u>[Updated] 2024 Approved  Unleashing Facebook's Auto-Play Feature for YouTube Clips</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-tips-for-quick-and-reliable-recording-of-presentations/"><u>[New] Top Tips for Quick and Reliable Recording of Presentations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-combat-colossus-leading-10-royale-titles/"><u>[New] Combat Colossus  Leading 10 Royale Titles</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-se-2020-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone SE (2020)</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-a-comprehensive-tutorial-for-tiktok-stitched-content/"><u>[New] In 2024, A Comprehensive Tutorial for TikTok Stitched Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-5-goggles-securing-victory-in-air-races/"><u>[Updated] Premier 5 Goggles  Securing Victory in Air Races</u></a></li>
+</ul></div>

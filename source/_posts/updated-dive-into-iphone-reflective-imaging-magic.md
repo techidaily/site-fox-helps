@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Dive Into iPhone Reflective Imaging Magic"
-date: 2024-06-25 11:18:25
-updated: 2024-06-26 11:28:33
+date: 2024-06-25T19:53:51.900Z
+updated: 2024-06-26T19:53:51.900Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/efbab3d097792aa66f0bd2cf2071c3ef92d9d9dc7
 
 ## Dive Into iPhone Reflective Imaging Magic
 
-# Reflection Photography Tips for iPhone
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Reflection Photography Tips for iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -40,13 +38,9 @@ thumbnail: https://thmb.techidaily.com/efbab3d097792aa66f0bd2cf2071c3ef92d9d9dc7
 
  Of course the number one rule of reflective photography is that you have a reflective surface! It doesn't have to be as simple as a mirror though, as the picture above shows lakes and pools are great if it is a clam weather day. You want to make sure that your surface is clean as far as possible to avoid distraction. If you wanted to be really creative you could find something like these:
 
- A Well Polished Table
+ A Well Polished Table ![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
 
-![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
-
- A Crystal/Glass Ball
-
-![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
+ A Crystal/Glass Ball ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
 
  Water in a wine glass (turns everything upside down too!)
 
@@ -72,13 +66,9 @@ thumbnail: https://thmb.techidaily.com/efbab3d097792aa66f0bd2cf2071c3ef92d9d9dc7
 
  Reflective photography should convey a sense of calm, simplicity and tranquility. If the photograph has more than one pull of focus you're likely to lose this.
 
- Good
+ Good ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
-![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
-
- Awful
-
-![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
+ Awful ![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
 
 #### 4\.  Reality and Reflection
 
@@ -113,27 +103,19 @@ thumbnail: https://thmb.techidaily.com/efbab3d097792aa66f0bd2cf2071c3ef92d9d9dc7
 | Photo Reflection      | iOS 9.0 or later | [Free](https://itunes.apple.com/us/app/photo-reflection/id484604482?mt=8)                               |
 | Photo Mirror Effects  | iOS 8.0 or later | [Free](https://itunes.apple.com/us/app/photo-mirror-effects-reflection-editor/id1019418266?mt=8)        |
 
-#### 1\. [Reflect Mirror Camera](https://itunes.apple.com/us/app/reflect-mirror-camera/id898143628?mt=8)
-
-![reflect-mirror-camera-app](https://images.wondershare.com/filmora/article-images/reflect-mirror-camera-app.jpg)
+#### 1\. Reflect Mirror Camera ![reflect-mirror-camera-app](https://images.wondershare.com/filmora/article-images/reflect-mirror-camera-app.jpg)
 
  Really easy to use entry level app, you can simply add reflections to your photos and there's also an option to do this as you take the photograph. The user interface is really clean and easy to use. You also get access to a massive library of templates and effects to make photos truly unique.
 
-#### 2\. [Reflection](https://itunes.apple.com/us/app/reflection-create-water-reflection-photo-arts/id672111257?mt=8)
-
-![reflection-create-water-reflection-photo-arts](https://images.wondershare.com/filmora/article-images/reflection-create-water-reflection-photo-arts.jpg)
+#### 2\. Reflection ![reflection-create-water-reflection-photo-arts](https://images.wondershare.com/filmora/article-images/reflection-create-water-reflection-photo-arts.jpg)
 
  Super user friendly app lets you create HD photos and it's intuitive feature means you can create reflective photos in a few taps. This is one of the best apps in terms of the quality of images/edits. It has all of the reflective effects of many of the top editing packages like Photoshop.
 
-#### 3\. [Photo Reflection](https://itunes.apple.com/us/app/photo-reflection/id484604482?mt=8)
-
-![photo-reflection-app](https://images.wondershare.com/filmora/article-images/photo-reflection-app.jpg)
+#### 3\. Photo Reflection ![photo-reflection-app](https://images.wondershare.com/filmora/article-images/photo-reflection-app.jpg)
 
  If you're not looking for professional level images then photo reflection is a good choice because it's free! It lacks some of the advanced features of the other apps but great for the very occasional photographer!
 
-#### 4\. [Photo Mirror Effects](https://itunes.apple.com/us/app/photo-reflection/id484604482?mt=8)
-
-![photo-mirror-effects-reflection-editor](https://images.wondershare.com/filmora/article-images/photo-mirror-effects-reflection-editor.jpg)
+#### 4\. Photo Mirror Effects ![photo-mirror-effects-reflection-editor](https://images.wondershare.com/filmora/article-images/photo-mirror-effects-reflection-editor.jpg)
 
  Another great choice for getting started with reflective photography. It has some mid range editing features, but this is made up in it's easy of use. Perhaps one of the best free reflective photography apps and you can even share the images directly to your social media feeds.
 
@@ -163,3 +145,24 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-premier-platforms-for-personalized-present-packaging/"><u>[Updated] In 2024, Premier Platforms for Personalized Present Packaging</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-witwizards-your-go-to-meme-app/"><u>[New] WitWizards  Your Go-To Meme App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-high-end-horizons-the-elite-8k-camera-selection/"><u>[Updated] In 2024, High-End Horizons  The Elite 8K Camera Selection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-visual-verdict-clash-sj6-prodigy-versus-yis-4k-masterpiece/"><u>[Updated] 2024 Approved  Visual Verdict Clash  SJ6 Prodigy Versus Yi’s 4K Masterpiece</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-multilingual-maven-writes-on-cutting-edge-video-translators-ranked-23/"><u>2024 Approved  The Multilingual Maven’ Writes On  Cutting-Edge Video Translators Ranked 23</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-illustrate-laughter-memes-in-adobe/"><u>[Updated] Illustrate Laughter  Memes in Adobe</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/modernized-guide-of-queries-for-engaging-podcast-discussions/"><u>Modernized Guide of Queries for Engaging Podcast Discussions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-next-generation-of-social-video-periscopes-counterparts/"><u>[Updated] In 2024, The Next Generation of Social Video  Periscope's Counterparts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-a-step-by-step-approach-add-a-linked-url-to-your-tiktok-profile/"><u>2024 Approved  A Step-by-Step Approach  Add a Linked URL to Your TikTok Profile</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-top-10-animated-dp-for-whatsapp-for-2024/"><u>Updated Top 10 Animated DP for WhatsApp for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/sourcing-free-frame-videos-without-a-dollar-drop-for-2024/"><u>Sourcing Free Frame Videos Without a Dollar Drop for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revealing-gone-reddit-content-a-time-savers-guide-for-2024/"><u>Revealing Gone-Reddit Content  A Time Saver's Guide for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-taxonomy-of-diverse-camera-systems-for-videos/"><u>[Updated] Taxonomy of Diverse Camera Systems for Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-periscope-demystified-features-pricing-and-account-creation-tips/"><u>[Updated] Periscope Demystified  Features, Pricing & Account Creation Tips</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-ultimate-guide-to-the-best-iphone-apps-top-picks-and-insights/"><u>Updated 2024 Approved The Ultimate Guide to the Best iPhone Apps Top Picks and Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-viewer-to-video-voyager-building-strong-backlinks-in-youtube/"><u>From Viewer to Video Voyager  Building Strong Backlinks in YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/supreme-performance-mods-ranking-the-best-srt-converters-for-2024/"><u>Supreme Performance Mods  Ranking the Best SRT Converters for 2024</u></a></li>
+</ul></div>

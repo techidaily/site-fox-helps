@@ -1,7 +1,7 @@
 ---
 title: "\"Digitizing Memories  From Stillness to Movement\""
-date: 2024-06-22 15:42:39
-updated: 2024-06-24 12:50:36
+date: 2024-06-25T18:54:07.425Z
+updated: 2024-06-26T18:54:07.425Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/6d644818f4603c573461e1572ce0a1a0270aa91bb
 
 ## Digitizing Memories: From Stillness to Movement
 
-# How to Digitize Your Old Photos and Turn Them into Impressive Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Digitize Your Old Photos and Turn Them into Impressive Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -90,13 +88,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -104,15 +102,15 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
-![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
+![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
-![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
-![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
 
@@ -176,3 +174,26 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-exquisite-movie-trailer-showcase/"><u>[Updated] In 2024, Exquisite Movie Trailer Showcase</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effective-strategies-for-podcast-on-insta-story-and-posts/"><u>[Updated] Effective Strategies for Podcast on Insta Story & Posts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-swift-transfer-methods-getting-files-onto-computers/"><u>[Updated] 2024 Approved  Swift Transfer Methods  Getting Files Onto Computers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-cash-flow-curiosity-how-much-does-the-celebrity-make/"><u>[New] 2024 Approved  Cash Flow Curiosity  How Much Does the Celebrity Make?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-deep-dive-into-srt-mechanics-and-performance/"><u>[Updated] Deep Dive Into SRT Mechanics and Performance</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-conceptualizing-and-realizing-a-podcast-rss-strategy-for-2024/"><u>[New] Conceptualizing and Realizing a Podcast RSS Strategy for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-breaking-the-barrier-acquiring-mass-tiktok-videos-easily-for-2024/"><u>[New] Breaking the Barrier  Acquiring Mass TikTok Videos Easily for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-viewer-insights-understanding-subscriber-feedback/"><u>2024 Approved  Unveiling Viewer Insights  Understanding Subscriber Feedback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-recommendation-best-websites-to-download-classical-ringtones/"><u>[Updated] Recommendation  Best Websites to Download Classical Ringtones</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-bring-your-videos-to-life-top-conversion-apps-and-tutorials/"><u>2024 Approved Bring Your Videos to Life Top Conversion Apps and Tutorials</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-minitool-movie-maker-is-it-the-best-choice-plus-top-alternatives/"><u>New In 2024, Minitool Movie Maker Is It the Best Choice? + Top Alternatives</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-top-10-animation-tools-for-teachers-and-students/"><u>2024 Approved Top 10 Animation Tools for Teachers and Students</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mobile-mastery-establishing-your-brands-youtube-outlet-for-2024/"><u>Mobile Mastery  Establishing Your Brand's YouTube Outlet for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/sweep-the-chorus-techniques-for-efficiently-eliminating-vocals-from-musical-pieces-with-audacity/"><u>Sweep the Chorus Techniques for Efficiently Eliminating Vocals From Musical Pieces with Audacity</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-secure-total-visual-display-for-2024/"><u>[Updated] Secure Total Visual Display for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-iphone-11-pro-max-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your iPhone 11 Pro Max Apple ID on MacBook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-motorola-edge-2023-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Motorola Edge 2023 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-ai-graphic-editor-tools/"><u>[New] Prime AI Graphic Editor Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-xiaomi-redmi-note-12-proplus-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Xiaomi Redmi Note 12 Pro+ 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+</ul></div>

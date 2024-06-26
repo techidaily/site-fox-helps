@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unpacking the '3DR' Experience From a Single Individual"
-date: 2024-06-24 13:25:58
-updated: 2024-06-26 12:48:29
+date: 2024-06-25T19:12:17.211Z
+updated: 2024-06-26T19:12:17.211Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 ## Unpacking the '3DR' Experience From a Single Individual
 
-# 3DR Solo Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# 3DR Solo Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -63,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 | Camera               | GoPro 3+/4                                  | Battery Life          | 20/22 minutes (5200 mAh, Li-ion) |
 | Video Resolution     | 4K/60P (as per GoPro Camera Specifications) | Rotors                | 4 replaceable (10 inch diameter) |
 
-#### 2\.  Design
-
-![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
+#### 2\.  Design ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
@@ -79,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
  This device possesses very simple and intuitive controls for flight with automated landing and takeoff feature. When you are ready for the flight, switch your drone and wait for one minute so that it can activate the GPS system and then press fly button. It will immediately move in the air and hover at about 4 feel height from ground. There are numerous flight modes over which users can easily switch from application: four video modes and five advanced flight modes. If you are a beginner in the world of drones then you may probably love its autonomous flying feature. In this mode, drone takes all flight decisions itself instead of depending on application based controls.
 
-#### 5\. Control Range
-
-![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
+#### 5\. Control Range ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
@@ -119,3 +113,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/innovative-vr-experiences-from-elite-designers-for-2024/"><u>Innovative VR Experiences From Elite Designers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-essential-handbook-for-instagram-reels/"><u>[New] The Essential Handbook for Instagram Reels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-embark-on-a-virtual-journey-with-iphone-vr-videos-for-2024/"><u>[Updated] Embark on a Virtual Journey with iPhone VR Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-apex-gk-quizmasters-video-channel-list/"><u>[Updated] 2024 Approved  Apex GK Quizmasters' Video Channel List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-guide-to-hyperlapse-storytelling/"><u>[New] 2024 Approved  The Ultimate Guide to Hyperlapse Storytelling</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-zen-journey-tracks-copyright-free-legally-downloaded-playlist/"><u>[New] 2024 Approved  Zen Journey Tracks - Copyright-Free, Legally Downloaded Playlist</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-instagram-the-ultimate-guide-to-viral-popularity/"><u>[New] 2024 Approved  Mastering Instagram  The Ultimate Guide to Viral Popularity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ideal-mobile-editing-platforms-for-dji-imagery/"><u>[New] In 2024, Ideal Mobile Editing Platforms for DJi Imagery</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-oppo-f25-pro-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-nokia-c110-unlock-without-password-by-drfone-android/"><u>5 Solutions For Nokia C110 Unlock Without Password</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-a15-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy A15 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-instant-gratification-boosting-fb-video-times/"><u>In 2024, Instant Gratification  Boosting FB Video Times</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-strategies-for-dominant-click-through-rates-in-youtube-advertising/"><u>[New] Strategies for Dominant Click-Through Rates in YouTube Advertising</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Tecno Spark Go (2024)? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-approaches-to-modify-user-numbers-in-tiktok/"><u>[New] Innovative Approaches to Modify User Numbers in TikTok</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/insert-signature-in-uot-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Insert signature in .uot file</u></a></li>
+</ul></div>

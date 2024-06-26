@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Merge Speeches and Music Into Slides Sequences"
-date: 2024-06-22 10:21:27
-updated: 2024-06-23 10:52:35
+date: 2024-06-25T18:54:39.679Z
+updated: 2024-06-26T18:54:39.679Z
 tags: 
   - screen-recording
   - ai video
@@ -44,17 +44,13 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 **Steps to add audio to PowerPoint from PC**
 
-##### Step1 Select Insert > Audio
-
-![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+##### Step1 Select Insert > Audio ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
 
 ##### Step3 Select the audio file you want to add in the Insert Audio dialogue box
 
-##### Step4 Select Insert
-
-![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
+##### Step4 Select Insert ![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
 
 ## Part 2 Record audio on PowerPoint
 
@@ -108,13 +104,9 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ##### Step1 Click the audio icon you’ve just added to the presentation in previous steps
 
-##### Step2 Click Playback> Trim Audio as shown below
+##### Step2 Click Playback> Trim Audio as shown below ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
-
-##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
-
-![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
+##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
@@ -132,9 +124,7 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-##### Step1 Click Add Bookmark after clicking the place
-
-![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
+##### Step1 Click Add Bookmark after clicking the place ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
 ## Part 4 How to play audio automatically in PowerPoint
 
@@ -158,9 +148,7 @@ Let’s see how we can achieve this!
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -242,3 +230,23 @@ In this guide, we’ll specifically talk about the feature by which you can reco
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-chromatic-balance-and-visual-storytelling/"><u>In 2024, Chromatic Balance and Visual Storytelling</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/smooth-sailing-through-sequences-with-kinemaster-for-2024/"><u>Smooth Sailing Through Sequences with Kinemaster for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-chuckling-chambers-humor-for-special-days-for-2024/"><u>[Updated] Chuckling Chambers  Humor for Special Days for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-decoding-the-m1-chip-apples-latest-marvel-for-2024/"><u>[New] Decoding the M1 Chip  Apple's Latest Marvel for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-guide-15-great-online-photo-editing-tools-2023-free/"><u>[Updated] 2024 Approved  Ultimate Guide  15 Great Online Photo Editing Tools 2023 (Free)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-phones-that-seamlessly-integrate-with-the-latest-gear-vr/"><u>2024 Approved  Top Phones That Seamlessly Integrate with the Latest Gear VR</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-art-of-solo-audio-stardom-stepwise-creation-for-2024/"><u>[Updated] The Art of Solo Audio Stardom  Stepwise Creation for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-honor-play-8t-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Honor Play 8T</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-samsung-galaxy-f14-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Samsung Galaxy F14 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-iphone-photography-in-the-dark/"><u>In 2024, The Art of iPhone Photography in the Dark</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-9-cross-platform-communication-apps-iphone-vs-android-comparison/"><u>[New] Top 9 Cross-Platform Communication Apps  IPhone vs Android Comparison</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-audio-aficionados-quandary-pick-between-podcast-and-youtube-for-2024/"><u>[New] Audio Aficionados' Quandary  Pick Between Podcast and YouTube for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-soniccapture-pro-review-and-download-steps/"><u>In 2024, SonicCapture Pro Review & Download Steps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/detailed-hdr-tutorial-uncomplicated-approach/"><u>Detailed HDR Tutorial  Uncomplicated Approach</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/calculating-your-digital-footprint-understanding-views-and-income-from-youtube/"><u>Calculating Your Digital Footprint  Understanding Views & Income From YouTube</u></a></li>
+</ul></div>

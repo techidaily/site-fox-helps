@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Gradient Goes Night  Premiere's Trick\""
-date: 2024-06-23 12:45:48
-updated: 2024-06-24 10:34:44
+date: 2024-06-25T18:51:40.911Z
+updated: 2024-06-26T18:51:40.911Z
 tags: 
   - screen-recording
   - ai video
@@ -50,13 +50,11 @@ If you are interested in figure out the complete procedure to add fade to black 
 
 ##### Step1 Firstly, you should add videos to the Premiere pro timeline that you want to feature with fade to black effects
 
-##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side
-
-![ effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
+##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side ![effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
 
 ##### Step3 You can spot a search box in the setting panel; you can use this panel for searching the effect that can create fade to black in video. Here, you need to use the term ‘DIP TO BLACK’
 
-![ Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
+![Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
 
 ##### Step4 Searching for the effect will help you get lots of options as well. You should look for the exact match. It will be the effect that can be useful in getting desired results. You can drag that effect directly from the search results to the timeline and position where you want to add it and create a fade to black effect
 
@@ -74,15 +72,11 @@ Filmora is the best video editor that can be useful in editing videos in several
 
 ##### Step1 You should begin by adding some videos to the timeline first
 
-##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it
-
-![ visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
+##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it ![visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
 
 ##### Step3 When you click the transition tab, you can see multiple options in the form of several effects. With these effects, you can see the search bar in the top-right corner of that particular section as well
 
-##### Step4 You should search for FADE by using that search bar
-
-![ Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
+##### Step4 You should search for FADE by using that search bar ![Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
 
 ##### Step5 Searching for fade will lead to some options in front of you. Here, you need to go for fade option and drag it to the timeline. On the timeline, you should place it carefully and wise. You need to be careful with position of effect placement
 
@@ -92,9 +86,7 @@ Filmora can be used for adding fade to black effect in multiple places of video.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -126,13 +118,11 @@ If you are interested in figure out the complete procedure to add fade to black 
 
 ##### Step1 Firstly, you should add videos to the Premiere pro timeline that you want to feature with fade to black effects
 
-##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side
-
-![ effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
+##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side ![effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
 
 ##### Step3 You can spot a search box in the setting panel; you can use this panel for searching the effect that can create fade to black in video. Here, you need to use the term ‘DIP TO BLACK’
 
-![ Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
+![Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
 
 ##### Step4 Searching for the effect will help you get lots of options as well. You should look for the exact match. It will be the effect that can be useful in getting desired results. You can drag that effect directly from the search results to the timeline and position where you want to add it and create a fade to black effect
 
@@ -150,15 +140,11 @@ Filmora is the best video editor that can be useful in editing videos in several
 
 ##### Step1 You should begin by adding some videos to the timeline first
 
-##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it
-
-![ visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
+##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it ![visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
 
 ##### Step3 When you click the transition tab, you can see multiple options in the form of several effects. With these effects, you can see the search bar in the top-right corner of that particular section as well
 
-##### Step4 You should search for FADE by using that search bar
-
-![ Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
+##### Step4 You should search for FADE by using that search bar ![Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
 
 ##### Step5 Searching for fade will lead to some options in front of you. Here, you need to go for fade option and drag it to the timeline. On the timeline, you should place it carefully and wise. You need to be careful with position of effect placement
 
@@ -168,9 +154,7 @@ Filmora can be used for adding fade to black effect in multiple places of video.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -202,13 +186,11 @@ If you are interested in figure out the complete procedure to add fade to black 
 
 ##### Step1 Firstly, you should add videos to the Premiere pro timeline that you want to feature with fade to black effects
 
-##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side
-
-![ effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
+##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side ![effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
 
 ##### Step3 You can spot a search box in the setting panel; you can use this panel for searching the effect that can create fade to black in video. Here, you need to use the term ‘DIP TO BLACK’
 
-![ Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
+![Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
 
 ##### Step4 Searching for the effect will help you get lots of options as well. You should look for the exact match. It will be the effect that can be useful in getting desired results. You can drag that effect directly from the search results to the timeline and position where you want to add it and create a fade to black effect
 
@@ -226,15 +208,11 @@ Filmora is the best video editor that can be useful in editing videos in several
 
 ##### Step1 You should begin by adding some videos to the timeline first
 
-##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it
-
-![ visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
+##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it ![visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
 
 ##### Step3 When you click the transition tab, you can see multiple options in the form of several effects. With these effects, you can see the search bar in the top-right corner of that particular section as well
 
-##### Step4 You should search for FADE by using that search bar
-
-![ Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
+##### Step4 You should search for FADE by using that search bar ![Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
 
 ##### Step5 Searching for fade will lead to some options in front of you. Here, you need to go for fade option and drag it to the timeline. On the timeline, you should place it carefully and wise. You need to be careful with position of effect placement
 
@@ -244,9 +222,7 @@ Filmora can be used for adding fade to black effect in multiple places of video.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -278,13 +254,11 @@ If you are interested in figure out the complete procedure to add fade to black 
 
 ##### Step1 Firstly, you should add videos to the Premiere pro timeline that you want to feature with fade to black effects
 
-##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side
-
-![ effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
+##### Step2 Now, you should go to the effects tab. You can find out this particular tab in the setting panel available in the left side ![effects tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-1.png)
 
 ##### Step3 You can spot a search box in the setting panel; you can use this panel for searching the effect that can create fade to black in video. Here, you need to use the term ‘DIP TO BLACK’
 
-![ Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
+![Dip to blak](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-2.png)
 
 ##### Step4 Searching for the effect will help you get lots of options as well. You should look for the exact match. It will be the effect that can be useful in getting desired results. You can drag that effect directly from the search results to the timeline and position where you want to add it and create a fade to black effect
 
@@ -302,15 +276,11 @@ Filmora is the best video editor that can be useful in editing videos in several
 
 ##### Step1 You should begin by adding some videos to the timeline first
 
-##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it
-
-![ visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
+##### Step2 After adding the videos, you should the menu and options available in the top section. Here, you can see the ‘TRANSITION’ option. You need to click on it ![visit transition tab](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-3.png)
 
 ##### Step3 When you click the transition tab, you can see multiple options in the form of several effects. With these effects, you can see the search bar in the top-right corner of that particular section as well
 
-##### Step4 You should search for FADE by using that search bar
-
-![ Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
+##### Step4 You should search for FADE by using that search bar ![Choose fade](https://images.wondershare.com/filmora/article-images/2022/03/fade-to-black-4.png)
 
 ##### Step5 Searching for fade will lead to some options in front of you. Here, you need to go for fade option and drag it to the timeline. On the timeline, you should place it carefully and wise. You need to be careful with position of effect placement
 
@@ -320,9 +290,7 @@ Filmora can be used for adding fade to black effect in multiple places of video.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -351,3 +319,26 @@ All these details will help you get some clarity to understand the best way to f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-your-personal-drone-that-never-falters-in-following/"><u>[New] In 2024, Your Personal Drone that Never Falters in Following</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-prime-windows-rapid-photo-displayer/"><u>[New] 2024 Approved  Prime Window's Rapid Photo Displayer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-efficiently-design-your-google-image-mosaic-today/"><u>[Updated] In 2024, Efficiently Design Your Google Image Mosaic Today</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-humor-hub-creator/"><u>[Updated] In 2024, Humor Hub Creator</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fascination-on-screen-top-6-engaging-video-categories-for-2024/"><u>[New] Fascination on Screen  Top 6 Engaging Video Categories for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[Updated] In 2024, Perfecting Visual Output  Incorporating LUTs Into Your AE Projects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/animators-choice-full-review-2024-edition/"><u>Animator's Choice Full Review - 2024 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-aperture-authority-picking-the-top-10-camera-lenses/"><u>In 2024, Aperture Authority  Picking the Top 10 Camera Lenses</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-metaverse-marketing-landscapes/"><u>[Updated] Navigating Metaverse Marketing Landscapes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-instagrams-inconsistent-video-timings/"><u>Navigating Instagram's Inconsistent Video Timings</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-top-5-mts-video-editing-software-recommended/"><u>New 2024 Approved Top 5 MTS Video Editing Software Recommended</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-leading-internet-mp3-editing-solution/"><u>New In 2024, Leading Internet MP3 Editing Solution</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-cut-trim-and-edit-avi-videos-with-the-best-tools-windows-mac-android-iphone-online/"><u>New In 2024, Cut, Trim, and Edit AVI Videos with the Best Tools Windows, MAC, Android, iPhone, Online</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-xs-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone XS Max With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-movie-making-on-mac-top-5-windows-movie-maker-lookalikes/"><u>In 2024, Movie Making on Mac Top 5 Windows Movie Maker Lookalikes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gopro-shootout-max-360-vs-hero-11-performance-analysis/"><u>In 2024, GoPro Shootout  Max 360 vs Hero 11 Performance Analysis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-chord-of-clicks-infusing-music-into-ig-story-posts-for-2024/"><u>The Chord of Clicks  Infusing Music Into IG Story Posts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-insight-demystifying-dji-inspire-2/"><u>[New] Full Insight  Demystifying DJI Inspire 2</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/uniting-twitter-and-facebook-through-shared-content-for-2024/"><u>Uniting Twitter and Facebook Through Shared Content for 2024</u></a></li>
+</ul></div>

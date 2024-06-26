@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unveiling the Wonders  Mastering Firefox X-Pie Mode\""
-date: 2024-06-22 11:20:59
-updated: 2024-06-25 11:36:53
+date: 2024-06-25T18:50:27.518Z
+updated: 2024-06-26T18:50:27.518Z
 tags: 
   - screen-recording
   - ai video
@@ -22,7 +22,7 @@ Using your PC to watch films while working on something else has recently been p
 
 This feature is an important tool to help you multitask by dragging videos from web pages and navigating to another tab so you can continue working on other tabs while the video keeps playing. In this article, you will understand everything about this feature and how to enable this feature.
 
-![the firefox]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-1.jpg)
+![the firefox](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-1.jpg)
 
 ## Part 1\. How Picture-in-Picture Mode Works
 
@@ -52,16 +52,16 @@ Here's how to activate picture-in-picture video control in Firefox**:**
 2. Click on the 3 horizontal lines in the top-right menu.
 3. Choose the **Options/Settings** from the menu list. This opens the settings mode and its general model.
 
-![choose the options/settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
+![choose the options/settings](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
 
 1. Scroll down in the General mode to locate the **Browsing** settings option.
 2. Here, you will see a list of browsing settings; click to select the '**Enable picture in picture video controls'**, and check the box.
 
-![a list of browsing settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
+![a list of browsing settings](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
 
 Following the above procedure, you may now see the Firefox Picture-in-Picture symbol in the video streaming player. Whenever you visit a streaming site, a symbol for pip mode appears as an overlay on the video screen.
 
-![the firefox picture in picture symbol]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-4.jpg)
+![the firefox picture in picture symbol](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-4.jpg)
 
 You can load only a single video using the above guideline. Suppose you want to lunch multiple videos to increase your multitasking experience. In that case, follow the outlined procedure:
 
@@ -71,7 +71,7 @@ You can load only a single video using the above guideline. Suppose you want to 
 4. Repeat the preceding steps on the same page or in a separate tab to open several movies.
 5. Firefox plays the new video above the first. Drag and drop it anywhere to display both.
 
-![the new video above the first]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
+![the new video above the first](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
 
 By following these steps, videos appear on the screen at the same time. For all tabs containing open videos, the main Firefox window shows a "play" symbol. Even if you dismiss Firefox, numerous videos will continue to play in other programs or on your desktop.
 
@@ -79,7 +79,7 @@ By following these steps, videos appear on the screen at the same time. For all 
 
 Sometimes, the PiP mode can disturb necessary research or task that needs your full concentration. In this scenario, disabling the Picture-in-Picture mode is a way to get your task done with the optimum attention. If you want to turn off Picture-in-Picture mode and return to the video tab, hover over the video, then click the following icon **“X”**.
 
-![click the following icon]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
+![click the following icon](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
 
 ## Part 4\. Other tips about Picture-in-Picture Mode in Firefox
 
@@ -91,7 +91,7 @@ Another mode of having your picture-in-picture mode on Firefox is using the avai
 
 It is also possible to enable and disable the picture-in-picture mode using keyboard shortcuts. To get this done, use the key combination of **'Ctrl + Shift + \]'**. By simultaneously holding these keys, Firefox will launch the relevant video on the web page into a picture-in-picture mode. However, if the feature has been enabled before pressing the key combination, it automatically disables the feature.
 
-![the key combination]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-7.jpg)
+![the key combination](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-7.jpg)
 
 ## Part 5\. FAQs
 
@@ -138,3 +138,24 @@ Picture-in-Picture is a nice feature that helps you increase productivity while 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-prime-biz-vault-services-for-data/"><u>In 2024, Prime Biz Vault Services for Data</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-androids-leading-music-video-watching-tools-for-2024/"><u>Explore Android's Leading Music Video Watching Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-breaking-down-the-barriers-effective-rtmp-streaming-in-premiere/"><u>[Updated] In 2024, Breaking Down the Barriers  Effective RTMP Streaming in Premiere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-animators-toolkit-windows-movie-maker-for-winning-projects-for-2024/"><u>The Animator's Toolkit  Windows Movie Maker for Winning Projects for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/professional-shutter-sense-the-prime-6-4k-dslr-selections-for-2024/"><u>Professional Shutter Sense  The Prime 6 4K DSLR Selections for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-layering-yt-music-with-visual-expressions/"><u>[Updated] 2024 Approved  Layering YT Music with Visual Expressions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-drone-innovations-for-mass-movement/"><u>[New] In 2024, Top Drone Innovations for Mass Movement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/virtual-reality-showdown-ranking-the-top-10-pc-streamers-for-360-videos-for-2024/"><u>Virtual Reality Showdown  Ranking the Top 10 PC Streamers for 360 Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-capturing-time-on-pause-instagrams-slow-motion-secrets/"><u>[New] Capturing Time on Pause  Instagram's Slow-Motion Secrets</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-cutting-edge-ai-companions-discord/"><u>In 2024, Cutting-Edge AI Companions Discord</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/earning-big-on-youtube-shorts-what-you-need-and-how-much-can-you-make-for-2024/"><u>Earning Big on Youtube Shorts  What You Need & How Much Can You Make for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-beginners-path-to-screen-casting-with-apple-devices/"><u>[New] Beginner’s Path to Screen Casting with Apple Devices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-life360-from-tracking-you-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/how-to-make-vimeo-videos/"><u>How to Make Vimeo Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-cross-social-media-content-strategy-with-youtube-and-fb/"><u>Crafting Cross-Social Media Content Strategy with YouTube & FB</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupted-pdf-v16-file-when-manual-method-fails-stellar-by-stellar-guide/"><u>How to repair corrupted PDF v1.6 file when manual method fails | Stellar</u></a></li>
+</ul></div>

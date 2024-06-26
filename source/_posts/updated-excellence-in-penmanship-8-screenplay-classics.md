@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Excellence in Penmanship  8 Screenplay Classics\""
-date: 2024-06-22 19:29:51
-updated: 2024-06-24 11:15:57
+date: 2024-06-25T19:48:36.712Z
+updated: 2024-06-26T19:48:36.712Z
 tags: 
   - screen-recording
   - ai video
@@ -33,7 +33,7 @@ _Be it a blockbuster movie, an indie gem, a play on The Fringe, or the West End 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -107,9 +107,7 @@ When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister 
 
 **Download the script here:** <https://www.chino.k12.ca.us/cms/lib8/CA01902308/Centricity/Domain/3749/7.3.2--FULL%20SCRIPT%5FA%20Christmas%20Carol.pdf>
 
-_**2\. Angel's Poinsettia**_
-
-![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
+_**2\. Angel's Poinsettia**_ ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
 
 **Writer:** Sally Painter
 
@@ -117,9 +115,7 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
-### Best promotional video scripts
-
-![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
+### Best promotional video scripts ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
 
 _**1\. Announcement**_
 
@@ -157,9 +153,7 @@ Cast: _2M_
 
 Ages of the actors: _Approximately 30-40 years of age_
 
-Suitable for: _All ages_
-
-![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
+Suitable for: _All ages_ ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
 
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
@@ -181,9 +175,7 @@ Length: _Five minutes_
 
 Set: _A Park. Daytime in the present. It is a bucolic atmosphere in the middle of a city._
 
-Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_
-
-![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
+Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_ ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
@@ -201,9 +193,7 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 
 **Download the script:** <https://thescriptlab.com/script-library/2guns-pdf/>
 
-_**2\. Casino Royale**_
-
-![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
+_**2\. Casino Royale**_ ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
 **Writers:** Robert Wade and Paul Haggis
 
@@ -253,9 +243,7 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 **_2\. The Lion King_(1994)**
 
-**Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas
-
-![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
+**Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
@@ -289,7 +277,7 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -363,9 +351,7 @@ When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister 
 
 **Download the script here:** <https://www.chino.k12.ca.us/cms/lib8/CA01902308/Centricity/Domain/3749/7.3.2--FULL%20SCRIPT%5FA%20Christmas%20Carol.pdf>
 
-_**2\. Angel's Poinsettia**_
-
-![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
+_**2\. Angel's Poinsettia**_ ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
 
 **Writer:** Sally Painter
 
@@ -373,9 +359,7 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
-### Best promotional video scripts
-
-![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
+### Best promotional video scripts ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
 
 _**1\. Announcement**_
 
@@ -413,9 +397,7 @@ Cast: _2M_
 
 Ages of the actors: _Approximately 30-40 years of age_
 
-Suitable for: _All ages_
-
-![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
+Suitable for: _All ages_ ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
 
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
@@ -437,9 +419,7 @@ Length: _Five minutes_
 
 Set: _A Park. Daytime in the present. It is a bucolic atmosphere in the middle of a city._
 
-Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_
-
-![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
+Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_ ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
@@ -457,9 +437,7 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 
 **Download the script:** <https://thescriptlab.com/script-library/2guns-pdf/>
 
-_**2\. Casino Royale**_
-
-![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
+_**2\. Casino Royale**_ ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
 **Writers:** Robert Wade and Paul Haggis
 
@@ -509,9 +487,7 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 **_2\. The Lion King_(1994)**
 
-**Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas
-
-![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
+**Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
@@ -564,3 +540,24 @@ Creating video content that can potentially go viral is no longer a complicated 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/step-by-step-guide-for-cutting-edge-editing-in-gopro-studio-for-2024/"><u>Step-by-Step Guide for Cutting-Edge Editing in GoPro Studio for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-5-gif-to-video-converters-online-no-need-to-download/"><u>Best 5 GIF to Video Converters Online [No Need to Download]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quick-and-clear-swap-clown-fins-voices-on-pcs-for-2024/"><u>Quick & Clear  Swap Clown Fins' Voices on PCs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-ffxp-the-user-manual/"><u>[Updated] Navigating FFXP  The User Manual</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-icy-illusions-reveling-at-beijings-olympic-event-2022/"><u>In 2024, Icy Illusions  Reveling at Beijing's Olympic Event, 2022</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-superior-screen-selection-top-10-picks/"><u>[New] In 2024, Superior Screen Selection – Top 10 Picks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-free-live-streaming-software-and-app-for-all-platforms-2023-list/"><u>Best Free Live Streaming Software and App for All Platforms [2023 List]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-understanding-camera-shake-in-photographyvideo/"><u>In 2024, Understanding Camera Shake in Photography/Video</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-the-last-aspect-ratio-guide-youll-ever-need-for-facebook-videos/"><u>Updated 2024 Approved The Last Aspect Ratio Guide Youll Ever Need for Facebook Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-infinix-note-30i-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Infinix Note 30i Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/ready-set-resize-transformative-techniques-for-macs-instagram-content-for-2024/"><u>Ready, Set, Resize  Transformative Techniques for Mac's Instagram Content for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-motion-dynamics-review/"><u>In 2024, Comprehensive Motion Dynamics Review</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-lava-agni-2-5g-by-fonelab-android-recover-music/"><u>How to restore wiped music on Lava Agni 2 5G</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-for-tiktok-content-sharing-strategies/"><u>Twitter for TikTok Content Sharing Strategies</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-say-goodbye-to-typing-the-best-free-speech-to-text-apps-for-mac-you-should-know-about-for-2024/"><u>Updated Say Goodbye to Typing The Best Free Speech-to-Text Apps for Mac You Should Know About for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-lively-letters-on-screen-bounce-with-ease-and-style/"><u>In 2024, Lively Letters on Screen  Bounce with Ease and Style</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-oppo-a1x-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Oppo A1x 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+</ul></div>

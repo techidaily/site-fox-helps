@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tints & Tonality  Applying Theoretical Insight\""
-date: 2024-06-25 18:29:49
-updated: 2024-06-26 11:26:38
+date: 2024-06-25T19:48:34.849Z
+updated: 2024-06-26T19:48:34.850Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,7 @@ There are many color wheels out there and all require understanding and research
 
 ## The Color Wheel
 
-Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
-
-![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
+Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
@@ -68,11 +66,11 @@ As you can see from all the movie covers above, they all use complementary color
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,3 +93,27 @@ By including this into your thought process when creating videos with [Filmora](
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-whats-your-take-home-pay-in-podcasting/"><u>[New] 2024 Approved  What’s Your Take-Home Pay in Podcasting?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-close-up-views-in-roblox-games-for-2024/"><u>Mastering Close-Up Views in Roblox Games for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vibing-mix-melodies-into-status-updates-for-2024/"><u>[New] Vibing  Mix Melodies Into Status Updates for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-meme-magic-online/"><u>[Updated] 2024 Approved  Meme Magic Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-enhancing-detail-in-youtube-clips/"><u>[New] 2024 Approved  Enhancing Detail in YouTube Clips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/interpreting-distinctions-360-content-and-virtual-reality-for-2024/"><u>Interpreting Distinctions  360° Content & Virtual Reality for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-organize-photo-album-on-iphone-and-icloud-for-2024/"><u>[New] How To Organize Photo Album On iPhone And iCloud for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-use-picture-in-picture-pip-on-microsoft-edge/"><u>[New] How to Use Picture in Picture (PIP) on Microsoft Edge</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-ios-and-android-photo-blur-tools-for-2024/"><u>[Updated] Top iOS & Android Photo Blur Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-pathway-to-seamless-system-enhancement-in-macos-11-big-sur-for-2024/"><u>The Pathway to Seamless System Enhancement in macOS 11 Big Sur for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-explore-free-youtube-pic-themes/"><u>[Updated] Explore Free YouTube Pic Themes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-breakthrough-pfp-themes-for-an-indelible-tiktok-identity/"><u>[New] Breakthrough PFP Themes for an Indelible TikTok Identity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-comprehensive-introduction-to-quantum-hdr-principles/"><u>A Comprehensive Introduction to Quantum HDR Principles</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/luminance-in-hd-boost-or-bust-in-hdr-world-for-2024/"><u>Luminance in HD  Boost or Bust in HDR World for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-beginners-vlogging-toolkit-gear-and-software/"><u>2024 Approved  Beginner's Vlogging Toolkit  Gear and Software</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leading-edge-of-color-grading-with-luts/"><u>In 2024, Leading Edge of Color Grading with LUTs</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-top-animation-tools-a-step-by-step-guide-to-bringing-your-drawings-to-life/"><u>2024 Approved Top Animation Tools A Step-by-Step Guide to Bringing Your Drawings to Life</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-motorola-moto-e13-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Motorola Moto E13 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-insta-story-magic-embedding-youtube-links-like-a-pro/"><u>[New] 2024 Approved  Insta Story Magic  Embedding YouTube Links Like a Pro</u></a></li>
+</ul></div>

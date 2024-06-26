@@ -1,7 +1,7 @@
 ---
 title: "[New] Personal Exploration of 3D Printing in '3DR'"
-date: 2024-06-20 12:59:53
-updated: 2024-06-23 11:42:43
+date: 2024-06-25T18:39:36.475Z
+updated: 2024-06-26T18:39:36.475Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/95f65ec843e39dc81b80b6ffcbfef45d788958cee
 
 ## Personal Exploration of 3D Printing in '3DR'
 
-# 3DR Solo Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# 3DR Solo Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -63,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/95f65ec843e39dc81b80b6ffcbfef45d788958cee
 | Camera               | GoPro 3+/4                                  | Battery Life          | 20/22 minutes (5200 mAh, Li-ion) |
 | Video Resolution     | 4K/60P (as per GoPro Camera Specifications) | Rotors                | 4 replaceable (10 inch diameter) |
 
-#### 2\.  Design
-
-![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
+#### 2\.  Design ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
@@ -79,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/95f65ec843e39dc81b80b6ffcbfef45d788958cee
 
  This device possesses very simple and intuitive controls for flight with automated landing and takeoff feature. When you are ready for the flight, switch your drone and wait for one minute so that it can activate the GPS system and then press fly button. It will immediately move in the air and hover at about 4 feel height from ground. There are numerous flight modes over which users can easily switch from application: four video modes and five advanced flight modes. If you are a beginner in the world of drones then you may probably love its autonomous flying feature. In this mode, drone takes all flight decisions itself instead of depending on application based controls.
 
-#### 5\. Control Range
-
-![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
+#### 5\. Control Range ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
@@ -119,3 +113,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-shortcuts-to-success-how-to-skip-edgenuity-online-lessons-gracefully/"><u>[Updated] In 2024, Shortcuts to Success  How to Skip Edgenuity Online Lessons Gracefully</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-essence-of-pixiz-crafting-compelling-stills-to-video-transformations-for-2024/"><u>[Updated] The Essence of Pixiz  Crafting Compelling Stills-to-Video Transformations for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-innovative-techniques-for-maximum-zoom-utility-on-chromebook/"><u>[New] Innovative Techniques for Maximum Zoom Utility on Chromebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-8-filtration-options-for-professional-streams/"><u>[New] Ultimate 8 Filtration Options for Professional Streams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-the-art-of-viral-videos-1mplus-audience-journey-for-2024/"><u>Mastering the Art of Viral Videos  1M+ Audience Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-evolving-shopper-behavior-in-vr-realms/"><u>[New] In 2024, Evolving Shopper Behavior in VR Realms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-essential-compendium-of-affordable-rich-graphics-resources-online-for-2024/"><u>The Essential Compendium of Affordable, Rich Graphics Resources Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-artful-animation-of-adventures-exploring-the-top-8-narrative-universities-top-8-for-2024/"><u>[Updated] Artful Animation of Adventures  Exploring the Top 8 Narrative Universities (Top 8) for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-innovative-vfx-equipment-for-eco-warriors/"><u>[New] In 2024, Innovative VFX Equipment for Eco Warriors</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/curated-list-of-top-10-song-tracks-for-enhancing-visual-narratives/"><u>Curated List of Top 10 Song Tracks for Enhancing Visual Narratives</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/efficient-viewing-the-comprehensive-guide-for-creating-youtube-watch-later-lists/"><u>Efficient Viewing  The Comprehensive Guide for Creating YouTube Watch Later Lists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/this-years-unexpected-cinematic-gems/"><u>This Year's Unexpected Cinematic Gems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-affiliates-a-roadmap-to-financial-growth-for-2024/"><u>Video Affiliates  A Roadmap to Financial Growth for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-easy-steps-to-youtubing-prosperity-channel-size-not-a-barrier-for-2024/"><u>[Updated] Easy Steps to Youtubing Prosperity  Channel Size Not a Barrier for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-passive-viewers-to-earnings-youtubes-monetization-mastery/"><u>[Updated] In 2024, From Passive Viewers to Earnings  YouTube's Monetization Mastery</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-2024-approved-12-aesthetic-gif-instagram-for-marketers/"><u>New 2024 Approved 12 Aesthetic GIF Instagram for Marketers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/seeing-beyond-the-ordinary-with-ar-for-2024/"><u>Seeing Beyond the Ordinary with AR for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"Panasonic’s HX-A1 - The Wearable Action Camera Revealed\""
-date: 2024-06-25 19:14:11
-updated: 2024-06-26 10:25:10
+date: 2024-06-25T18:59:12.667Z
+updated: 2024-06-26T18:59:12.667Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
 ## Panasonic’s HX-A1 - The Wearable Action Camera Revealed
 
-# Panasonic HX-A1 Wearable Action Camera Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Panasonic HX-A1 Wearable Action Camera Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -32,9 +30,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-## Design and Usability
-
-![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+## Design and Usability ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
@@ -96,9 +92,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
 #### Wind jammer and strap adapter
 
- Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all!
-
-[Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
+ Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Features
 
@@ -158,3 +152,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-uncomplicated-story-framework/"><u>[New] In 2024, Uncomplicated Story Framework</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhancing-collaborative-potential-zooming-up-your-skype-efficiency/"><u>In 2024, Enhancing Collaborative Potential  Zooming Up Your Skype Efficiency</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-10-sites-for-vector-graphics-collection/"><u>[New] 2024 Approved  Top 10 Sites for Vector Graphics Collection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capturing-photos-from-moving-frames-on-windows-11-for-2024/"><u>[New] Capturing Photos From Moving Frames on Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-experience-reality-redefined-with-htc-vive/"><u>[New] In 2024, Experience Reality Redefined with HTC Vive</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-voices-on-the-page-techniques-for-effective-scriptwriting-for-2024/"><u>[New] Voices on the Page  Techniques for Effective Scriptwriting for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-cash-in-comms-how-much-does-youtube-star-pewdopeep-make-for-2024/"><u>[New] Cash in Comms  How Much Does YouTube Star PewDoPeep Make for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-vlc-knowledge-for-seamless-mac-media-playback/"><u>[New] 2024 Approved  Essential VLC Knowledge for Seamless Mac Media Playback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-secret-to-success-with-filmora-top-10-editing-traits-for-2024/"><u>[New] The Secret to Success with Filmora  Top 10 Editing Traits for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveil-the-zodiac-persona-perfecting-personalized-bios-on-whatsapp/"><u>[Updated] 2024 Approved  Unveil the Zodiac Persona - Perfecting Personalized Bios on WhatsApp</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-vivo-x100-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Vivo X100 Pro FRP Locks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-monetization-carryminati-ajey-nagar-youtube-income/"><u>In 2024, YouTube Monetization  CarryMinati (Ajey Nagar) YouTube Income</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unleash-your-creativity-the-top-10-free-green-screen-apps-for-mobile-video-editing/"><u>Updated Unleash Your Creativity The Top 10 Free Green Screen Apps for Mobile Video Editing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-snapsnatcher-live-stream-repository/"><u>[Updated] SnapSnatcher - Live Stream Repository</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-premier-recorder-clean-and-clear-android-edition/"><u>[New] In 2024, Premier Recorder  Clean and Clear Android Edition</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unlock-vertical-video-potential-top-editing-apps-for-ios-and-android/"><u>Updated Unlock Vertical Video Potential Top Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a05-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A05 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-the-future-of-remote-work-unveiling-the-best-vocal-manipulation-apps-for-google-meet-users/"><u>New The Future of Remote Work Unveiling the Best Vocal Manipulation Apps for Google Meet Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-truth-behind-your-instagram-selfie-for-2024/"><u>The Truth Behind Your Instagram Selfie for 2024</u></a></li>
+</ul></div>

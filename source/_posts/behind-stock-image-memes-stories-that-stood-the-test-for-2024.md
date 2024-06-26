@@ -1,7 +1,7 @@
 ---
 title: "\"Behind Stock Image Memes  Stories That Stood the Test for 2024\""
-date: 2024-06-24 12:31:39
-updated: 2024-06-25 11:35:25
+date: 2024-06-25T18:57:15.317Z
+updated: 2024-06-26T18:57:15.317Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,7 @@ A stock photo meme is an image or video you use to communicate a specific idea. 
 
 So, what are the most popular stock photo memes, and how did they reach this status? Keep reading to find out more.
 
-## Part1: Hide the Pain Harold
-
-![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
+## Part1: Hide the Pain Harold ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
 
 Since 2011, Hide the Pain Harold continues to rank as one of the world's most popular stock photo memes. Here are some numbers to show you how popular the meme is.
 
@@ -68,9 +66,7 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
-## Part3: I Bet He's Thinking About Other Women
-
-![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
+## Part3: I Bet He's Thinking About Other Women ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
@@ -94,9 +90,7 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
-## Part4: Bonjour Bear
-
-![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
+## Part4: Bonjour Bear ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -131,11 +125,11 @@ No. Before using watermarked images to create memes, you must get verifiable per
 
 Therefore, always perform stock image reverse searches to verify the image permissions. Alternatively, you can refer to stock photo libraries such as Adobe Stock and Unsplash for your meme creation.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,3 +152,27 @@ Therefore, always perform stock image reverse searches to verify the image permi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-unleashing-originality-in-virtual-meme-worlds/"><u>[New] Unleashing Originality in Virtual Meme Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-text-memes-made-simple-utilize-meme-creator-tools-for-2024/"><u>[New] Text Memes Made Simple  Utilize Meme Creator Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-verdicts-in-camcorders-which-superiorly-captures-sports-in-2024/"><u>[New] Ultimate Verdicts in Camcorders  Which Superiorly Captures Sports, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-premier-8k-capture-the-ultimate-camera-guide/"><u>[New] In 2024, Premier 8K Capture  The Ultimate Camera Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlock-humor-potential-quickly-kapwings-app/"><u>[New] In 2024, Unlock Humor Potential Quickly - Kapwing's App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-youtube-editing-101-incorporating-time-markers/"><u>[Updated] 2024 Approved  YouTube Editing 101  Incorporating Time Markers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-revolutionary-q500-the-ultimate-4k-bird/"><u>[Updated] In 2024, Revolutionary Q500  The Ultimate 4K Bird</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ignite-dreams-the-best-movies-to-energize-your-soul/"><u>[New] Ignite Dreams  The Best Movies to Energize Your Soul</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-the-art-of-transcending-huge-video-sizes-iphone-mac-connection/"><u>Mastering the Art of Transcending Huge Video Sizes  IPhone-Mac Connection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-inside-the-core-a-thorough-insight-into-xstudio-video-studio-for-2024/"><u>[Updated] Inside the Core  A Thorough Insight Into XStudio Video Studio for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-inspire-and-engage-top-50plus-tiktok-lyrics-guide-for-2024/"><u>[New] Inspire & Engage  Top 50+ TikTok Lyrics Guide for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-video-blurring-made-easy-free-online-solutions/"><u>New Video Blurring Made Easy Free Online Solutions</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-cutting-through-the-noise-posting-twitter-videos-on-instagram/"><u>In 2024, Cutting Through the Noise  Posting Twitter Videos on Instagram</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-a2-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi A2 Phones? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-poco-x6-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Poco X6 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-unleashing-creativity-the-top-10-final-cut-pro-movies/"><u>New 2024 Approved Unleashing Creativity The Top 10 Final Cut Pro Movies</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-leading-examples-of-5-innovative-social-sites-animations/"><u>[Updated] In 2024, Leading Examples of 5 Innovative Social Sites Animations</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/vegas-pro-19-review-for-2024/"><u>VEGAS Pro 19 Review for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-investigation-are-you-best-off-with-inshot-app/"><u>[New] In-Depth Investigation  Are You Best Off with InShot App?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/mastering-tiktok-sound-control-simple-methods-for-quieting-videos/"><u>Mastering TikTok Sound Control Simple Methods for Quieting Videos</u></a></li>
+</ul></div>

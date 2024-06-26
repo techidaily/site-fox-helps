@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unleash the Mixer in You  20 Free, Custom LUTs for DJI Minis & Airs\""
-date: 2024-06-25 15:13:58
-updated: 2024-06-26 11:32:36
+date: 2024-06-25T19:12:34.440Z
+updated: 2024-06-26T19:12:34.440Z
 tags: 
   - screen-recording
   - ai video
@@ -122,7 +122,7 @@ All the above LUTS are available for free of cost and you can download them at <
 
 ## 10 Paid LUTs for DJI Drone
 
-### 1\. [Moody Drone LUTs](https://www.bouncecolor.com/products/drone-luts)
+### 1\. Moody Drone LUTs
 
 Price: $37
 
@@ -132,7 +132,7 @@ This LUT focus on the moods like weather, landscapes, happy moments, and surpris
 
 Moody Drone LUTs
 
-### 2\. [Drone LUTS collections](https://www.chrisfilmpresents.com/shop/cfp-drone-lut-collection)
+### 2\. Drone LUTS collections
 
 Price: $19
 
@@ -142,7 +142,7 @@ There are nearly 50 different types of drone LUTS available in this collection. 
 
 Drone LUTS collections
 
-### 3\. [Cinematic Drone LUT](https://vamify.com/products/drone-luts)
+### 3\. Cinematic Drone LUT
 
 Price: $29.9
 
@@ -152,7 +152,7 @@ Here comes another film like LUTs that adds extra color gradients to the footage
 
 Cinematic Drone LUT
 
-### 4\. [Cine Collections](https://spectrumgrades.com/products/cine-collection-dji-mavic-mini-luts-pack)
+### 4\. Cine Collections
 
 Price: $47.95
 
@@ -162,7 +162,7 @@ This Cine collection LUTs is like the cinematic drone LUT with few changes in th
 
 Cine Collections
 
-### 5\. [Chromatica LUTS](https://spectrumgrades.com/products/new-matching-camera-and-drone-set-chromatica-specialized-matching-film-look-lut-set-for-matching-drone-and-camera-shots?%5Fpos=1&%5Fsid=fb4444dce&%5Fss=r)
+### 5\. Chromatica LUTS
 
 Price: $24.99
 
@@ -172,7 +172,7 @@ It is a unique LUTs effect that works on every detail of the footage. The hue an
 
 Chromatica LUTS
 
-### 6\. [Buttery LUTS](https://www.shopmoment.com/digital-products/buttery-luts-dji-rec709)
+### 6\. Buttery LUTS
 
 Price: $39
 
@@ -182,7 +182,7 @@ Excellent LUTs to edit the landscape shots, and you can edit small detail on the
 
 Buttery LUTS
 
-### 7\. [Cine Vision LUTs](https://spectrumgrades.com/products/cinevision?%5Fpos=2&%5Fsid=f43190e97&%5Fss=r)
+### 7\. Cine Vision LUTs
 
 Price: $89.84
 
@@ -192,7 +192,7 @@ It is also a film-like LUTs, and it impacts the overall tracks in the videos wit
 
 Cine Vision LUTs
 
-### 8\. [DJI Drone LUTs](https://123presets.store/products/dji-drone-video-luts-mobile-desktop)
+### 8\. DJI Drone LUTs
 
 Price: $29
 
@@ -202,7 +202,7 @@ There are nearly 40 different presets available in this pack, and each one is un
 
 DJI Drone LUTs
 
-### 9\. [LUTS pro pack](https://www.ebay.com/itm/LUTs-Pro-Pack-For-DJI-Drones-With-DLOG-DLOG-M-Color-Profiles-All-Mavic-series-/352566871616)
+### 9\. LUTS pro pack
 
 Price: $10.05
 
@@ -212,7 +212,7 @@ Another pro pack adds extra effects to the footage, and you can use this LUT on 
 
 LUTS pro pack
 
-### 10\. [FPV Drone LUT](https://vic-barry-2.creator-spring.com/listing/dji-fpv-drone-lut-pack?country=US&currency=USD&product=1225&tsmac=google&tsmic=youtube&variation=104377&view%5Fas=USA)
+### 10\. FPV Drone LUT
 
 Price: $10
 
@@ -263,3 +263,23 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-adept-methods-for-mass-acquiring-videos-on-tiktok-app/"><u>[New] In 2024, Adept Methods for Mass Acquiring Videos on TikTok App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-periscope-broadcasts-setting-up-for-success/"><u>2024 Approved  Periscope Broadcasts  Setting Up for Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-androidiphone-mastery-discover-the-ultimate-top-8-app-set/"><u>In 2024, Android/iPhone Mastery  Discover the Ultimate Top 8 App Set</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/making-memories-sing-picture-plus-music-videography/"><u>Making Memories Sing  Picture + Music Videography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-enthralling-audiences-a-compilation-of-top-video-ideas/"><u>[New] 2024 Approved  Enthralling Audiences  A Compilation of Top Video Ideas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-time-loop-mastery-how-to-rewind-iphone-media/"><u>2024 Approved  Time-Loop Mastery  How to Rewind iPhone Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigate-with-ease-mastering-ifunnys-meme-app-for-2024/"><u>Navigate with Ease  Mastering iFunny's Meme App for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unbelievable-judgment-and-backup-recommendations/"><u>Unbelievable Judgment & Backup Recommendations</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/instantaneous-srt-to-txt-change-a-step-by-step-process-for-2024/"><u>Instantaneous SRT to TXT Change  A Step-by-Step Process for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/illustrate-images-select-caption-apps-for-your-photos-iosandroid-for-2024/"><u>Illustrate Images  Select Caption Apps for Your Photos (iOS/Android) for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-insiders-guide-to-personalizing-your-instagram-vocal-style/"><u>[New] 2024 Approved  The Insider's Guide to Personalizing Your Instagram Vocal Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/echoing-emotions-infusing-music-into-instareel-content-for-2024/"><u>Echoing Emotions  Infusing Music Into InstaReel Content for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-chromebook-zoom-capabilities/"><u>[Updated] Unlocking Chromebook Zoom Capabilities</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-seamless-webm-creation-from-youtube-videos/"><u>[New] 2024 Approved  Seamless WebM Creation From YouTube Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/leading-minds-in-online-creation-for-2024/"><u>Leading Minds in Online Creation for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Advances in Syma X8C Flight Autonomy"
-date: 2024-06-25 10:49:40
-updated: 2024-06-26 10:31:47
+date: 2024-06-25T19:21:21.998Z
+updated: 2024-06-26T19:21:21.998Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/cd939fa7a6d55f7872fb793de3dd6a0a1cf42f10f
 
 ## Advances in Syma X8C Flight Autonomy
 
-# Syma X8C Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Syma X8C Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -69,9 +67,7 @@ thumbnail: https://thmb.techidaily.com/cd939fa7a6d55f7872fb793de3dd6a0a1cf42f10f
 | Charging Time        | 200 Minutes            | Control Distance        | 100 meter approx.                                     |
 | Transmitter Power    | 4 x 1.5 V AA Batteries | Camera                  | 2 MP                                                  |
 
-#### 2\.  Design
-
-![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+#### 2\.  Design ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -85,15 +81,11 @@ thumbnail: https://thmb.techidaily.com/cd939fa7a6d55f7872fb793de3dd6a0a1cf42f10f
 
  With the headless mode, Syma X8C appears similar to X5C design with little bigger structure. This drone unit is extremely stable with easy to fly options that appear much easier to beginners too. The best part is that this drone responds perfectly to transmitter with very small delay. The performance is much better as compared to many models of this price range. If we talk about the wind stability then larger size and heavier design make this drone much stable. It will rarely face an undesired flip due to unfavourable weather conditions so you need not to struggle more to keep it tuned to its normal position. Those who want a drone for aerial photography will also e able to take advantage from Syma X8C design.
 
-#### 5\.  Controller/Transmitter
-
-![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
+#### 5\.  Controller/Transmitter ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
-#### 6\.  Camera
-
-![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+#### 6\.  Camera ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -125,3 +117,26 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-premier-perks-for-your-gopro-camera/"><u>[Updated] Premier Perks for Your GoPro Camera</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/a-complete-course-on-managing-and-editing-srt-on-mac-for-2024/"><u>A Complete Course on Managing and Editing SRT on Mac for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-professional-visual-narratives-with-lut-usage-in-premiere/"><u>[Updated] Crafting Professional Visual Narratives with LUT Usage in Premiere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-efficient-windows-file-review-methods/"><u>In 2024, Efficient Windows File Review Methods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-guide-for-srt-format-conversions-for-2024/"><u>Comprehensive Guide for SRT Format Conversions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-best-ai-naming-assistants-for-podcast-innovation/"><u>The Best AI Naming Assistants for Podcast Innovation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximizing-color-grading-efficiency-with-obs-and-lut-techniques-for-2024/"><u>[New] Maximizing Color Grading Efficiency with OBS and LUT Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-professional-audio-techniques-in-audacity/"><u>[Updated] In 2024, Professional Audio Techniques in Audacity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-strategic-lines-for-striking-iphone-photography-for-2024/"><u>[New] Strategic Lines for Striking iPhone Photography for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oppo-reno-8t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/quizzical-quests-top-trivia-video-platforms/"><u>Quizzical Quests  Top Trivia Video Platforms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-explore-the-power-of-repeated-imagery-in-your-instagram-content-for-2024/"><u>[New] Explore the Power of Repeated Imagery in Your Instagram Content for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transforming-your-facebook-history-a-look-back-video-guide/"><u>[New] Transforming Your Facebook History  A Look Back Video Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-15-plus-apples-new-iphone-by-drfone-ios/"><u>How to Unlock iPhone 15 Plus, Apples New iPhone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-seamless-search-for-your-youtube-comments-across-platforms/"><u>In 2024, Seamless Search for Your YouTube Comments Across Platforms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-tecno-spark-10-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Tecno Spark 10 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-the-comprerancial-guide-to-top-webinars/"><u>In 2024, The Comprerancial Guide to Top Webinars</u></a></li>
+</ul></div>

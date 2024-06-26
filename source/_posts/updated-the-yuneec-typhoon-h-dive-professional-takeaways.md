@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Yuneec Typhoon H Dive  Professional Takeaways\""
-date: 2024-06-23 19:56:50
-updated: 2024-06-24 11:10:58
+date: 2024-06-25T19:27:41.693Z
+updated: 2024-06-26T19:27:41.693Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285d
 
 ## The Yuneec Typhoon H Dive: Professional Takeaways
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285d
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unveiling-the-mystery-writing-hooks-for-vlogger-scripts/"><u>In 2024, Unveiling the Mystery  Writing Hooks for Vlogger Scripts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/vision-and-flavor-shooting-the-best-food-videos-for-2024/"><u>Vision and Flavor  Shooting the Best Food Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ringsong-blueprint-guide-for-turning-tamil-tracks-into-notifications/"><u>[Updated] RingSong Blueprint  Guide for Turning Tamil Tracks Into Notifications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-find-your-perfect-match-gear-vr-compatible-phones-2023/"><u>[New] In 2024, Find Your Perfect Match  Gear VR-Compatible Phones 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-a-deep-dive-into-metaverse-gear-top-8-recommendations/"><u>In 2024, A Deep Dive Into Metaverse Gear  Top 8 Recommendations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-quick-camouflage-blurring-faces-on-demand/"><u>[Updated] In 2024, Quick Camouflage  Blurring Faces on Demand</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-unmarked-manual-for-instagrams-livestream-privacy/"><u>[New] The Unmarked Manual for Instagram's Livestream Privacy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pinnacle-ai-editor-with-advanced-features/"><u>[Updated] 2024 Approved  Pinnacle AI Editor with Advanced Features</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-cut-to-perfection-producing-captivating-loop-content-for-instagram-for-2024/"><u>[Updated] Cut to Perfection  Producing Captivating Loop Content for Instagram for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-leading-edge-in-creating-stunning-facebook-cover-photos-top-11-sites-reviewed/"><u>[New] The Leading Edge in Creating Stunning Facebook Cover Photos - Top 11 Sites Reviewed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-xcover-6-pro-tactical-edition-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy XCover 6 Pro Tactical Edition Phone that is Locked?</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-infinix-note-30-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Infinix Note 30</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-the-ultimate-blueprint-for-earning-money-on-tiktok-8-strategies/"><u>2024 Approved  The Ultimate Blueprint for Earning Money on TikTok (8 Strategies)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-civi-3-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Civi 3 Pattern Lock Screen</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/feast-on-these-15-viral-tiktok-dishes-your-next-kitchen-experiment-awaits/"><u>Feast on These 15 Viral TikTok Dishes – Your Next Kitchen Experiment Awaits</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+</ul></div>

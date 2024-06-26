@@ -1,7 +1,7 @@
 ---
 title: "\"After Effects Textwork Essentials  The 10 Best Presets for 2024\""
-date: 2024-06-21 22:33:42
-updated: 2024-06-24 10:37:17
+date: 2024-06-25T19:45:40.813Z
+updated: 2024-06-26T19:45:40.813Z
 tags: 
   - screen-recording
   - ai video
@@ -120,9 +120,9 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
@@ -144,9 +144,9 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 * [Part 3\. Alternative Way to Create Text Effects for Video](#part3)
 
@@ -234,9 +234,9 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
@@ -258,9 +258,9 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -283,3 +283,26 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-iphone-hdr-photo-guidebook/"><u>[Updated] Ultimate iPhone HDR Photo Guidebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-gliding-giants-olympic-skate-tales/"><u>[New] In 2024, Gliding Giants  Olympic Skate Tales</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-flight-to-imagery-a-review-of-dji-sparks-miniature-drone-innovation-for-2024/"><u>[Updated] Flight to Imagery  A Review of DJI Spark's Miniature Drone Innovation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-simplified-guide-to-stories-mechanics/"><u>[Updated] 2024 Approved  Simplified Guide to Stories' Mechanics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/project-pics-blend-outside-focus-with-radial-filters-psx/"><u>Project Pics  Blend Outside Focus with Radial Filters PSX</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-masterclass-leveraging-retro-vhs-flares-and-shadows/"><u>2024 Approved  Masterclass  Leveraging Retro VHS Flares & Shadows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-30-video-concepts-for-engaging-audiences/"><u>2024 Approved  Top 30 Video Concepts for Engaging Audiences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-set-up-your-windows-xp-professional-videography-tool/"><u>2024 Approved  Set Up Your Windows XP Professional Videography Tool</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-altitude-with-djis-new-gadget-for-2024/"><u>Mastering Altitude with DJI's New Gadget for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-lava-yuva-3-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Lava Yuva 3 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-platform-showdown-podcast-vs-youtube-for-2024/"><u>The Ultimate Platform Showdown  Podcast vs YouTube for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-prime-selection-of-invisible-android-recorders-for-2024/"><u>[Updated] Prime Selection of Invisible Android Recorders for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-accessing-the-elite-step-by-step-guide-to-getting-disconitro/"><u>[Updated] 2024 Approved  Accessing the Elite  Step-by-Step Guide to Getting DiscoNitro</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-vivo-y55s-5g-2023-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Vivo Y55s 5G (2023) FRP Bypass</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-recipes-that-resonate-best-practices-for-eating-themed-titles/"><u>2024 Approved  Recipes That Resonate  Best Practices for Eating-Themed Titles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-spot-fake-followers-on-facebook-for-marketers-for-2024/"><u>How to Spot Fake Followers on Facebook for Marketers for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-cannot-paste-the-data-error-in-microsoft-excel-2019-by-stellar-guide/"><u>Fix Cannot Paste the Data Error in Microsoft Excel 2019</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-superior-selection-best-windows-videophone-apps-guide/"><u>[New] In 2024, Superior Selection  Best Windows Videophone Apps Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-pixel-paradise-100plus-game-havens-explored/"><u>In 2024, Pixel Paradise  100+ Game Havens Explored</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Sky-High Insights  Comprehensive Phantom 4 Breakdown\""
-date: 2024-06-23 20:24:16
-updated: 2024-06-24 10:57:53
+date: 2024-06-25T19:31:36.507Z
+updated: 2024-06-26T19:31:36.507Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 
 ## Sky-High Insights: Comprehensive Phantom 4 Breakdown
 
-# DJI Phantom 4 Complete Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -73,9 +71,7 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -95,9 +91,7 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -129,3 +123,22 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-embracing-4k-clarity-the-q500-journey-reviewed/"><u>[New] In 2024, Embracing 4K Clarity  The Q500 Journey Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pleasurable-stream-capture-evaluation/"><u>2024 Approved  Pleasurable Stream Capture Evaluation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-humor-hatchery-picture-mixer/"><u>[Updated] 2024 Approved  Humor Hatchery  Picture Mixer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-design-dynamics-the-key-to-unique-podcast-brands/"><u>In 2024, Design Dynamics  The Key to Unique Podcast Brands</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-4k-clarity-unleashed-an-intense-study-on-the-31mu97-b-monitor/"><u>[New] 2024 Approved  4K Clarity Unleashed - An Intense Study on the 31MU97-B Monitor</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-opt-out-of-autoplayed-podcast-selection-by-spotify-for-2024/"><u>[Updated] Opt-Out of Autoplayed Podcast Selection by Spotify for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-transforming-education-with-instructional-videos/"><u>[New] 2024 Approved  Transforming Education with Instructional Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comparing-digital-dimensions-metaverse-and-multiverse/"><u>Comparing Digital Dimensions  Metaverse & Multiverse</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/real-time-recording-tech-that-never-delays-you/"><u>Real-Time Recording Tech That Never Delays You</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715860562549-updated-employing-in-device-recording-for-screen-capture-across-huaweis-mate-and-p-series/"><u>[Updated] Employing In-Device Recording for Screen Capture Across Huawei’s Mate and P Series.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-clarity-fix-black-screens-on-youtube/"><u>Unlocking Clarity  Fix Black Screens on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transforming-srt-to-widely-used-digital-audio-formats-with-ease/"><u>[New] Transforming SRT to Widely Used Digital Audio Formats with Ease</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-epic-tiktok-gamers-top-10-influencers-for-2024/"><u>[Updated] Epic TikTok Gamers  Top 10 Influencers for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/journey-through-simulated-realities-vr-basics/"><u>Journey Through Simulated Realities  VR Basics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Realme C67 4G | Dr.fone</u></a></li>
+</ul></div>

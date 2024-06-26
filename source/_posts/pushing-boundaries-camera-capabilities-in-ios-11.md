@@ -1,7 +1,7 @@
 ---
 title: "\"Pushing Boundaries  Camera Capabilities in iOS 11\""
-date: 2024-06-25 17:32:31
-updated: 2024-06-26 11:10:44
+date: 2024-06-25T18:37:21.081Z
+updated: 2024-06-26T18:37:21.081Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
 ## Pushing Boundaries: Camera Capabilities in iOS 11
 
-# 10 iPhone Camera Features You Should Know in iOS 11
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# 10 iPhone Camera Features You Should Know in iOS 11 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -36,33 +34,25 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
  The quality of your photos is in direct relation to your level of familiarity with the camera's features because the more you know about the camera the better you will be at finding the proper use for those features.
 
-#### 1\. Don't Be Shy to Use the Grid Mode
-
-![](https://images.wondershare.com/filmora/article-images/grid-mode-iphone.jpg)
+#### 1\. Don't Be Shy to Use the Grid Mode ![](https://images.wondershare.com/filmora/article-images/grid-mode-iphone.jpg)
 
  Image resource: Macworld
 
  If you want to improve your photo taking skills, you must start paying attention to picture composition. Fortunately, the iPhone camera app offers the Grid Mode that divides the screen into nine equal parts. The grid will provide assistance in placing the subjects of your photos at the very center of the picture or when learning how to use the rule of thirds, one of the most basic composition techniques in photography.
 
-#### 2\. Set the Focus and Exposure manually
-
-![](https://images.wondershare.com/filmora/article-images/set-focus-iphone.jpg)
+#### 2\. Set the Focus and Exposure manually ![](https://images.wondershare.com/filmora/article-images/set-focus-iphone.jpg)
 
  Image resource: iPhone Photography School
 
  Relying on auto settings will not get you far in the photography world. Even though your iPhone is perfectly capable of setting the exposure or focus automatically, adjusting these values manually will provide you with more control over the process of taking a photo. Choosing where the focal point in your photo will be and finding the perfect exposure by yourself will allow you to highlight the subjects of your pictures and it will enable you to decide how bright or dark your photo is going to be.
 
-#### 3\. HDR Photos Have More Balanced Lightning
-
-![](https://images.wondershare.com/filmora/article-images/turn-on-hdr.jpg)
+#### 3\. HDR Photos Have More Balanced Lightning ![](https://images.wondershare.com/filmora/article-images/turn-on-hdr.jpg)
 
  Image resource: Gadget Bistro Malaysia
 
  Utilizing the HDR or High Dynamic Range feature is yet another effective way to control the exposure of your pictures. When activated, HDR feature will allow your iPhone to combine three different exposures in a single shot, and the result will be a picture that has a higher amount of detail in its shadows and highlights.
 
-#### 4\. Use the Timer to Stabilize Your Shots
-
-![](https://images.wondershare.com/filmora/article-images/use-timer-on-iphone.jpg)
+#### 4\. Use the Timer to Stabilize Your Shots ![](https://images.wondershare.com/filmora/article-images/use-timer-on-iphone.jpg)
 
  iPhone X weighs only 174 grams, which makes it nearly impossible to hold perfectly still. This complicates things even further in difficult light conditions, but the Timer feature on iPhone X can help you solve this problem. You can compose your shot and set the Timer for 3 or 10 seconds and the device will take ten photos in a row, which will enable you to select the sharpest photo and delete the others.
 
@@ -70,17 +60,13 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
  Taking Live Photos hasn't changed at all on the new model of the iPhone, but now you can also edit live photos in pretty much the same way you would edit a still photo. You can turn off the sound, crop or rotate live photos effortlessly, as well as apply filters, adjust color balance or improve lightning on all of your live photos.
 
-#### 6\. QR Codes Detection
-
-![](https://images.wondershare.com/filmora/article-images/qr-detection-iphone.jpg)
+#### 6\. QR Codes Detection ![](https://images.wondershare.com/filmora/article-images/qr-detection-iphone.jpg)
 
  Image resource: 9to5Mac
 
  QR codes are actually quite convenient because they save you the trouble of typing the URL by yourself. The iOS 11 is the first iPhone OS with the ability to read QR codes. All you need to do is open your camera app and point it in the direction of the QR code you want to view, and your iPhone X will do the rest.
 
-#### 7\. Take Selfies in Portrait Mode - Only for iPhone X
-
-![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
+#### 7\. Take Selfies in Portrait Mode - Only for iPhone X ![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
 
  Image resource: Tom's Guide
 
@@ -90,15 +76,11 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
  The rear camera on iPhone X is capable of capturing 4K videos at 30 or at 60 fps, and you can also use it to record slow-motion 1080p videos at 120 or at 240 fps. These features are a significant step up from the previous iPhone model both in terms of video image quality and in terms of possibilities they provide to iPhone X owners.
 
-#### 9\. Dual Optical Image Stabilization Lets you Take Better Photos - iPhone X/8
-
-![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
+#### 9\. Dual Optical Image Stabilization Lets you Take Better Photos - iPhone X/8 ![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
 
  Keeping the moving objects in focus is a major concern regardless of the camera you are using. We were excited about the [dual camera feature in iPhone 7](https://tools.techidaily.com/wondershare/filmora/download/), now the Dual Optical Image Stabilization feature in iOS 11 reduces motion blur and it also decreases the impact the camera shakes have on your photos. iPhone 8's Optical Image Stabilization has been improved on iPhone X and it works alongside the image sensor to ensure that all pictures taken with this device are razor sharp.
 
-#### 10\. Portrait Lighting Lets You Adjust Light to Best Fit Your Subject - iPhone X/8
-
-![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
+#### 10\. Portrait Lighting Lets You Adjust Light to Best Fit Your Subject - iPhone X/8 ![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
 
  iPhone 8 Plus and iPhone X offer a new feature, specifically designed to let you find the perfect lighting for the subject of your photos. This feature doesn't work like a filter, but rather like a real-time light meter, that calculates the optimum light values on the face of the person or persons depicted in a photo.
 
@@ -132,3 +114,22 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-a-visual-extravaganza-detailed-examination-of-lg-ud88-uhd-tv/"><u>[New] A Visual Extravaganza  Detailed Examination of LG UD88-UHD TV</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transform-your-snapchat-storytelling-learn-to-zoom-like-pros-for-2024/"><u>[Updated] Transform Your Snapchat Storytelling  Learn to Zoom Like Pros for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-next-gen-gpus-for-crystal-clear-4k/"><u>[Updated] 2024 Approved  Next-Gen GPUs for Crystal Clear 4K</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-tech-gems-best-desktops-revealed/"><u>[New] In 2024, Ultimate Tech Gems - Best Desktops Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-beyond-hd-an-in-depth-analysis-of-eizos-cg318-4k/"><u>[New] In 2024, Beyond HD  An In-Depth Analysis of EIZO's CG318-4K</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-premier-virtual-seminar-title-craftsman/"><u>[Updated] 2024 Approved  Premier Virtual Seminar TITLE CRAFTSMAN</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-untethered-art-top-public-domain-gems-for-2024/"><u>[Updated] Unraveling Untethered Art  Top Public Domain Gems for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/chorus-questers-a-comprehensive-search-engine-for-todays-popular-music-hits-for-2024/"><u>Chorus Questers A Comprehensive Search Engine for Todays Popular Music Hits for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-realme-v30t-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-your-gaming-auditory-experience-with-this-best-free-app-valorant-edition/"><u>[New] Master Your Gaming Auditory Experience with This Best Free App – Valorant Edition</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-samsung-galaxy-a23-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Samsung Galaxy A23 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-motorola-edge-40-by-drfone-android/"><u>Three Ways to Sim Unlock Motorola Edge 40</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-art-of-audio-finesse-advanced-editing-strategies-for-podcasters/"><u>[Updated] The Art of Audio Finesse  Advanced Editing Strategies for Podcasters</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-strategies-for-successful-mukbang-production/"><u>[Updated] In 2024, Essential Strategies for Successful Mukbang Production</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Inside Out  A Thorough Examination of DJI Phantom 4\""
-date: 2024-06-23 20:21:18
-updated: 2024-06-25 10:52:19
+date: 2024-06-25T18:58:33.914Z
+updated: 2024-06-26T18:58:33.914Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b
 
 ## Inside Out: A Thorough Examination of DJI Phantom 4
 
-# DJI Phantom 4 Complete Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -73,9 +71,7 @@ thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -95,9 +91,7 @@ thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -129,3 +123,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-expertly-assembled-windows-edition-tools-guide-for-2024/"><u>[Updated] Expertly Assembled Windows Edition Tools Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-obscurity-to-elite-nine-keys-to-dominating-instagram-for-2024/"><u>[New] From Obscurity to Elite  Nine Keys to Dominating Instagram for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/easy-steps-for-srt-files-into-xml-ssa-ttml-for-2024/"><u>Easy Steps for SRT Files Into XML, SSA, TTML for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/voice-memo-basics-your-complete-guide-to-audio-recording/"><u>Voice Memo Basics  Your Complete Guide to Audio Recording</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-downloading-youtube-subtitled-content-in-3-ways/"><u>[Updated] 2024 Approved  Downloading YouTube Subtitled Content in 3 Ways</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-zoom-on-windows-10-a-step-by-step-guide-for-2024/"><u>[New] Mastering Zoom on Windows 10  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-culinary-craftsmanship-mastering-the-art-of-food-filmmaking-with-these-7-strategies/"><u>[Updated] Culinary Craftsmanship  Mastering the Art of Food Filmmaking with These 7 Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/riding-secure-the-creme-de-la-cam-selection-for-motorcyclists-for-2024/"><u>Riding Secure - The Crème De La Cam Selection for Motorcyclists for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-enhancing-vision-10-superb-text-methods-for-media/"><u>[Updated] 2024 Approved  Enhancing Vision  10 Superb Text Methods for Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-optimal-room-decorations-for-livestreams/"><u>[Updated] In 2024, Optimal Room Decorations for Livestreams</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-elevate-your-whatsapp-status-top-creative-apps-revealed/"><u>In 2024, Elevate Your WhatsApp Status Top Creative Apps Revealed</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-captivating-audiences-a-guide-to-making-haul-media/"><u>In 2024, Captivating Audiences  A Guide to Making Haul Media</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-step-up-to-stardom-10-pro-tips-for-pixlr-excellence-for-2024/"><u>[New] Step up to Stardom  10 Pro Tips for Pixlr Excellence for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-a-guide-to-motion-tracking-using-the-best-video-editors/"><u>Updated A Guide To Motion Tracking Using The Best Video Editors</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-three-methods-for-capturing-ps4-gaming-moments/"><u>[New] Three Methods for Capturing PS4 Gaming Moments</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/vignette-magic-the-best-free-and-paid-apps-for-iphone-and-android-for-2024/"><u>Vignette Magic The Best Free and Paid Apps for iPhone and Android for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-ultimate-relaxation-top-10-mobile-idle-games-for-2024/"><u>[New] Ultimate Relaxation  Top 10 Mobile Idle Games for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comprehensive-step-by-step-srt-mp4-enhancement/"><u>[New] Comprehensive Step-by-Step SRT MP4 Enhancement</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/fundamentals-of-writing-captivating-videography-scripts/"><u>Fundamentals of Writing Captivating Videography Scripts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-the-ultimate-crops-and-cultivation-compilation/"><u>2024 Approved  The Ultimate Crops & Cultivation Compilation</u></a></li>
+</ul></div>

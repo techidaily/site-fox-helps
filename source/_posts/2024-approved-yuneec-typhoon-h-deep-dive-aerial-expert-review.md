@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Yuneec Typhoon H Deep Dive  Aerial Expert Review\""
-date: 2024-06-22 11:22:50
-updated: 2024-06-23 10:51:47
+date: 2024-06-25T19:37:08.861Z
+updated: 2024-06-26T19:37:08.861Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 ## Yuneec Typhoon H Deep Dive: Aerial Expert Review
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,26 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-vsco-editing-techniques-summary/"><u>[New] 2024 Approved  Essential VSCO Editing Techniques Summary</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-in-depth-look-at-wirecast-plus-comparables/"><u>[Updated] 2024 Approved  In-Depth Look at WireCast + Comparables</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-the-art-of-screen-enhancement-in-teams/"><u>[New] Mastering the Art of Screen Enhancement in Teams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-telegrams-launchpad-for-aspiring-advertisers-a-starters-handbook/"><u>[Updated] Telegram's Launchpad for Aspiring Advertisers  A Starter's Handbook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/smoothly-blending-scenes-with-premieres-transitions/"><u>Smoothly Blending Scenes with Premiere's Transitions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-your-pathway-to-stunning-timelapses-using-gopro-hero5-black/"><u>2024 Approved  Your Pathway to Stunning Timelapses Using GoPro Hero5 Black</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-exploring-nature-garmin-virb-ultra-30-cam-review/"><u>[Updated] Exploring Nature  Garmin VIRB Ultra 30 Cam Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exploring-the-spectrum-a-creatives-resource/"><u>[New] Exploring the Spectrum  A Creative's Resource</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-quick-and-easy-the-top-ten-for-youtube-mpeg-transformation-for-2024/"><u>[New] Quick and Easy  The Top Ten for YouTube MPEG Transformation for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-rotate-and-share-with-ease-enhancing-instagram-videos-on-all-devices-for-2024/"><u>[Updated] Rotate & Share with Ease  Enhancing Instagram Videos on All Devices for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-premiere-pro-fullscreen-mode-essentials/"><u>In 2024, Mastering Premiere Pro  Fullscreen Mode Essentials</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-behind-closed-doors-of-youtube-a-discovery-manual/"><u>[Updated] 2024 Approved  Behind Closed Doors of YouTube  A Discovery Manual</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-stop-motion-mastery-top-10-software-for-mac-and-pc-users-for-2024/"><u>New Stop Motion Mastery Top 10 Software for Mac and PC Users for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-xiaomi-mix-fold-3-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Xiaomi Mix Fold 3 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-cutting-edge-strategies-for-instagram-video-cropping/"><u>[New] 2024 Approved  Cutting-Edge Strategies for Instagram Video Cropping</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-step-by-step-guide-to-personalize-and-change-video-covers-on-facebook-for-2024/"><u>[New] Step-by-Step Guide to Personalize and Change Video Covers on Facebook for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-construct-a-homemade-google-vr-helmet-for-cost-effective-fun/"><u>[New] Construct a Homemade Google VR Helmet for Cost-Effective Fun</u></a></li>
+</ul></div>

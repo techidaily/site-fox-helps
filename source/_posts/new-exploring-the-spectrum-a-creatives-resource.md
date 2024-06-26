@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Exploring the Spectrum  A Creative's Resource\""
-date: 2024-06-22 12:54:24
-updated: 2024-06-24 12:17:30
+date: 2024-06-25T19:00:38.305Z
+updated: 2024-06-26T19:00:38.305Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,7 @@ There are many color wheels out there and all require understanding and research
 
 ## The Color Wheel
 
-Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
-
-![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
+Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
@@ -68,11 +66,11 @@ As you can see from all the movie covers above, they all use complementary color
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,3 +93,27 @@ By including this into your thought process when creating videos with [Filmora](
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-next-gen-cuts-select-best-6-video-editing-apps-for-mac-big-sur/"><u>[Updated] In 2024, Next-Gen Cuts  Select Best 6 Video Editing Apps for Mac Big Sur</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevate-collaborative-workflow-enhancing-zoom-use-in-gmail-mail/"><u>[New] In 2024, Elevate Collaborative Workflow  Enhancing Zoom Use in Gmail Mail</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unleashing-the-best-video-footage-with-gopro/"><u>In 2024, Unleashing the Best Video Footage with GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-master-the-art-of-attraction-8-proven-techniques-for-reel-success/"><u>[New] In 2024, Master the Art of Attraction  8 Proven Techniques for Reel Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/gopro-hero4-vs-drift-ghost-ultimate-performance-showdown-for-2024/"><u>GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-mobile-solutions-to-sharpen-dji-drone-shoots/"><u>[New] In 2024, Ultimate Mobile Solutions to Sharpen DJi Drone Shoots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-embrace-new-dimensions-step-by-step-on-your-vr-journey-for-2024/"><u>[Updated] Embrace New Dimensions  Step-by-Step on Your VR Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-manual-to-creating-engaging-ae-heads-ups/"><u>[New] In 2024, The Ultimate Manual to Creating Engaging AE Heads-Ups</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximize-zooms-value-triad-of-conversion-mastery/"><u>[New] Maximize Zoom's Value  Triad of Conversion Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-z2-advantage-an-intelligent-mobile-assessment/"><u>[Updated] Z2 Advantage  An Intelligent Mobile Assessment</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-guide-to-swift-periscope-broadcasting/"><u>The Ultimate Guide to Swift Periscope Broadcasting</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/exclusive-list-of-the-premier-mac-screenshots-tools-for-2024/"><u>Exclusive List of the Premier Mac Screenshots Tools for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-simplifying-onestream-techniques-for-effective-streaming/"><u>[Updated] Simplifying OneStream Techniques for Effective Streaming</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-expert-methods-for-win10-game-screen-recording/"><u>[Updated] Expert Methods for Win10 Game Screen Recording</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-6s-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix iPhone 6s Unavailable Issue With Ease</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/conquer-profits-on-the-go-youtube-studio-monetization-explained/"><u>Conquer Profits On-the-Go  YouTube Studio Monetization Explained</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-secrets-unlocked-elevating-your-facetime-filming-game-for-2024/"><u>[New] Secrets Unlocked  Elevating Your Facetime Filming Game for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-tools-for-mobile-movie-making/"><u>Essential Tools for Mobile Movie Making</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-vivo-y200-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Vivo Y200 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prime-low-cost-full-hd-cameras-for-stunts/"><u>Prime Low-Cost Full HD Cameras for Stunts</u></a></li>
+</ul></div>

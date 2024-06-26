@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Film Flair in Frame-Up  Smart Setup Tips for Stellar Videos\""
-date: 2024-06-23 12:43:17
-updated: 2024-06-25 12:43:24
+date: 2024-06-25T18:53:01.235Z
+updated: 2024-06-26T18:53:01.235Z
 tags: 
   - screen-recording
   - ai video
@@ -44,21 +44,15 @@ A Fresnel lens is an optional attachment that can bounce the light off of the ce
 
 For this tutorial, we will use the Three-Point Lighting technique:
 
-##### Step1 Set the Key Light
-
-![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+##### Step1 Set the Key Light ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
-##### Step2 Set the Fill Light
-
-![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+##### Step2 Set the Fill Light ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
-##### Step3 Set the Backlight
-
-![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+##### Step3 Set the Backlight ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -123,3 +117,26 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-discovering-easy-music-arrangement-in-magix-maker-for-2024/"><u>[Updated] Discovering Easy Music Arrangement in Magix Maker for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-elevate-your-ar-creations-with-downloadable-color-lookup-tables/"><u>[Updated] Elevate Your AR Creations with Downloadable Color Lookup Tables</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-next-gen-patient-rehabilitation-tools/"><u>[New] In 2024, Next-Gen Patient Rehabilitation Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-conquering-camera-quality-with-size-tweaks-on-iphone/"><u>[New] 2024 Approved  Conquering Camera Quality with Size Tweaks on iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-harnessing-the-lens-masterful-techniques-to-enhance-iphone-images/"><u>[New] 2024 Approved  Harnessing the Lens  Masterful Techniques to Enhance iPhone Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-4k-videography-with-prime-optics-for-2024/"><u>[Updated] Mastering the Art of 4K Videography with Prime Optics for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-redefining-mobile-gaming-mastery-an-examination-of-kinemaster/"><u>[Updated] 2024 Approved  Redefining Mobile Gaming Mastery  An Examination of KineMaster</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-safety-features-evaluated-in-syma-x8c-for-2024/"><u>[New] Safety Features Evaluated in Syma X8C for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-free-video-player-face-off-vlc-versus-mpc/"><u>[New] In 2024, Free Video Player Face-Off  VLC Versus MPC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unleash-the-power-of-stories-free-online-and-mobile-solutions/"><u>[Updated] In 2024, Unleash the Power of Stories – Free, Online & Mobile Solutions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-historical-insights-the-most-relevant-youtube-channels-for-learners/"><u>[Updated] 2024 Approved  Historical Insights - The Most Relevant YouTube Channels for Learners</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-charting-outstanding-tiktok-talent-across-borders/"><u>2024 Approved  Charting Outstanding TikTok Talent Across Borders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-launching-into-the-spotlight-instagram-lives/"><u>[New] Launching Into the Spotlight  Instagram Lives</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-free-tools-for-converting-youtube-videos/"><u>2024 Approved  Best Free Tools for Converting YouTube Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/update-your-hardware-drivers-with-device-manager-in-windows-11107-by-drivereasy-guide/"><u>Update your hardware drivers with Device Manager in Windows 11/10/7</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-connect-through-the-cosmos-posting-panoramic-pictures-via-mobile-apps/"><u>[New] In 2024, Connect Through the Cosmos  Posting Panoramic Pictures via Mobile Apps</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-groundbreaking-insights-into-asmr-recordings/"><u>In 2024, Groundbreaking Insights Into ASMR Recordings</u></a></li>
+</ul></div>

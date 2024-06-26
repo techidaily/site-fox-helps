@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Upholders of Popularity  The 10 Most Loved Reddit Stories\""
-date: 2024-06-23 23:47:44
-updated: 2024-06-25 11:41:51
+date: 2024-06-25T18:44:29.984Z
+updated: 2024-06-26T18:44:29.984Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ Here they are!
 
 ## 10 Most Upvoted Reddit Posts of All Time
 
-### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
+### 1\. The Senate (/r/movies)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
 
@@ -55,7 +55,7 @@ Its purpose is quite ironic. The point was to make this image of Chancellor Palp
 
 Sadly, the attempt failed but still received a lot of attention.
 
-### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
+### 2\. $GME GO BRRR (r/wallstreetbets)
 
 This post currently has 469k votes with a stunning 99% Upvote rate. It’s now the most upvoted Reddit post in this list.
 
@@ -63,15 +63,15 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
-### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
+### 3\. Rick Astley Rides a Bike (r/pics)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
 
-Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
+Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as [/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
-### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
+### 4\. NYC Taxi Drivers Calendar (/r/funny)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
 
@@ -81,7 +81,7 @@ The image depicts the New York spirit as an excited cab driver shows off his cab
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
 
-### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
+### 5\. Showing a Game You Mastered to Someone You Care About (/r/gaming)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
 
@@ -93,7 +93,7 @@ The image shows an experienced gamer who spent countless hours beating a game, t
 
 You understand the pain if you've gone through something like this.
 
-### 6\. [All News Anchors Say the Same Thing(/r/videos)](https://www.reddit.com/r/videos/comments/88ll08/this%5Fis%5Fwhat%5Fhappens%5Fwhen%5Fone%5Fcompany%5Fowns%5Fdozens/)
+### 6\. All News Anchors Say the Same Thing(/r/videos)
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
@@ -103,7 +103,7 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 
 97% of these 293k users upvoted and agreed that all news anchors say the same thing.
 
-### 7\. [Thirsty Frog Takes a Bath (r/aww)](https://www.reddit.com/r/aww/comments/90bu6w/heat%5Findex%5Fwas%5F110%5Fdegrees%5Fso%5Fwe%5Foffered%5Fhim%5Fa/)
+### 7\. Thirsty Frog Takes a Bath (r/aww)
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
@@ -113,7 +113,7 @@ Like this frog, for example. 99% out of the 313k voters on this post upvoted and
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
 
-### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
+### 8\. Battle for Net Neutrality (/r/books)
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
@@ -121,7 +121,7 @@ This is another most upvoted Reddit post that encouraged over 180k users to join
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
 
-### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
+### 9\. Deangelo Juggles Balls for Real(/r/DunderMifflin)
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
 
@@ -131,7 +131,7 @@ Well, a Reddit user made an edit of this clip and now it looks as if Will juggle
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
 
-### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
+### 10\. Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
 
@@ -161,7 +161,7 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 10 Most Upvoted Reddit Posts of All Time
 
-### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
+### 1\. The Senate (/r/movies)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
 
@@ -175,7 +175,7 @@ Its purpose is quite ironic. The point was to make this image of Chancellor Palp
 
 Sadly, the attempt failed but still received a lot of attention.
 
-### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
+### 2\. $GME GO BRRR (r/wallstreetbets)
 
 This post currently has 469k votes with a stunning 99% Upvote rate. It’s now the most upvoted Reddit post in this list.
 
@@ -183,15 +183,15 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
-### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
+### 3\. Rick Astley Rides a Bike (r/pics)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
 
-Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
+Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as [/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
-### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
+### 4\. NYC Taxi Drivers Calendar (/r/funny)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
 
@@ -201,7 +201,7 @@ The image depicts the New York spirit as an excited cab driver shows off his cab
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
 
-### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
+### 5\. Showing a Game You Mastered to Someone You Care About (/r/gaming)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
 
@@ -213,7 +213,7 @@ The image shows an experienced gamer who spent countless hours beating a game, t
 
 You understand the pain if you've gone through something like this.
 
-### 6\. [All News Anchors Say the Same Thing(/r/videos)](https://www.reddit.com/r/videos/comments/88ll08/this%5Fis%5Fwhat%5Fhappens%5Fwhen%5Fone%5Fcompany%5Fowns%5Fdozens/)
+### 6\. All News Anchors Say the Same Thing(/r/videos)
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
@@ -223,7 +223,7 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 
 97% of these 293k users upvoted and agreed that all news anchors say the same thing.
 
-### 7\. [Thirsty Frog Takes a Bath (r/aww)](https://www.reddit.com/r/aww/comments/90bu6w/heat%5Findex%5Fwas%5F110%5Fdegrees%5Fso%5Fwe%5Foffered%5Fhim%5Fa/)
+### 7\. Thirsty Frog Takes a Bath (r/aww)
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
@@ -233,7 +233,7 @@ Like this frog, for example. 99% out of the 313k voters on this post upvoted and
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
 
-### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
+### 8\. Battle for Net Neutrality (/r/books)
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
@@ -241,7 +241,7 @@ This is another most upvoted Reddit post that encouraged over 180k users to join
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
 
-### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
+### 9\. Deangelo Juggles Balls for Real(/r/DunderMifflin)
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
 
@@ -251,7 +251,7 @@ Well, a Reddit user made an edit of this clip and now it looks as if Will juggle
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
 
-### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
+### 10\. Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
 
@@ -300,3 +300,23 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-rgb-vs-srgb-color-representations-compared/"><u>[Updated] In 2024, RGB vs Srgb  Color Representations Compared</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expert-tips-for-altering-and-personalizing-iphone-ringtones/"><u>[Updated] Expert Tips for Altering & Personalizing iPhone Ringtones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-digital-dimensions-metaverse-and-multiverse/"><u>2024 Approved  Navigating Digital Dimensions  Metaverse and Multiverse</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-revealing-successful-markets-for-2024/"><u>[Updated] Revealing Successful Markets for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-guide-to-picture-text-enhancement/"><u>[New] In 2024, The Ultimate Guide to Picture Text Enhancement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unlocking-the-full-potential-of-youtube-video-interactions/"><u>[Updated] In 2024, Unlocking the Full Potential of YouTube Video Interactions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/economical-dslrs-and-camcorders-4k-edition-for-2024/"><u>Economical DSLRs & Camcorders, 4K Edition for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-anime-youtube-channels-for-daily-happiness/"><u>Essential Anime Youtube Channels for Daily Happiness</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-clearing-up-distorted-web-media-playback/"><u>[Updated] Clearing Up Distorted Web Media Playback</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-aps-guide-to-crafting-exquisite-hdr-photos-for-2024/"><u>Step-by-Step APS Guide to Crafting Exquisite HDR Photos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-altering-mac-screenshot-format-on-the-fly/"><u>[New] Altering Mac Screenshot Format on the Fly</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/get-windows-movie-maker-a-step-by-step-download-guide-for-2024/"><u>Get Windows Movie Maker A Step-by-Step Download Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-influence-unleashed-5-crucial-steps-to-thriving-on-instagram-marketing/"><u>[Updated] Influence Unleashed  5 Crucial Steps to Thriving on Instagram Marketing</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-tranquility-tools-suite-comprehensive-noise-reduction-app-for-smooth-backgrounds-on-android-and-iphone/"><u>New Tranquility Tools Suite Comprehensive Noise Reduction App for Smooth Backgrounds on Android and iPhone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-navigating-the-complexities-of-health-marketing-on-fb-for-2024/"><u>[Updated] Navigating the Complexities of Health Marketing on FB for 2024</u></a></li>
+</ul></div>

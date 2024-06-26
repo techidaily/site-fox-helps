@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Fostering Fun with Metaverse Satirical Artifacts"
-date: 2024-06-20 21:15:51
-updated: 2024-06-23 12:51:44
+date: 2024-06-25T19:29:11.169Z
+updated: 2024-06-26T19:29:11.169Z
 tags: 
   - screen-recording
   - ai video
@@ -50,123 +50,83 @@ Facebook's Mark Zuckerberg declared the web-based media was rebranding and had a
 
 Note: the following memes are all from the internet.
 
-### 1. Metaverse Meme 1
-
-![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
+### 1. Metaverse Meme 1 ![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
 
 When Mark Zuckerberg announced the name change, people thought it was for escaping from selling user data. Later, they realized it was all for the VR metadata project.
 
-### 2. Marvel Multiverse
-
-![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
+### 2. Marvel Multiverse ![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
 
 MCM will not be about the Universe; it will be all about the Metaverse. The new Universe is created by digital technology.
 
-### 3. Facebook Metaverse Meme
-
-![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
+### 3. Facebook Metaverse Meme ![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
 
 Some say Mark Zuckerberg changed the name to Meta to avoid Facebook's problem by selling user data and violating privacy laws. And to make people forget about the issues Facebook has created.
 
-### 4. Meta Memes
-
-![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
+### 4. Meta Memes ![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
 
 This scenario must be when the company leaders were planning for a name change and finally decided to be meta the metaverse.
 
-### 5. Facebook Meta
-
-![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
+### 5. Facebook Meta ![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
 
 Facebook became Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 6. Meta Perfection
-
-![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
+### 6. Meta Perfection ![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
 
 This is Mark Zuckerberg creating Meta to be the future of this world with all the VR and AR elements included in the chemical solution.
 
-### 7. Facebook to Meta
-
-![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
+### 7. Facebook to Meta ![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
 
 Meta is the front face of Facebook, where nothing behind the company has changed. It was to hide the problems Facebook has created.
 
-### 8. VR and AR Metaverse
-
-![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
+### 8. VR and AR Metaverse ![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
 
 People were addicted to Facebook by seeing onto the mobile screen, in meta, it will be or VR and AR technologies in which people will be wearing glasses and always into an illusion world.
 
-### 9. Meta Now
-
-![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
+### 9. Meta Now ![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
 
 Facebook has changed its name to Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 10. Future Meta
-
-![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
+### 10. Future Meta ![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
 
 The image shows us teaching the next generation after 10 or 20 years, teaching them it is called Facebook, not Meta.
 
-### 11. Just Exit
-
-![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
+### 11. Just Exit ![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
 
 The Meta says one can be virtually present in any location and log out to leave the office.
 
-### 12. No to Facebook
-
-![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
+### 12. No to Facebook ![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
 
 Say no to Facebook and be ready to welcome Meta to the world with many more technologies.
 
-### 13. Another World
-
-![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
+### 13. Another World ![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
 
 There will say a situation in 2047 where students attend classes through meta. The teacher can punish them by sending them to other worlds.
 
-### 14. Avatar
-
-![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
+### 14. Avatar ![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
 
 Metaverse shows Mark Zuckerberg's avatar introducing himself to the real-life Mark Zuckerberg.
 
-### 15. Virtual Conference
-
-![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
+### 15. Virtual Conference ![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
 
 It's funny when you imagine attending a virtual conference call through metaverse as an avatar. People will not be physically present, but their avatars will.
 
-### 16. Surfing Metaverse
-
-![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
+### 16. Surfing Metaverse ![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
 
 Now we search in google for different places, later in the metaverse, we can experience the places using VR and AR technologies as easy as surfing the Internet.
 
-### 17. Smart Glasses
-
-![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
+### 17. Smart Glasses ![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
 
 Smart Glasses will display images themselves as an illusion in front of any background.
 
-### 18. New Meta
-
-![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
+### 18. New Meta ![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
 
 A meme of Facebook disappearing into the bushes and appearing from the same just with another name Meta
 
-### 19. Meta Medal
-
-![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
+### 19. Meta Medal ![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
 
 A symbolic way of saying both Facebook and Meta are the same, just the logo and the name are changed.
 
-### 20. Mark Power
-
-![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
+### 20. Mark Power ![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
 
 Mark Zuckerberg will be more powerful than ever if the Metaverse succeeds in the world. There cannot be any more technology development as high as this all international companies would experience a downfall.
 
@@ -220,123 +180,83 @@ Facebook's Mark Zuckerberg declared the web-based media was rebranding and had a
 
 Note: the following memes are all from the internet.
 
-### 1. Metaverse Meme 1
-
-![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
+### 1. Metaverse Meme 1 ![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
 
 When Mark Zuckerberg announced the name change, people thought it was for escaping from selling user data. Later, they realized it was all for the VR metadata project.
 
-### 2. Marvel Multiverse
-
-![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
+### 2. Marvel Multiverse ![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
 
 MCM will not be about the Universe; it will be all about the Metaverse. The new Universe is created by digital technology.
 
-### 3. Facebook Metaverse Meme
-
-![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
+### 3. Facebook Metaverse Meme ![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
 
 Some say Mark Zuckerberg changed the name to Meta to avoid Facebook's problem by selling user data and violating privacy laws. And to make people forget about the issues Facebook has created.
 
-### 4. Meta Memes
-
-![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
+### 4. Meta Memes ![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
 
 This scenario must be when the company leaders were planning for a name change and finally decided to be meta the metaverse.
 
-### 5. Facebook Meta
-
-![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
+### 5. Facebook Meta ![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
 
 Facebook became Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 6. Meta Perfection
-
-![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
+### 6. Meta Perfection ![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
 
 This is Mark Zuckerberg creating Meta to be the future of this world with all the VR and AR elements included in the chemical solution.
 
-### 7. Facebook to Meta
-
-![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
+### 7. Facebook to Meta ![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
 
 Meta is the front face of Facebook, where nothing behind the company has changed. It was to hide the problems Facebook has created.
 
-### 8. VR and AR Metaverse
-
-![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
+### 8. VR and AR Metaverse ![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
 
 People were addicted to Facebook by seeing onto the mobile screen, in meta, it will be or VR and AR technologies in which people will be wearing glasses and always into an illusion world.
 
-### 9. Meta Now
-
-![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
+### 9. Meta Now ![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
 
 Facebook has changed its name to Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 10. Future Meta
-
-![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
+### 10. Future Meta ![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
 
 The image shows us teaching the next generation after 10 or 20 years, teaching them it is called Facebook, not Meta.
 
-### 11. Just Exit
-
-![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
+### 11. Just Exit ![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
 
 The Meta says one can be virtually present in any location and log out to leave the office.
 
-### 12. No to Facebook
-
-![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
+### 12. No to Facebook ![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
 
 Say no to Facebook and be ready to welcome Meta to the world with many more technologies.
 
-### 13. Another World
-
-![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
+### 13. Another World ![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
 
 There will say a situation in 2047 where students attend classes through meta. The teacher can punish them by sending them to other worlds.
 
-### 14. Avatar
-
-![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
+### 14. Avatar ![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
 
 Metaverse shows Mark Zuckerberg's avatar introducing himself to the real-life Mark Zuckerberg.
 
-### 15. Virtual Conference
-
-![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
+### 15. Virtual Conference ![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
 
 It's funny when you imagine attending a virtual conference call through metaverse as an avatar. People will not be physically present, but their avatars will.
 
-### 16. Surfing Metaverse
-
-![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
+### 16. Surfing Metaverse ![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
 
 Now we search in google for different places, later in the metaverse, we can experience the places using VR and AR technologies as easy as surfing the Internet.
 
-### 17. Smart Glasses
-
-![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
+### 17. Smart Glasses ![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
 
 Smart Glasses will display images themselves as an illusion in front of any background.
 
-### 18. New Meta
-
-![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
+### 18. New Meta ![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
 
 A meme of Facebook disappearing into the bushes and appearing from the same just with another name Meta
 
-### 19. Meta Medal
-
-![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
+### 19. Meta Medal ![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
 
 A symbolic way of saying both Facebook and Meta are the same, just the logo and the name are changed.
 
-### 20. Mark Power
-
-![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
+### 20. Mark Power ![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
 
 Mark Zuckerberg will be more powerful than ever if the Metaverse succeeds in the world. There cannot be any more technology development as high as this all international companies would experience a downfall.
 
@@ -390,123 +310,83 @@ Facebook's Mark Zuckerberg declared the web-based media was rebranding and had a
 
 Note: the following memes are all from the internet.
 
-### 1. Metaverse Meme 1
-
-![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
+### 1. Metaverse Meme 1 ![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
 
 When Mark Zuckerberg announced the name change, people thought it was for escaping from selling user data. Later, they realized it was all for the VR metadata project.
 
-### 2. Marvel Multiverse
-
-![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
+### 2. Marvel Multiverse ![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
 
 MCM will not be about the Universe; it will be all about the Metaverse. The new Universe is created by digital technology.
 
-### 3. Facebook Metaverse Meme
-
-![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
+### 3. Facebook Metaverse Meme ![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
 
 Some say Mark Zuckerberg changed the name to Meta to avoid Facebook's problem by selling user data and violating privacy laws. And to make people forget about the issues Facebook has created.
 
-### 4. Meta Memes
-
-![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
+### 4. Meta Memes ![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
 
 This scenario must be when the company leaders were planning for a name change and finally decided to be meta the metaverse.
 
-### 5. Facebook Meta
-
-![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
+### 5. Facebook Meta ![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
 
 Facebook became Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 6. Meta Perfection
-
-![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
+### 6. Meta Perfection ![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
 
 This is Mark Zuckerberg creating Meta to be the future of this world with all the VR and AR elements included in the chemical solution.
 
-### 7. Facebook to Meta
-
-![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
+### 7. Facebook to Meta ![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
 
 Meta is the front face of Facebook, where nothing behind the company has changed. It was to hide the problems Facebook has created.
 
-### 8. VR and AR Metaverse
-
-![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
+### 8. VR and AR Metaverse ![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
 
 People were addicted to Facebook by seeing onto the mobile screen, in meta, it will be or VR and AR technologies in which people will be wearing glasses and always into an illusion world.
 
-### 9. Meta Now
-
-![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
+### 9. Meta Now ![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
 
 Facebook has changed its name to Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 10. Future Meta
-
-![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
+### 10. Future Meta ![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
 
 The image shows us teaching the next generation after 10 or 20 years, teaching them it is called Facebook, not Meta.
 
-### 11. Just Exit
-
-![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
+### 11. Just Exit ![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
 
 The Meta says one can be virtually present in any location and log out to leave the office.
 
-### 12. No to Facebook
-
-![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
+### 12. No to Facebook ![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
 
 Say no to Facebook and be ready to welcome Meta to the world with many more technologies.
 
-### 13. Another World
-
-![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
+### 13. Another World ![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
 
 There will say a situation in 2047 where students attend classes through meta. The teacher can punish them by sending them to other worlds.
 
-### 14. Avatar
-
-![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
+### 14. Avatar ![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
 
 Metaverse shows Mark Zuckerberg's avatar introducing himself to the real-life Mark Zuckerberg.
 
-### 15. Virtual Conference
-
-![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
+### 15. Virtual Conference ![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
 
 It's funny when you imagine attending a virtual conference call through metaverse as an avatar. People will not be physically present, but their avatars will.
 
-### 16. Surfing Metaverse
-
-![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
+### 16. Surfing Metaverse ![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
 
 Now we search in google for different places, later in the metaverse, we can experience the places using VR and AR technologies as easy as surfing the Internet.
 
-### 17. Smart Glasses
-
-![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
+### 17. Smart Glasses ![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
 
 Smart Glasses will display images themselves as an illusion in front of any background.
 
-### 18. New Meta
-
-![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
+### 18. New Meta ![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
 
 A meme of Facebook disappearing into the bushes and appearing from the same just with another name Meta
 
-### 19. Meta Medal
-
-![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
+### 19. Meta Medal ![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
 
 A symbolic way of saying both Facebook and Meta are the same, just the logo and the name are changed.
 
-### 20. Mark Power
-
-![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
+### 20. Mark Power ![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
 
 Mark Zuckerberg will be more powerful than ever if the Metaverse succeeds in the world. There cannot be any more technology development as high as this all international companies would experience a downfall.
 
@@ -560,123 +440,83 @@ Facebook's Mark Zuckerberg declared the web-based media was rebranding and had a
 
 Note: the following memes are all from the internet.
 
-### 1. Metaverse Meme 1
-
-![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
+### 1. Metaverse Meme 1 ![metaverse meme](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-1.jpg)
 
 When Mark Zuckerberg announced the name change, people thought it was for escaping from selling user data. Later, they realized it was all for the VR metadata project.
 
-### 2. Marvel Multiverse
-
-![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
+### 2. Marvel Multiverse ![marvel multiverse](https://images.wondershare.com/filmora/article-images/2021/marvel-mutiverse.jpg)
 
 MCM will not be about the Universe; it will be all about the Metaverse. The new Universe is created by digital technology.
 
-### 3. Facebook Metaverse Meme
-
-![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
+### 3. Facebook Metaverse Meme ![facebook metaverse meme](https://images.wondershare.com/filmora/article-images/2021/facebook-metaverse-meme.jpg)
 
 Some say Mark Zuckerberg changed the name to Meta to avoid Facebook's problem by selling user data and violating privacy laws. And to make people forget about the issues Facebook has created.
 
-### 4. Meta Memes
-
-![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
+### 4. Meta Memes ![meta memes](https://images.wondershare.com/filmora/article-images/2021/meta-memes.jpg)
 
 This scenario must be when the company leaders were planning for a name change and finally decided to be meta the metaverse.
 
-### 5. Facebook Meta
-
-![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
+### 5. Facebook Meta ![facebook meta tomb meme](https://images.wondershare.com/filmora/article-images/2021/facebook-meta-tomb-meme.jpg)
 
 Facebook became Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 6. Meta Perfection
-
-![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
+### 6. Meta Perfection ![meta perfection meme](https://images.wondershare.com/filmora/article-images/2021/meta-perfection-meme.jpg)
 
 This is Mark Zuckerberg creating Meta to be the future of this world with all the VR and AR elements included in the chemical solution.
 
-### 7. Facebook to Meta
-
-![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
+### 7. Facebook to Meta ![facebook to meta](https://images.wondershare.com/filmora/article-images/2021/facebook-to-meta-meme.jpg)
 
 Meta is the front face of Facebook, where nothing behind the company has changed. It was to hide the problems Facebook has created.
 
-### 8. VR and AR Metaverse
-
-![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
+### 8. VR and AR Metaverse ![vr and ar metaverse](https://images.wondershare.com/filmora/article-images/2021/vr-ar-metaverse-meme.jpg)
 
 People were addicted to Facebook by seeing onto the mobile screen, in meta, it will be or VR and AR technologies in which people will be wearing glasses and always into an illusion world.
 
-### 9. Meta Now
-
-![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
+### 9. Meta Now ![meta now meme](https://images.wondershare.com/filmora/article-images/2021/meta-now-meme.jpg)
 
 Facebook has changed its name to Meta after being questioned for promoting hate speech, spreading misinformation, and tearing apart democracies.
 
-### 10. Future Meta
-
-![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
+### 10. Future Meta ![future meta](https://images.wondershare.com/filmora/article-images/2021/future-meta-meme.jpg)
 
 The image shows us teaching the next generation after 10 or 20 years, teaching them it is called Facebook, not Meta.
 
-### 11. Just Exit
-
-![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
+### 11. Just Exit ![metaverse meme just exit](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-just-exit.jpg)
 
 The Meta says one can be virtually present in any location and log out to leave the office.
 
-### 12. No to Facebook
-
-![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
+### 12. No to Facebook ![no to facebook](https://images.wondershare.com/filmora/article-images/2021/no-to-facebook-meme.jpg)
 
 Say no to Facebook and be ready to welcome Meta to the world with many more technologies.
 
-### 13. Another World
-
-![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
+### 13. Another World ![metaverse meme another world](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-another-world.jpg)
 
 There will say a situation in 2047 where students attend classes through meta. The teacher can punish them by sending them to other worlds.
 
-### 14. Avatar
-
-![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
+### 14. Avatar ![metaverse meme avatar](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-avatar.jpg)
 
 Metaverse shows Mark Zuckerberg's avatar introducing himself to the real-life Mark Zuckerberg.
 
-### 15. Virtual Conference
-
-![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
+### 15. Virtual Conference ![virtual conference meme](https://images.wondershare.com/filmora/article-images/2021/virtual-conference-meme.jpg)
 
 It's funny when you imagine attending a virtual conference call through metaverse as an avatar. People will not be physically present, but their avatars will.
 
-### 16. Surfing Metaverse
-
-![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
+### 16. Surfing Metaverse ![surfing metaverse](https://images.wondershare.com/filmora/article-images/2021/surfing-metaverse-meme.jpg)
 
 Now we search in google for different places, later in the metaverse, we can experience the places using VR and AR technologies as easy as surfing the Internet.
 
-### 17. Smart Glasses
-
-![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
+### 17. Smart Glasses ![metaverse meme smart glasses](https://images.wondershare.com/filmora/article-images/2021/metaverse-meme-smart-glasses.jpg)
 
 Smart Glasses will display images themselves as an illusion in front of any background.
 
-### 18. New Meta
-
-![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
+### 18. New Meta ![new meta meme](https://images.wondershare.com/filmora/article-images/2021/new-meta-meme.jpg)
 
 A meme of Facebook disappearing into the bushes and appearing from the same just with another name Meta
 
-### 19. Meta Medal
-
-![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
+### 19. Meta Medal ![meta medal](https://images.wondershare.com/filmora/article-images/2021/meta-medal-meme.jpg)
 
 A symbolic way of saying both Facebook and Meta are the same, just the logo and the name are changed.
 
-### 20. Mark Power
-
-![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
+### 20. Mark Power ![mark power](https://images.wondershare.com/filmora/article-images/2021/mark-power-meme.jpg)
 
 Mark Zuckerberg will be more powerful than ever if the Metaverse succeeds in the world. There cannot be any more technology development as high as this all international companies would experience a downfall.
 
@@ -727,3 +567,27 @@ Furthermore, I hope you have no questions in selecting Filmora as an online imag
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-first-flight-fun-best-easy-to-use-drones/"><u>[New] 2024 Approved  First Flight Fun  Best Easy-to-Use Drones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-pathway-to-prosperity-a-graphic-designers-journey-for-2024/"><u>[Updated] The Pathway to Prosperity  A Graphic Designer's Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-iconic-anime-intros-the-ultimate-collection-for-2024/"><u>[New] Iconic Anime Intros  The Ultimate Collection for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/turning-onoff-picture-in-picture-for-maciosipad/"><u>Turning On/Off Picture-in-Picture for Mac/iOS/iPad</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-crafting-subtle-audio-declines-using-audacity/"><u>[Updated] 2024 Approved  Crafting Subtle Audio Declines Using Audacity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-tips-for-prolonging-gopros-energy-stamina/"><u>[Updated] 2024 Approved  Tips for Prolonging GoPro's Energy Stamina</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-lightroom-for-android-a-complete-guide/"><u>[New] In 2024, Unveiling Lightroom for Android  A Complete Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premier-vr-movies-for-immersive-viewing/"><u>[New] Premier VR Movies for Immersive Viewing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-4k-videography-with-prime-optics-for-2024/"><u>[Updated] Mastering the Art of 4K Videography with Prime Optics for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-budget-savvy-gopro-upgrades-for-starters/"><u>[New] 2024 Approved  Budget Savvy GoPro Upgrades for Starters</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/diverse-technology-scrutiny-easeus-edition-for-2024/"><u>Diverse Technology Scrutiny  EaseUS Edition for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-become-a-master-of-virtual-persona-design-metaverse-edition/"><u>2024 Approved  Become a Master of Virtual Persona Design - Metaverse Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-growth-in-30-minutes-viral-hashtag-insights/"><u>[New] Channel Growth in 30 Minutes  Viral Hashtag Insights</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-infinix-hot-40-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Infinix Hot 40 Pro Without PUK Codes</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-unveiling-the-secrets-of-skipping-content-on-tiktok/"><u>[New] In 2024, Unveiling the Secrets of Skipping Content on TikTok</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-a23-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y36-bootloader-easily-by-drfone-android/"><u>How to Unlock Vivo Y36 Bootloader Easily</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-strategy-for-developing-and-managing-youtube-collaborations/"><u>In 2024, The Ultimate Strategy for Developing & Managing YouTube Collaborations</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/unhindered-routine-changing-video-direction-with-vlc/"><u>Unhindered Routine  Changing Video Direction with VLC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-motorola-moto-g23-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Motorola Moto G23 Phone</u></a></li>
+</ul></div>

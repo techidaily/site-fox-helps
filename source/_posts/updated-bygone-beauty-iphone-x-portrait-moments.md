@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bygone Beauty  IPhone X Portrait Moments\""
-date: 2024-06-21 12:37:16
-updated: 2024-06-23 12:14:57
+date: 2024-06-25T19:50:06.736Z
+updated: 2024-06-26T19:50:06.736Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 
 ## Bygone Beauty: IPhone X Portrait Moments
 
-# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -63,43 +61,35 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ### For iPhone 8, 7 or older iPhones users
 
-#### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
+#### FabFocus
 
 **Price:** $3.99
 
-**Compatible with:** iOS 8.0 or later
-
-![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
+**Compatible with:** iOS 8.0 or later ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
-#### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
+#### Tadaa SLR
 
 **Price:** $3.99
 
-**Compatible with:** iOS 8.0 or later
-
-![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
+**Compatible with:** iOS 8.0 or later ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
-#### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
+#### Bokeh Lens
 
 **Price:** $0.99
 
-**Compatible with:** iOS 8.0 or later
-
-![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
+**Compatible with:** iOS 8.0 or later ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
-#### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
+#### Defocus
 
 **Price:** $1.99
 
-**Compatible with:** iOS 8.0 or later
-
-![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
+**Compatible with:** iOS 8.0 or later ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
@@ -127,3 +117,26 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-editing-tools-for-app-screenplays/"><u>[New] 2024 Approved  Best Editing Tools for App Screenplays</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ranking-the-best-free-passport-picture-services-worldwide-for-2024/"><u>Ranking the Best Free Passport Picture Services Worldwide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-perfect-ringtones-from-popular-tiktok-audio-tracks/"><u>[Updated] Crafting Perfect Ringtones From Popular TikTok Audio Tracks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/riding-secure-the-creme-de-la-cam-selection-for-motorcyclists-for-2024/"><u>Riding Secure - The Crème De La Cam Selection for Motorcyclists for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-discovering-the-world-of-audio-with-your-ios-device-for-2024/"><u>[Updated] Discovering the World of Audio with Your iOS Device for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tranquil-sleep-soundtrack-expertly-selected-voices-for-2024/"><u>[Updated] Tranquil Sleep Soundtrack  Expertly Selected Voices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-in-search-of-greatness-top-15-timeless-stop-motion-films/"><u>2024 Approved  In Search of Greatness  Top 15 Timeless Stop Motion Films</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-embark-on-elevating-voice-startup-steps-for-an-engaging-product-vlog-channel/"><u>[New] Embark on Elevating Voice  Startup Steps for an Engaging Product Vlog Channel</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-banishing-static-like-motion-in-aerial-videos/"><u>[New] Banishing Static-Like Motion in Aerial Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-creativity-ranked-free-drawing-apps-for-mac/"><u>2024 Approved  Unleash Creativity  Ranked FREE Drawing Apps for Mac</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-superior-online-speech-recorders/"><u>[New] 2024 Approved  Superior Online Speech Recorders</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-from-sight-to-sound-modern-methods-for-pulling-audio-from-visual-media/"><u>2024 Approved From Sight to Sound Modern Methods for Pulling Audio From Visual Media</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-proven-tactics-increasing-your-instagram-video-traffic/"><u>2024 Approved  Proven Tactics  Increasing Your Instagram Video Traffic</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-sony-xperia-1-v-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Sony Xperia 1 V Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-laugh-ledger-10-hilarious-tweets-for-2024/"><u>[New] Laugh Ledger  10 Hilarious Tweets for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-quicksnap-pause-and-capture-techniques/"><u>[New] QuickSnap  Pause & Capture Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-sound-strategy-selecting-perfect-dj-visuals/"><u>2024 Approved  Sound Strategy  Selecting Perfect DJ Visuals</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-stream-control-duo-deciding-between-xsplit-and-obs-tech/"><u>[Updated] Stream Control Duo  Deciding Between XSplit and OBS Tech</u></a></li>
+</ul></div>

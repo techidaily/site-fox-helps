@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pigments & Palettes  The Artist's Guidebook\""
-date: 2024-06-21 16:51:49
-updated: 2024-06-24 11:32:48
+date: 2024-06-25T18:57:11.588Z
+updated: 2024-06-26T18:57:11.588Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,7 @@ There are many color wheels out there and all require understanding and research
 
 ## The Color Wheel
 
-Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
-
-![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
+Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
@@ -68,11 +66,11 @@ As you can see from all the movie covers above, they all use complementary color
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,3 +93,27 @@ By including this into your thought process when creating videos with [Filmora](
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-quick-catch-up-effective-methods-for-skipping-edgenuity-courses/"><u>In 2024, Quick Catch-Up  Effective Methods for Skipping Edgenuity Courses</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-zoomelitevue-7-enhance-and-resize-like-a-pro/"><u>[Updated] In 2024, ZoomEliteVue 7  Enhance & Resize Like a Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-immerse-yourself-in-the-world-of-apples-ios-vr-titles/"><u>[New] 2024 Approved  Immerse Yourself in the World of Apple's iOS VR Titles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-windows-11-how-to-switch-on-its-built-in-hdr-capability/"><u>[New] In 2024, Windows 11  How to Switch On Its Built-In HDR Capability</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-syncing-voice-with-images-online-for-2024/"><u>[New] Syncing Voice with Images Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-best-gpus-for-ultra-hd-video-production/"><u>In 2024, Best GPUs for Ultra HD Video Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-where-to-download-christian-ringtones-and-how-to-customize-a-christian-ringtone/"><u>[New] Where To Download Christian Ringtones And How To Customize A Christian Ringtone?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/extreme-sports-gopro-vs-star-sj7-comparison/"><u>Extreme Sports  GoPro Vs Star SJ7 Comparison</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-how-to-shoot-vertical-panorama-photos-with-your-smartphone-androidios/"><u>[Updated] 2024 Approved  How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-telegram-online-comprehensive-user-guide-for-2024/"><u>[New] Mastering Telegram Online  Comprehensive User Guide for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-laughter-guaranteed-the-best-meme-generator-apps-for-mobile-devices-for-2024/"><u>New Laughter Guaranteed The Best Meme Generator Apps for Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-premium-video-gear-guide-selecting-the-right-lens-for-youtube/"><u>[New] Premium Video Gear Guide  Selecting the Right Lens for YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-mastering-igtv-thumbnail-creation-and-editing/"><u>[New] In 2024, Mastering IGTV Thumbnail Creation & Editing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-journey-to-high-definition-mastering-sdr-to-hdr-conversion/"><u>[Updated] Journey to High Definition  Mastering SDR to HDR Conversion</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pinnacle-6-services-to-translate-videos/"><u>[New] Pinnacle 6 Services to Translate Videos</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/12-must-try-best-voice-cloning-tools-to-use-for-2024/"><u>12 Must-Try Best Voice Cloning Tools to Use for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/subtitle-savant-strategies-for-unparalleled-srt-file-creation-for-2024/"><u>Subtitle Savant  Strategies for Unparalleled SRT File Creation for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-15-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone 15 iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-insightful-suggestions-unlocking-your-potential-with-voxels-voice-modification-in-discord/"><u>Updated In 2024, Insightful Suggestions Unlocking Your Potential with Voxels Voice Modification in Discord</u></a></li>
+</ul></div>

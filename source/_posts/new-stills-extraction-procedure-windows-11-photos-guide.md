@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Stills Extraction Procedure  Windows 11 Photos Guide\""
-date: 2024-06-23 13:59:10
-updated: 2024-06-25 12:46:21
+date: 2024-06-25T18:56:53.368Z
+updated: 2024-06-26T18:56:53.368Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 ## Stills Extraction Procedure: Windows 11 Photos Guide
 
-# How to Save Photo from Video in Windows 10 Photos App
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Save Photo from Video in Windows 10 Photos App ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -45,7 +43,7 @@ Creating a living image:
 * Open the folder containing your video and search the particular video. Right-click video > ‘Open With’ > ‘Photos’ > allow the video to play.
 * Right-click within the player > Edit and create > Save photos.
 
-![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
+![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 * Now, you can see the living picture by tapping ‘Play’ button.
 
@@ -115,3 +113,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-master-recommendations-elite-ios-sound-artists-for-2024/"><u>[Updated] Master Recommendations  Elite iOS Sound Artists for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pioneering-visual-effects-strategic-use-of-luts-in-adobe-projects/"><u>[Updated] Pioneering Visual Effects  Strategic Use of LUTs in Adobe Projects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-an-exclusive-review-of-lgs-innovative-4k-screen-tech/"><u>[Updated] An Exclusive Review of LG's Innovative 4K Screen Tech</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-how-to-shoot-vertical-panorama-photos-with-your-smartphone-androidios/"><u>[Updated] 2024 Approved  How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-updated-analysis-of-sony-bdp-s6700/"><u>2024 Approved  Updated Analysis of Sony BDP-S6700</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elite-groups-top-12-camcorders-featuring-gps-mapping-capabilities/"><u>[Updated] In 2024, Elite Group's Top 12 Camcorders  Featuring GPS Mapping Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-advanced-data-analytics-methods-for-market-research-analysis/"><u>[Updated] In 2024, Advanced Data Analytics Methods for Market Research Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-hidden-treasure-of-royalty-free-graphics/"><u>[Updated] In 2024, Unveiling the Hidden Treasure of Royalty-Free Graphics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/capturing-piscine-adventures-5-superior-camers-for-2024/"><u>Capturing Piscine Adventures - 5 Superior Camers for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-from-your-apple-iphone-7-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID from Your Apple iPhone 7?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/freebuy-one-lut-bundle-for-canon-pros-for-2024/"><u>Free/Buy-One-LUT Bundle for Canon Pros for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-ultimate-adobe-premiere-plugin-collection-top-15-tools-free-and-paid/"><u>New 2024 Approved The Ultimate Adobe Premiere Plugin Collection Top 15 Tools (Free & Paid)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-maximize-your-content-with-these-top-5-obs-tips/"><u>[Updated] In 2024, Maximize Your Content with These Top 5 OBS Tips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/direct-match-twitchs-battle-against-youtubes-dominance/"><u>Direct Match  Twitch's Battle Against YouTube's Dominance</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-xr-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone XR Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-guide-to-free-flv-video-editing-for-2024/"><u>New The Ultimate Guide to Free FLV Video Editing for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-pc-and-mac-game-replay-tools-the-ultimate-15/"><u>[New] In 2024, Pc & Mac Game Replay Tools  The Ultimate 15</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-xiaomi-redmi-k70e-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Xiaomi Redmi K70E</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-contemplating-if-video-selfies-need-validation-on-instagram/"><u>[Updated] Contemplating if Video Selfies Need Validation On Instagram</u></a></li>
+</ul></div>

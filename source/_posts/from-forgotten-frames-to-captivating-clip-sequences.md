@@ -1,7 +1,7 @@
 ---
 title: "From Forgotten Frames to Captivating Clip Sequences"
-date: 2024-06-22 22:21:37
-updated: 2024-06-24 12:54:35
+date: 2024-06-25T19:29:22.290Z
+updated: 2024-06-26T19:29:22.290Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
 ## From Forgotten Frames to Captivating Clip Sequences
 
-# How to Digitize Your Old Photos and Turn Them into Impressive Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Digitize Your Old Photos and Turn Them into Impressive Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -90,13 +88,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -104,15 +102,15 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
-![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
+![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
-![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
-![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
 
@@ -176,3 +174,27 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-inside-out-a-thorough-examination-of-dji-phantom-4/"><u>[Updated] In 2024, Inside Out  A Thorough Examination of DJI Phantom 4</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-integrated-content-the-brands-on-youtube-movement-for-2024/"><u>[Updated] Integrated Content  The Brands on YouTube Movement for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-masterfulaiimageeditor-the-best-of-both-worlds/"><u>[Updated] In 2024, MasterfulAiImageEditor  The Best of Both Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unleashing-androids-audio-potential-mastering-the-art-of-ringtones-and-sounds/"><u>In 2024, Unleashing Android's Audio Potential  Mastering the Art of Ringtones & Sounds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unlocking-content-creation-free-tools-for-downloading-vids-online/"><u>[New] 2024 Approved  Unlocking Content Creation  Free Tools for Downloading Vids Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-essence-of-time-stretching-detailed-review-of-slomo-2e1924-for-2024/"><u>The Essence of Time Stretching  Detailed Review of SloMo, 2E1924 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-the-15-leading-cameras-excluding-gopro/"><u>2024 Approved  Unveiling the 15 Leading Cameras Excluding GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-decrypting-covertly-hid-viewers-responses-in-videos/"><u>[New] Decrypting Covertly-Hid Viewers' Responses in Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-infusing-video-narratives-with-apple-harmony/"><u>In 2024, Infusing Video Narratives with Apple Harmony</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-balancing-intense-beats-with-fl-studios-easeful-dimming/"><u>[Updated] In 2024, Balancing Intense Beats with FL Studio's Easeful Dimming</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-direct-linkage-bridging-youtube-and-imovie-with-music/"><u>[New] Direct Linkage  Bridging YouTube and iMovie with Music</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-capturing-mov-videos-in-windows-11/"><u>[New] 2024 Approved  Capturing MOV Videos in Windows 11</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-next-gen-gloves-top-picks-to-immerse-in-vr-worlds/"><u>In 2024, Next-Gen Gloves  Top Picks to Immerse in VR Worlds</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-guide-learning-the-right-ways-to-start-facebook-live-shopping-for-2024/"><u>Updated Guide Learning the Right Ways To Start Facebook Live Shopping for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-cinematic-l-slow-videos-tips-from-the-pros-on-gopro-hero-10/"><u>[Updated] Crafting Cinematic L-Slow Videos  Tips From the Pros on GoPro Hero 10</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-invaluable-tips-harness-the-power-of-voxal-audio-alteration-for-enhanced-discord-engagement/"><u>2024 Approved Invaluable Tips Harness the Power of Voxal Audio Alteration for Enhanced Discord Engagement</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-decoding-your-own-tiktok-trend-identifier-key/"><u>[New] Decoding Your Own TikTok Trend Identifier Key</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-ultimate-list-best-animation-software-for-android-and-ios/"><u>New The Ultimate List Best Animation Software for Android and iOS</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-if-you-are-having-mkv-files-that-do-not-meet-your-desired-size-length-or-quality-then-you-need-to-access-editing-tools/"><u>Updated If You Are Having MKV Files that Do Not Meet Your Desired Size, Length or Quality, Then You Need to Access Editing Tools</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  High Altitude Escapades - The Husqvarna H501S Review Explored\""
-date: 2024-06-20 12:37:54
-updated: 2024-06-23 11:20:52
+date: 2024-06-25T19:27:56.097Z
+updated: 2024-06-26T19:27:56.097Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/7463aefc3bf7373e7e8450adfdbb24d271ecbb972
 
 ## High Altitude Escapades - The Husqvarna H501S Review Explored
 
-# Hubsan H501S X4 FPV Quadcopter Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Hubsan H501S X4 FPV Quadcopter Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -31,11 +29,9 @@ thumbnail: https://thmb.techidaily.com/7463aefc3bf7373e7e8450adfdbb24d271ecbb972
 **You may also like:**
 [Drone racing: Things You need to Know and Top 5 best FPV racing drones >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[![hubsan h501S x4](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4.jpg) ](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
-)
+[![hubsan h501S x4](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4.jpg) ](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa)
 
 ## Pros and Cons
 
@@ -104,21 +100,15 @@ thumbnail: https://thmb.techidaily.com/7463aefc3bf7373e7e8450adfdbb24d271ecbb972
 
  It enabled your drone into intuitive operation where all forward and backward movements can be easily controlled by beginner pilots.
 
-#### 5. Transmitter
-
-![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
+#### 5. Transmitter ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
 
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
 
-#### 6. Brushless Motors
-
-![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
+#### 6. Brushless Motors ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
 
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
 
-#### 7. Camera
-
-![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
+#### 7. Camera ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
 
@@ -150,3 +140,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-master-windows-11-revolutionary-techniques-for-efficient-video-trimming/"><u>[Updated] Master Window's 11  Revolutionary Techniques for Efficient Video Trimming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/srt-fundamentals-explored-in-detail-and-clarity/"><u>SRT Fundamentals Explored in Detail and Clarity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/elevate-your-social-interactions-xbox-one-zoom-techniques-for-2024/"><u>Elevate Your Social Interactions  Xbox One Zoom Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/speech-to-text-magic-free-edition-for-2024/"><u>Speech-to-Text Magic  Free Edition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-launch-success-a-guide-to-10-motivating-movies/"><u>[Updated] In 2024, Launch Success  A Guide to 10 Motivating Movies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-capture-to-edit-elevating-your-immersive-video-experience-using-premiere-pro-for-2024/"><u>From Capture to Edit  Elevating Your Immersive Video Experience Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-action-camera-bargains-selecting-top-6-for-under-100-costs/"><u>[Updated] 2024 Approved  Action Camera Bargains  Selecting Top 6 for Under $100 Costs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-efficient-techniques-for-editing-account-numbers-on-tiktok/"><u>[New] In 2024, Efficient Techniques for Editing Account Numbers on TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-integrating-photos-and-videos-a-guide-to-using-storyremix-in-windows-11/"><u>[Updated] 2024 Approved  Integrating Photos & Videos  A Guide to Using StoryRemix in Windows 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-detailed-guide-youtubes-most-engaging-storytellers-in-23/"><u>[New] A Detailed Guide  YouTube's Most Engaging Storytellers in '23</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-complete-breakdown-of-facebooks-changes/"><u>[Updated] In 2024, The Complete Breakdown of Facebook's Changes</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-sprinkle-vibrancy-on-video-thumbnails-with-glowing-edges/"><u>In 2024, Sprinkle Vibrancy on Video Thumbnails with Glowing Edges</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-screen-record-instagram-story/"><u>In 2024, How to Screen Record Instagram Story</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/expert-advice-yt-clip-sharing-using-your-google-id-for-2024/"><u>Expert Advice  YT Clip Sharing Using Your Google ID for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-switch-cards-between-apple-iphone-14-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Switch Cards Between Apple iPhone 14 and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-highlighted-screen-capturing-apps-you-can-use-for-2024/"><u>[Updated] Highlighted Screen Capturing Apps You Can Use for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/fable-creators-circle-a-list-eight/"><u>Fable Creators Circle - A-List Eight</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-quick-acting-impression-review-for-2024/"><u>[Updated] Quick Acting Impression Review for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Lava Agni 2 5G | Dr.fone</u></a></li>
+</ul></div>

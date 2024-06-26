@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Yesteryear's Eyes  The Classic iPhone X Lens\""
-date: 2024-06-23 13:13:20
-updated: 2024-06-25 12:12:20
+date: 2024-06-25T19:40:47.907Z
+updated: 2024-06-26T19:40:47.907Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 ## Yesteryear's Eyes: The Classic iPhone X Lens
 
-# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -63,43 +61,35 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ### For iPhone 8, 7 or older iPhones users
 
-#### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
+#### FabFocus
 
 **Price:** $3.99
 
-**Compatible with:** iOS 8.0 or later
-
-![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
+**Compatible with:** iOS 8.0 or later ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
-#### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
+#### Tadaa SLR
 
 **Price:** $3.99
 
-**Compatible with:** iOS 8.0 or later
-
-![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
+**Compatible with:** iOS 8.0 or later ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
-#### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
+#### Bokeh Lens
 
 **Price:** $0.99
 
-**Compatible with:** iOS 8.0 or later
-
-![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
+**Compatible with:** iOS 8.0 or later ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
-#### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
+#### Defocus
 
 **Price:** $1.99
 
-**Compatible with:** iOS 8.0 or later
-
-![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
+**Compatible with:** iOS 8.0 or later ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
@@ -127,3 +117,26 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-perfect-your-videos-captions-with-10plus-top-free-converters-for-2024/"><u>[New] Perfect Your Videos' Captions with 10+ Top FREE Converters for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-revolutionizing-your-fpv-flight-with-optimal-blades/"><u>[Updated] 2024 Approved  Revolutionizing Your FPV Flight with Optimal Blades</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-classification-guide-to-diverse-video-cameras/"><u>[Updated] In 2024, Classification Guide to Diverse Video Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-step-by-step-guide-to-excellent-ipadiphone-interview-podcast-recording/"><u>[New] 2024 Approved  Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-windows-10-speaks-a-summary-of-recent-additions/"><u>In 2024, Windows 10 Speaks  A Summary of Recent Additions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-merging-melodies-the-art-of-crossfading-for-2024/"><u>[New] Merging Melodies  The Art of Crossfading for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-brighten-and-sharpen-expert-tips-for-v22-video-enhancement/"><u>In 2024, Brighten and Sharpen  Expert Tips for V2.2 Video Enhancement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-simplify-passport-photography-with-these-top-10-low-cost-solutions/"><u>[Updated] Simplify Passport Photography with These Top 10 Low-Cost Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exclusive-selection-of-high-caliber-free-luts/"><u>[New] Exclusive Selection of High-Caliber Free LUTs</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-oppo-reno-11-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-oppo-a78-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tarting-with-a-bang-building-a-youtube-presence/"><u>[New] Starting with a Bang  Building a YouTube Presence</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-why-does-your-fb-message-feed-show-a-blue-image-decoding-its-purpose/"><u>[New] In 2024, Why Does Your FB Message Feed Show a Blue Image? Decoding Its Purpose</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-shooter-showdown-our-best-picks/"><u>[New] Ultimate Shooter Showdown - Our Best Picks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-aplus-game-streaming-tech-reviews/"><u>[New] A+ Game Streaming Tech Reviews</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-film-techniques-free-ecological-templates/"><u>In 2024, Film Techniques  Free Ecological Templates</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-infinix-note-30-vip-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Infinix Note 30 VIP Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-samsungs-latest-bd-edition-k850-update/"><u>[Updated] Samsung's Latest BD Edition - K850 Update</u></a></li>
+</ul></div>

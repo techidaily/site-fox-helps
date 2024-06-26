@@ -1,7 +1,7 @@
 ---
 title: "\"Select 12 High-Tech Action Cams with Added Geo Location Features for 2024\""
-date: 2024-06-21 12:19:12
-updated: 2024-06-24 10:44:26
+date: 2024-06-25T19:31:17.097Z
+updated: 2024-06-26T19:31:17.097Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/2dd4d8c9b9a89a48c334c5f220a58a13ed27cebc6
 
 ## Select 12 High-Tech Action Cams with Added Geo Location Features
 
-# Top 12 Action Cameras with GPS
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 12 Action Cameras with GPS ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -59,14 +57,12 @@ thumbnail: https://thmb.techidaily.com/2dd4d8c9b9a89a48c334c5f220a58a13ed27cebc6
 
 #### **2. Garmin VIRB Series:**
 
-**a. [ Garmin VIRB Ultra 30: ](<https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8>**
+**a. [Garmin VIRB Ultra 30:](<https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8>**
 **)**
 
-[Garmin Virb Ultra 30](https://images.wondershare.com/filmora/article-images/garmin-virb-ultra-30-design.jpg) ](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8
-)
+[Garmin Virb Ultra 30](https://images.wondershare.com/filmora/article-images/garmin-virb-ultra-30-design.jpg) ](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8)
 
 **Weight:** 88grams | **Memory Card:** Micro SD | **Waterproof:** Yes | **GPS:** Yes | **Stills:** 12MP| **Screen:** 1.75"| **Video Quality:** 4K |
 
@@ -74,14 +70,12 @@ thumbnail: https://thmb.techidaily.com/2dd4d8c9b9a89a48c334c5f220a58a13ed27cebc6
 
 [Learn more about Garmin VIRB Ultra 30](https://tools.techidaily.com/wondershare/filmora/download/)
 
-**b. [ Garmin VIRB XE: ](<https://www.amazon.com/gp/product/B0160BC1EK/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0160BC1EK&linkId=95b0e00bcbf50903696c22879509a038>**
+**b. [Garmin VIRB XE:](<https://www.amazon.com/gp/product/B0160BC1EK/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0160BC1EK&linkId=95b0e00bcbf50903696c22879509a038>**
 **)**
 
-[Garmin Virb XE](https://images.wondershare.com/filmora/article-images/garmin-virb-xe.jpg)](https://www.amazon.com/gp/product/B0160BC1EK/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0160BC1EK&linkId=95b0e00bcbf50903696c22879509a038
-)
+[Garmin Virb XE](https://images.wondershare.com/filmora/article-images/garmin-virb-xe.jpg)](https://www.amazon.com/gp/product/B0160BC1EK/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0160BC1EK&linkId=95b0e00bcbf50903696c22879509a038)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B0160BC1EK/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0160BC1EK&linkId=95b0e00bcbf50903696c22879509a038
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B0160BC1EK/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0160BC1EK&linkId=95b0e00bcbf50903696c22879509a038)
 
 **Weight:** 152grams | **Memory Card:** Micro SD | **Waterproof:** Yes | **GPS:** Yes | **Stills:** 12MP| **Screen:** N/A| **Video Quality:** 1080p/60fps |
 
@@ -93,25 +87,22 @@ thumbnail: https://thmb.techidaily.com/2dd4d8c9b9a89a48c334c5f220a58a13ed27cebc6
 
  This device is able to record footage with 1080p resolution at 30fps and wide angle stills can be taken with 12MP. VIRB X comes with G-Metric technology that captures moment along with performance data and environmental reading. It can perfectly reflect heart rate, temperature, acceleration and speed etc. Other then this it offers remote controlled ecosystem along with Multi-camera synchronization and one touch recording functionality.
 
-**d. [ Garmin VIRB Elite:](<https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1>**
+**d. [Garmin VIRB Elite:](<https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1>**
 **)**
 
-[Garmin Virb Elite](https://images.wondershare.com/filmora/article-images/garmin-virb-elit.jpg) ](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1
-)
+[Garmin Virb Elite](https://images.wondershare.com/filmora/article-images/garmin-virb-elit.jpg) ](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=d4c86edc07888f1a73f2696e417da1e1)
 
 **Weight:** 135grams | **Memory Card:** Micro SD | **Waterproof:** Yes | **GPS:** Yes | **Stills:** 16MP| **Screen:** 2 inch| **Video Quality:** 4K |
 
  Here is a perfect action camera with unique design, impressive image quality and GPS enabled features. It also accommodates barometric altimeter and accelerometer inside and assists in HD recording with 1080p resolution level. It is Wi-Fi enabled and possess digital image stabilization feature along with auto lens distortion correction facility.
 
-#### **3.[ GoPro Hero5 Black:](<https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa>**
+#### **3.[GoPro Hero5 Black:](<https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa>**
 
 **)**
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 **Weight:** 117grams | **Memory Card:** Micro SD | **Waterproof:** Yes | **GPS:** Yes | **Stills:** 16MP| **Screen:** 2 inch| **Video Quality:** 4K |
 
@@ -127,14 +118,12 @@ thumbnail: https://thmb.techidaily.com/2dd4d8c9b9a89a48c334c5f220a58a13ed27cebc6
 
 #### **5. Sony Series:**
 
-**a. [ 4K action Camera FDR-X3000:](<https://www.amazon.com/gp/product/B01LYSJB8A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYSJB8A&linkId=2a4195190e2c6e5b63a38a4bed0e7957>**
+**a. [4K action Camera FDR-X3000:](<https://www.amazon.com/gp/product/B01LYSJB8A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYSJB8A&linkId=2a4195190e2c6e5b63a38a4bed0e7957>**
 **)**
 
-[Sony 4K FDR X3000](https://images.wondershare.com/filmora/article-images/sony-4k-fdr-x3000.jpg) ](https://www.amazon.com/gp/product/B01LYSJB8A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYSJB8A&linkId=2a4195190e2c6e5b63a38a4bed0e7957
-)
+[Sony 4K FDR X3000](https://images.wondershare.com/filmora/article-images/sony-4k-fdr-x3000.jpg) ](https://www.amazon.com/gp/product/B01LYSJB8A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYSJB8A&linkId=2a4195190e2c6e5b63a38a4bed0e7957)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01LYSJB8A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYSJB8A&linkId=2a4195190e2c6e5b63a38a4bed0e7957
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01LYSJB8A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYSJB8A&linkId=2a4195190e2c6e5b63a38a4bed0e7957)
 
 **Weight:** 114grams | **Memory Card:** Micro SD | **Waterproof:** Yes | **GPS:** Yes | **Stills:** 8.2MP| **Screen:** Yes| **Video Quality:** 4K |
 
@@ -152,15 +141,13 @@ thumbnail: https://thmb.techidaily.com/2dd4d8c9b9a89a48c334c5f220a58a13ed27cebc6
 
  With this affordable action camera model you can enjoy Full HD recording at 60fps frame rate and 11.9MP stills at 19:9 aspect ratio. It can go under water up to 16 Feet and offers Wi-Fi, NFC and GPS connectivity. The remote control also possesses GPS feature and assists in overlay adjustment over videos with additional layer of information related to proper speed and route details.
 
-#### **6.[ TomTom Bandit: ](<https://www.amazon.com/gp/product/B00WV69ZI4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00WV69ZI4&linkId=758fb17283300bc2eeeff51d97e5cab5>**
+#### **6.[TomTom Bandit:](<https://www.amazon.com/gp/product/B00WV69ZI4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00WV69ZI4&linkId=758fb17283300bc2eeeff51d97e5cab5>**
 
 **)**
 
-[TomTom Bandit](https://images.wondershare.com/filmora/article-images/tomtom-bandit-action-camera.jpg) ](https://www.amazon.com/gp/product/B00WV69ZI4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00WV69ZI4&linkId=758fb17283300bc2eeeff51d97e5cab5
-)
+[TomTom Bandit](https://images.wondershare.com/filmora/article-images/tomtom-bandit-action-camera.jpg) ](https://www.amazon.com/gp/product/B00WV69ZI4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00WV69ZI4&linkId=758fb17283300bc2eeeff51d97e5cab5)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B00WV69ZI4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00WV69ZI4&linkId=758fb17283300bc2eeeff51d97e5cab5
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B00WV69ZI4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00WV69ZI4&linkId=758fb17283300bc2eeeff51d97e5cab5)
 
 **Weight:** 192grams | **Memory Card:** Micro SD | **Waterproof:** Yes | **GPS:** Yes | **Stills:** 16MP| **Screen:** No| **Video Quality:** 4K |
 
@@ -200,3 +187,26 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/the-perfect-blend-combining-6-effective-video-genres/"><u>The Perfect Blend  Combining 6 Effective Video Genres</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-turn-your-iphone-images-upside-down-with-precision/"><u>2024 Approved  Turn Your iPhone Images Upside Down with Precision</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-experiential-business-the-vr-revolution/"><u>[Updated] Experiential Business  The VR Revolution</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-path-to-polished-projects-utilizing-fades-effectively/"><u>2024 Approved  The Path to Polished Projects  Utilizing Fades Effectively</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-instant-guide-restoring-the-old-school-windows-photo-viewer-on-win-11/"><u>[New] Instant Guide  Restoring the Old-School Windows Photo Viewer on Win 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-virtual-journey-past-to-present/"><u>2024 Approved  The Virtual Journey  Past to Present</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-gopro-hero5-black-vs-yi-4k-the-best-action-cameras-battle-in-23/"><u>[Updated] 2024 Approved  GoPro Hero5 Black Vs. Yi 4K - The Best Action Cameras Battle in '23</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-examining-audio-and-visual-content-podcasts-against-youtube/"><u>[New] Examining Audio and Visual Content  Podcasts Against YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essential-list-8-leading-tools-for-video-translation-mastery-for-2024/"><u>[New] Essential List  8 Leading Tools for Video Translation Mastery for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/step-by-step-guide-to-aplus-tiktok-videos-with-designed-templates-for-2024/"><u>Step-by-Step Guide to A+ TikTok Videos with Designed Templates for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-obs-vs-wirecast-ultimate-broadcast-showdown/"><u>[New] OBS vs Wirecast  Ultimate Broadcast Showdown</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-achieving-high-quality-videos-with-your-cellphone-webcam-for-2024/"><u>[Updated] Achieving High-Quality Videos with Your Cellphone Webcam for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-escaping-reality-top-10-games-like-gta-v-but-not/"><u>In 2024, Escaping Reality - Top 10 Games Like GTA V (But Not)</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-the-complete-process-of-audio-integration-into-quicktime-video-files/"><u>New 2024 Approved The Complete Process of Audio Integration Into QuickTime Video Files</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-transform-videos-with-tiktok-effects/"><u>In 2024, Transform Videos with TikTok Effects</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-listings-for-melodic-mobile-alerts/"><u>[New] Master Listings for Melodic Mobile Alerts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-y36i-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo Y36i FRP Bypass</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-streamline-your-recording-process-across-all-tech-platforms/"><u>[New] Streamline Your Recording Process Across All Tech Platforms</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-discovering-your-ideal-audio-format-a-step-by-step-strategy/"><u>New 2024 Approved Discovering Your Ideal Audio Format A Step-by-Step Strategy</u></a></li>
+</ul></div>

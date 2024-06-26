@@ -1,7 +1,7 @@
 ---
 title: "[New] Safety Features Evaluated in Syma X8C for 2024"
-date: 2024-06-24 23:26:51
-updated: 2024-06-26 10:55:23
+date: 2024-06-25T19:42:12.511Z
+updated: 2024-06-26T19:42:12.511Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 
 ## Safety Features Evaluated in Syma X8C
 
-# Syma X8C Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Syma X8C Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -69,9 +67,7 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 | Charging Time        | 200 Minutes            | Control Distance        | 100 meter approx.                                     |
 | Transmitter Power    | 4 x 1.5 V AA Batteries | Camera                  | 2 MP                                                  |
 
-#### 2\.  Design
-
-![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+#### 2\.  Design ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -85,15 +81,11 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 
  With the headless mode, Syma X8C appears similar to X5C design with little bigger structure. This drone unit is extremely stable with easy to fly options that appear much easier to beginners too. The best part is that this drone responds perfectly to transmitter with very small delay. The performance is much better as compared to many models of this price range. If we talk about the wind stability then larger size and heavier design make this drone much stable. It will rarely face an undesired flip due to unfavourable weather conditions so you need not to struggle more to keep it tuned to its normal position. Those who want a drone for aerial photography will also e able to take advantage from Syma X8C design.
 
-#### 5\.  Controller/Transmitter
-
-![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
+#### 5\.  Controller/Transmitter ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
-#### 6\.  Camera
-
-![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+#### 6\.  Camera ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -125,3 +117,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-economics-of-youtube-marketing-strategies/"><u>[New] In 2024, The Economics of YouTube Marketing Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-joymakerbox-sign-up-share-smiles-create-for-2024/"><u>[Updated] JoyMakerBox  Sign Up, Share Smiles, Create for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-expert-roundup-top-10-camcorders/"><u>[New] 2024 Approved  Expert Roundup  Top 10 Camcorders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visual-impact-seamlessly-add-photos-to-your-instagram-account-for-2024/"><u>[New] Visual Impact  Seamlessly Add Photos to Your Instagram Account for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effortlessly-transferring-your-personal-soundtrack-for-2024/"><u>[Updated] Effortlessly Transferring Your Personal Soundtrack for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-zenmotion-hd-comparing-paid-and-free-editors/"><u>In 2024, Zenmotion HD  Comparing Paid & Free Editors</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigate-with-ease-mastering-ifunnys-meme-app-for-2024/"><u>Navigate with Ease  Mastering iFunny's Meme App for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mac-video-excellence-the-creme-de-la-liste-for-sierra-users/"><u>[Updated] 2024 Approved  Mac Video Excellence  The Crème De La Liste for Sierra Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/favorites-list-top-mac-software-for-video-recording-for-2024/"><u>Favorites List  Top Mac Software for Video Recording for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/premier-5-minute-longshot-recorder/"><u>Premier 5-Minute Longshot Recorder</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-realme-gt-neo-5-se-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Realme GT Neo 5 SE Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-camera-for-videos-mirrorless-vs-dslr-showdown/"><u>[New] 2024 Approved  Best Camera for Videos  Mirrorless Vs. DSLR Showdown</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-online-image-croppers-change-ratios-in-a-click/"><u>Updated 2024 Approved Online Image Croppers Change Ratios in a Click</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/the-blueprint-for-crafting-an-individual-tiktok-marker/"><u>The Blueprint for Crafting an Individual TikTok Marker</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pickus-triumph-in-android-photo-editing-a-comprehensible-review/"><u>[Updated] PickU's Triumph in Android Photo Editing – A Comprehensible Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-essential-steps-to-design-impressive-facebook-slideshows-for-2024/"><u>[Updated] Essential Steps to Design Impressive Facebook Slideshows for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-editing-skills-for-professional-facebook-reels/"><u>[Updated] In 2024, Mastering Editing Skills for Professional Facebook Reels</u></a></li>
+</ul></div>

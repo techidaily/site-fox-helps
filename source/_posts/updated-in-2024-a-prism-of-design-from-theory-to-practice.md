@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, A Prism of Design  From Theory to Practice\""
-date: 2024-06-23 14:10:50
-updated: 2024-06-25 10:12:59
+date: 2024-06-25T18:57:03.639Z
+updated: 2024-06-26T18:57:03.639Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,7 @@ There are many color wheels out there and all require understanding and research
 
 ## The Color Wheel
 
-Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
-
-![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
+Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
@@ -68,11 +66,11 @@ As you can see from all the movie covers above, they all use complementary color
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,3 +93,26 @@ By including this into your thought process when creating videos with [Filmora](
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-pioneering-sky-hdr-images-at-your-fingertips/"><u>[Updated] In 2024, Pioneering Sky HDR Images at Your Fingertips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-step-by-step-process-for-making-a-stellar-podcast-launch-video-for-2024/"><u>[New] Step-By-Step Process for Making a Stellar Podcast Launch Video for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-maximized-speed-the-prime-10-choices-of-srt-upgrades-for-pcs-and-macs/"><u>[Updated] Maximized Speed  The Prime 10 Choices of SRT Upgrades for PCs & Macs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-secrets-of-iphone-hdr-for-2024/"><u>[Updated] Unraveling the Secrets of iPhone HDR for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pioneering-the-digital-universe-the-present-and-future-landscape/"><u>2024 Approved  Pioneering the Digital Universe  The Present & Future Landscape</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-silence-to-spotlight-the-solo-podcast-artists-journey/"><u>[New] From Silence to Spotlight  The Solo Podcast Artist's Journey</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-essential-compendium-of-affordable-rich-graphics-resources-online-for-2024/"><u>The Essential Compendium of Affordable, Rich Graphics Resources Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-integrating-ai-assistants-into-slides-with-s2t-for-2024/"><u>[New] Integrating AI Assistants Into Slides with S2T for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elevate-visual-impact-with-custom-typography-in-after-effects/"><u>[New] Elevate Visual Impact with Custom Typography in After Effects</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-honor-90-pro-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Honor 90 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>In 2024, Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-video-capture-leaders-revealed/"><u>[Updated] Prime Video Capture Leaders Revealed</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capturing-contentment-top-streaming-techniques-for-2024/"><u>[New] Capturing Contentment  Top Streaming Techniques for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-streamlining-your-workflow-importing-and-exporting-videos-in-adobe-premiere-2023/"><u>Updated Streamlining Your Workflow Importing and Exporting Videos in Adobe Premiere 2023</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-into-the-future-with-desktop-tv-broadcasts/"><u>[New] 2024 Approved  Into the Future with Desktop TV Broadcasts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-phone-friendly-format-tips-for-shooting-vertical-video-for-2024/"><u>New Phone-Friendly Format Tips for Shooting Vertical Video for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-leveraging-synergies-how-to-choose-ideal-youtube-duosgroups/"><u>2024 Approved  Leveraging Synergies  How to Choose Ideal YouTube Duos/Groups</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/essential-top-5-xbox-hdds-for-gamers/"><u>Essential Top 5 Xbox HDDs for Gamers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-after-deleting-from-recently-deleted-on-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover deleted photos after deleting from Recently Deleted on iPhone | Stellar</u></a></li>
+</ul></div>

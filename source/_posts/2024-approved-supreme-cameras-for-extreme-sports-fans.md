@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Supreme Cameras for Extreme Sports Fans\""
-date: 2024-06-21 14:40:30
-updated: 2024-06-23 12:17:54
+date: 2024-06-25T18:59:33.737Z
+updated: 2024-06-26T18:59:33.737Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 
 ## Supreme Cameras for Extreme Sports Fans
 
-# Best Wearable Action Cameras For Extreme Sport
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Best Wearable Action Cameras For Extreme Sport ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -56,71 +54,51 @@ Most of adventure lovers prefer to carry a camera with them so that everything c
 | [Narrative Clip 2](#narrative)       | $199    | SE     | 19g    | 315mAh  | N                    | na                         | na           | 8MP    | N            | Y | Y |
 | [HTC RE Camera](#htcre)              | $129    | CN     | 66.5g  | 820mAh  | 1m without housing   | N                          | N            | 16MP   | 1080p/30fps  | Y | Y |
 
-#### 1\. GoPro Hero5 Session - $299
-
-![GoPro Hero5 Session](https://images.wondershare.com/filmora/article-images/gopro-hero-5-session.jpg)
+#### 1\. GoPro Hero5 Session - $299 ![GoPro Hero5 Session](https://images.wondershare.com/filmora/article-images/gopro-hero-5-session.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01LZTLCFX/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LZTLCFX&linkId=ea1830f57bf7ee4f930b77258f8b3654)
 
 This small attractive camera unit can capture amazing videos and photos for you. It is portable, waterproof, rugged and can assist you even in toughest situations. The best part is that you can easily mount it on any existing GoPro mount without spending on a new set of accessories. It can record videos with 4K resolution at 30fps but do not have GPS facility. The photo quality goes up to 10MP and the price range is also reasonable.
 
-#### 2\. Garmin Virb Ultra 30 - $399.99
-
-![Garmin Virb Ultra 30](https://images.wondershare.com/filmora/article-images/garmin-virb-ultra-30-design.jpg)
+#### 2\. Garmin Virb Ultra 30 - $399.99 ![Garmin Virb Ultra 30](https://images.wondershare.com/filmora/article-images/garmin-virb-ultra-30-design.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01HP4PMG0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HP4PMG0&linkId=2d8e1fcac7b9bbfc3231133dd50646c8)
 
 With 3 axis type optical stabilization, built in GPS, waterproof casing and live streaming capabilities, this camera is rated to be one of the favourite stuff for athletes. You can control its most of functions via voice control commands and it provides 4K resolution for video recording. In case of 1080p resolution at 30fps you will be able to get a battery backup of 2 hours 15 minutes. Professionals say that it is a pretty robust camera for capturing high octane scenes.
 
-#### 3\. Elmo QBIC MS-1 - $259.99
-
-![Elmo QBIC MS-1](https://images.wondershare.com/filmora/article-images/elmo-qbic-ms-1.jpg)
+#### 3\. Elmo QBIC MS-1 - $259.99 ![Elmo QBIC MS-1](https://images.wondershare.com/filmora/article-images/elmo-qbic-ms-1.jpg)
 
 Here is a water resistant type wide angle camera unit that can be easily paired up with smart phones using Wi-Fi interface. It is a light weight device that offers 1080p video recording along with 5MP picture clarity and you can store huge data with its 64GB microSD card support. This camera offers wide angle view of 185 degrees and you can easily upload your footage to internet via live SD streaming feature.
 
-#### 4\. Drift Compass - $129.99
-
-![Drift Compass](https://images.wondershare.com/filmora/article-images/Drift-Compass.jpg)
+#### 4\. Drift Compass - $129.99 ![Drift Compass](https://images.wondershare.com/filmora/article-images/Drift-Compass.jpg)
 
 With this camera you can captures stills at 8MP clarity and videos can be recorded with 1080p at 30fps whereas for 720p you can go ahead with 60fps. You can control complete functioning of camera via mobile device with the help of drift app. It battery can serve you for approximately two hours and it offers huge variety of mounting accessories.
 
-#### 5\. Sony FDR-1000V - $399.99
-
-![Sony FDR-1000V](https://images.wondershare.com/filmora/article-images/sony-fdr-1000.jpg)
+#### 5\. Sony FDR-1000V - $399.99 ![Sony FDR-1000V](https://images.wondershare.com/filmora/article-images/sony-fdr-1000.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00R1COCT0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00R1COCT0&linkId=eb0771cffd16191ae77ad0a5c6df67b1)
 
 Sony offers a versatile, rugged and splash resistant camcorder for action lovers so that they can capture all moments while trekking or diving. It comes with Wi-Fi connectivity and your phone can serve like live remote for this device. This camera provides 33’ underwater casing and high quality adhesive mounts so that users can easily wear it on vehicle, bike, helmet, boat or even on your pet.
 
-#### 6\. Qlippie Q1 - $199
-
-![Qlippie Q1](https://images.wondershare.com/filmora/article-images/qlippie-q1.jpg)
+#### 6\. Qlippie Q1 - $199 ![Qlippie Q1](https://images.wondershare.com/filmora/article-images/qlippie-q1.jpg)
 
 This slim and compact camera is capable enough to serve users with 60fps at 1080p and for stills it can go up to 8MP. The internal flash memory of Qlippie is 32GB and with its aluminium clip it can be easily attached to bag, purse or cloths for live recording. In order to reflect your personal style, this camera comes with 14 colourful stickers whereas WiFi connectivity allows easy interfacing with smart phone for remote control and wireless monitoring.
 
-#### 7\. Polaroid Cube+ - $99.99
-
-![Polaroid Cube+](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
+#### 7\. Polaroid Cube+ - $99.99 ![Polaroid Cube+](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
 Cube+ offers wide angle focus with 124 degree coverage lens and the magnetic body allows users to attach this device anywhere on metallic surface. As size of original Cube and Cube+ is almost equal so you can use same mounting accessories with both of these. Its rubberized body is impact resistant, splashproof and the 64GB capacity of microSD card allows huge storage for your long trips.
 
-#### 8\. Panasonic HX-A1 - $199
-
-![Panasonic HX-A1](https://images.wondershare.com/filmora/article-images/bullet-shape-action-camera.jpg)
+#### 8\. Panasonic HX-A1 - $199 ![Panasonic HX-A1](https://images.wondershare.com/filmora/article-images/bullet-shape-action-camera.jpg)
 
 Its maximum weight is only about 1.6 ounce and size goes up to 3.3”. This versatile camera unit can capture videos at 1080p whereas waterproof and quad proof design allows divers to take this camera up to 5’ under water without any additional casing. You can easily mount Panasonic HX-A1 on board, bike and helmet while capturing everything in hands-free motion on the way.
 
-#### 9\. Narrative Clip - $199
-
-![Narrative Clip](https://images.wondershare.com/filmora/article-images/Narrative-Clip-2.jpg)
+#### 9\. Narrative Clip - $199 ![Narrative Clip](https://images.wondershare.com/filmora/article-images/Narrative-Clip-2.jpg)
 
 The Clip 2 is one of the ultra compact and portable camera units with very light weight and attractive design. This digital camera cannot shoot videos for you but in order to capture stills it makes awesome focus adjustments. The built in accelerometer of this camera helps action lovers to capture flipping photos with awesome clarity.
 
-#### 10\. HTC RE Camera - $129
-
-![HTC RE Camera](https://images.wondershare.com/filmora/article-images/htc-re.jpg)
+#### 10\. HTC RE Camera - $129 ![HTC RE Camera](https://images.wondershare.com/filmora/article-images/htc-re.jpg)
 
 It offers 16MP capabilities for stills along with 1080p at 30fps for videos. You can mount this camera on tripod and its creative shot capturing abilities allows users to go beyond imagination. This device is waterproof with 3.3’ rating and for more advanced controls you can operate it from Bluetooth, WI-Fi connectivity on android and iOS. The mounting accessories are offered by HTC separately as per need of user, you can easily buy them when it is time to be more adventurous with your videos.
 
@@ -148,3 +126,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-uncovering-the-webs-leading-marketplaces-for-ringtones/"><u>[Updated] Uncovering the Web's Leading Marketplaces for Ringtones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-detailed-overview-of-xvision-labs-comprehensive-study/"><u>[Updated] 2024 Approved  Detailed Overview of XVision Lab's Comprehensive Study</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-understanding-collective-views-on-vllo-for-2024/"><u>[New] Understanding Collective Views on VLLO for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ideal-cameras-perfect-for-smooth-podcasting-for-2024/"><u>[Updated] Ideal Cameras Perfect for Smooth Podcasting for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-inside-the-core-a-thorough-insight-into-xstudio-video-studio-for-2024/"><u>[Updated] Inside the Core  A Thorough Insight Into XStudio Video Studio for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-calculating-the-sequence-length-of-a-20mb-file/"><u>[Updated] 2024 Approved  Calculating the Sequence Length of a 20MB File</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-breathtaking-beijing-winter-games-of-2022/"><u>[Updated] 2024 Approved  The Breathtaking Beijing Winter Games of 2022</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-syncing-voice-with-images-online-for-2024/"><u>[New] Syncing Voice with Images Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-alert-tones-superior-download-sites-list/"><u>[New] Top Alert Tones  Superior Download Sites List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-8-criteria-when-expanding-your-4k-setup/"><u>2024 Approved  Top 8 Criteria When Expanding Your 4K Setup</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-essential-strategies-for-capturing-your-best-moments-in-snapchat/"><u>2024 Approved  Essential Strategies for Capturing Your Best Moments in Snapchat</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fb-streamer-capture-and-save-videos-for-2024/"><u>[New] FB-Streamer  Capture and Save Videos for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-motorola-moto-e13-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Motorola Moto E13 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-broadcasts-made-simple-an-easy-to-follow-obs-guide/"><u>In 2024, Youtube Broadcasts Made Simple  An Easy-to-Follow OBS Guide</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-integrating-airpods-with-your-desktop-system/"><u>2024 Approved Integrating AirPods with Your Desktop System</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Vivo Y77t? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-key-methods-for-silent-screen-imaging/"><u>2024 Approved  Key Methods for Silent Screen Imaging</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-bypass-samsungs-vr-camera-here-are-your-top-alternatives/"><u>In 2024, Bypass Samsung’s VR Camera - Here Are Your Top Alternatives</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-negative-time-videos-on-instagram/"><u>[Updated] 2024 Approved  The Ultimate Guide to Negative-Time Videos on Instagram</u></a></li>
+</ul></div>

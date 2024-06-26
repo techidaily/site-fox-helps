@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Remove a Background in Affinity Photo\""
-date: 2024-06-20 12:42:10
-updated: 2024-06-23 12:49:20
+date: 2024-06-25T19:00:58.414Z
+updated: 2024-06-26T19:00:58.414Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,7 @@ Affinity Photo is a simple and easy-to-use editing software, and you can remove 
 
 To erase a white background in Affinity Designer, do these steps:
 
-Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/)software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
+Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/) software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
 
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
@@ -89,7 +89,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
-Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
@@ -123,7 +123,7 @@ Hopefully, this article and video can help you create ideal images!
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
-Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
@@ -174,3 +174,26 @@ Hopefully, this article and video can help you create ideal images!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-best-slideshow-apps-iphone-series-8-series-12/"><u>In 2024, Best Slideshow Apps (iPhone Series 8-Series 12)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-virtual-quest-evaluating-current-progress-and-potential-hurdles/"><u>2024 Approved  The Virtual Quest  Evaluating Current Progress & Potential Hurdles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-skys-brilliance-top-10-hd-renditions-websites-for-2024/"><u>[New] Sky's Brilliance  Top 10 HD Renditions Websites for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-androidios-video-cutting-edge-8-top-montage-tools-revealed/"><u>In 2024, Android/iOS Video Cutting-Edge  8 Top Montage Tools Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-cartoon-combo-merging-filters-and-snaps-seamlessly-for-2024/"><u>[Updated] The Ultimate Cartoon Combo  Merging Filters and Snaps Seamlessly for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-humorhub-design-your-own-jokes-and-gifs/"><u>[New] HumorHub  Design Your Own Jokes and Gifs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-upholders-of-popularity-the-10-most-loved-reddit-stories/"><u>[Updated] Upholders of Popularity  The 10 Most Loved Reddit Stories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/no-frills-affordable-camera-selections-for-2024/"><u>No-Frills, Affordable Camera Selections for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tiktok-unboxers-guide-to-enhanced-video-engagement-and-likes/"><u>[New] 2024 Approved  TikTok Unboxers Guide to Enhanced Video Engagement and Likes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-oppo-reno-11-pro-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Oppo Reno 11 Pro 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamlining-your-social-media-presence-with-zoom-and-fb-live-for-2024/"><u>Streamlining Your Social Media Presence with ZOOM & FB Live for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-free-avi-video-rotation-solutions-16-best-options-for-multiple-operating-systems-for-2024/"><u>Updated Free AVI Video Rotation Solutions 16 Best Options for Multiple Operating Systems for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-studio-to-stage-stream-your-mp3-tunes-on-youtube-for-2024/"><u>[New] From Studio to Stage  Stream Your MP3 Tunes on YouTube for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elevate-your-gameplay-records-with-advanced-methods-on-w11-for-2024/"><u>[Updated] Elevate Your Gameplay Records with Advanced Methods on W11 for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/breaking-free-from-youtube-the-best-27-online-video-sites-compared-for-2024/"><u>Breaking Free From YouTube  The Best 27 Online Video Sites Compared for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-v29-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo V29 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-embed-a-youtube-playlist-on-a-website/"><u>[Updated] 2024 Approved  How To Embed A YouTube Playlist On a Website</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-top-10-relaxing-hobbies-outside-the-athletic-domain/"><u>[New] In 2024, Top 10 Relaxing Hobbies Outside the Athletic Domain</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-discover-the-top-12-tycoon-games-for-captivating-players/"><u>[New] 2024 Approved  Discover the Top 12 Tycoon Games for Captivating Players</u></a></li>
+</ul></div>

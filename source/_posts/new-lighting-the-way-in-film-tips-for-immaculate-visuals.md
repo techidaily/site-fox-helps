@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lighting the Way in Film  Tips for Immaculate Visuals\""
-date: 2024-06-22 19:24:21
-updated: 2024-06-25 10:33:15
+date: 2024-06-25T18:59:57.607Z
+updated: 2024-06-26T18:59:57.607Z
 tags: 
   - screen-recording
   - ai video
@@ -44,21 +44,15 @@ A Fresnel lens is an optional attachment that can bounce the light off of the ce
 
 For this tutorial, we will use the Three-Point Lighting technique:
 
-##### Step1 Set the Key Light
-
-![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+##### Step1 Set the Key Light ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
-##### Step2 Set the Fill Light
-
-![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+##### Step2 Set the Fill Light ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
-##### Step3 Set the Backlight
-
-![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+##### Step3 Set the Backlight ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -123,3 +117,26 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-podcast-perfection-editing-techniques-in-garageband-for-2024/"><u>[New] Podcast Perfection  Editing Techniques in GarageBand for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-quick-quality-edits-the-ultimate-guide-to-pixlr/"><u>[New] 2024 Approved  Quick, Quality Edits  The Ultimate Guide to Pixlr</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mkv-playback-top-macos-apps-reviewed/"><u>2024 Approved  MKV Playback  Top macOS Apps Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-photopea-blueprint-for-flawless-image-backdrop-for-2024/"><u>[New] The Photopea Blueprint for Flawless Image Backdrop for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-sculpting-stories-with-specialty-fonts-in-after-effects/"><u>[New] In 2024, Sculpting Stories with Specialty Fonts in After Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-essential-action-cam-recommendations-for-winter-sports/"><u>[Updated] 2024 Approved  Essential Action Cam Recommendations for Winter Sports</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-tips-for-kinemaster-proficiency-and-excellent-competitors/"><u>[Updated] In 2024, Essential Tips for KineMaster Proficiency and Excellent Competitors</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-decoding-whatsapps-vocal-messaging-innovation-for-2024/"><u>[New] Decoding WhatsApp's Vocal Messaging Innovation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/viral-visionaries-top-ten-meme-templates-exposed-for-2024/"><u>Viral Visionaries  Top Ten Meme Templates Exposed for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-moments-of-happiness-animated-filters-on-your-phone-for-2024/"><u>[Updated] Crafting Moments of Happiness  Animated Filters on Your Phone for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-update-your-drivers-on-windows-10-and-7-by-drivereasy-guide/"><u>How to use Device Manager to update your drivers on Windows 10 & 7</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-the-ultimate-list-best-free-online-video-editing-software/"><u>Updated The Ultimate List Best Free Online Video Editing Software</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone 11 Pro Max</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/hilarity-hub-spotlighting-top-comedy-stars-and-their-influence-on-tiktok/"><u>Hilarity Hub  Spotlighting Top Comedy Stars and Their Influence on TikTok</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-realities-redefined-the-metaverse-vs-omniverse-showdown-explained/"><u>In 2024, Realities Redefined  The Metaverse Vs. Omniverse Showdown Explained</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-complete-guide-of-top-video-language-translators/"><u>Updated 2024 Approved Complete Guide of Top Video Language Translators</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-infinix-hot-30-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Infinix Hot 30 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-overcoming-non-detectable-obs-camera-link/"><u>[New] 2024 Approved  Overcoming Non-Detectable OBS Camera Link</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quick-guide-to-mosaic-creation-on-apple-devices/"><u>[New] Quick Guide to Mosaic Creation on Apple Devices</u></a></li>
+</ul></div>

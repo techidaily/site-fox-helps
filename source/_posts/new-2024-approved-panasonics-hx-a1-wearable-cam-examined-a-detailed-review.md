@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Panasonic’s HX-A1 Wearable Cam Examined - A Detailed Review\""
-date: 2024-06-25 21:23:32
-updated: 2024-06-26 12:30:22
+date: 2024-06-25T19:35:42.790Z
+updated: 2024-06-26T19:35:42.790Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ## Panasonic’s HX-A1 Wearable Cam Examined - A Detailed Review
 
-# Panasonic HX-A1 Wearable Action Camera Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Panasonic HX-A1 Wearable Action Camera Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -32,9 +30,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-## Design and Usability
-
-![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+## Design and Usability ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
@@ -96,9 +92,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 #### Wind jammer and strap adapter
 
- Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all!
-
-[Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
+ Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Features
 
@@ -158,3 +152,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/dynamic-duo-photography-and-musical-composition-for-2024/"><u>Dynamic Duo  Photography & Musical Composition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-downloading-luts-a-compreited-resource-for-ar-experts/"><u>[New] In 2024, Downloading LUTs  A Compreited Resource for AR Experts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-inventory-list-a-range-of-video-recording-devices/"><u>In 2024, Inventory List  A Range of Video Recording Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unleash-potential-with-magix-video-pro-xs-power-tools/"><u>[Updated] 2024 Approved  Unleash Potential with Magix Video Pro X's Power Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-heavy-duty-drone-powerhouses-for-2024/"><u>[New] The Ultimate Guide to Heavy-Duty Drone Powerhouses for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-tailored-ending-scenes-get-em-for-free/"><u>2024 Approved  Tailored Ending Scenes - Get 'Em for Free</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-dynamic-photovideo-gimbal-unmatched-stabilization/"><u>In 2024, Dynamic Photo/Video Gimbal  Unmatched Stabilization</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-typical-podcasters-income/"><u>[Updated] In 2024, Unveiling the Typical Podcaster's Income</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-design-memes-in-adobe/"><u>[New] Design Memes in Adobe</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-your-design-how-to-eliminate-backgrounds-in-figma/"><u>[New] Unveiling Your Design  How To Eliminate Backgrounds in Figma</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-iphone-15-plus-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your iPhone 15 Plus for Free</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-ultimate-guide-to-ai-infused-gaming-broadcasts/"><u>2024 Approved  The Ultimate Guide to AI-Infused Gaming Broadcasts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-essential-techniques-for-efficient-iphone-7-recording-for-2024/"><u>[Updated] Essential Techniques for Efficient iPhone 7 Recording for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-streamlining-your-workflow-importing-and-exporting-videos-in-adobe-premiere-2023/"><u>In 2024, Streamlining Your Workflow Importing and Exporting Videos in Adobe Premiere 2023</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-nubia-red-magic-9-proplus-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Nubia Red Magic 9 Pro+ Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-break-the-chain-of-interruptions-on-facebook-lives/"><u>[New] In 2024, Break the Chain of Interruptions on Facebook Lives</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-optimal-camera-balance-for-drone-use/"><u>2024 Approved  Optimal Camera Balance for Drone Use</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-apps-for-gaming-playback-for-2024/"><u>Premium Apps for Gaming Playback for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-quick-guide-best-free-instagram-to-mp4-tools-windowsmac-for-2024/"><u>[New] Quick Guide  Best Free Instagram-to-MP4 Tools (Windows/Mac) for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-zte-nubia-z60-ultra-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of ZTE Nubia Z60 Ultra?</u></a></li>
+</ul></div>

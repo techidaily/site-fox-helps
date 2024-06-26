@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Melodies Meet Graphics  Adding Soundtracks to PowerPoint\""
-date: 2024-06-22 22:30:53
-updated: 2024-06-23 10:58:30
+date: 2024-06-25T19:10:40.487Z
+updated: 2024-06-26T19:10:40.487Z
 tags: 
   - screen-recording
   - ai video
@@ -80,9 +80,7 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
-
-![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -102,9 +100,7 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide
-
-![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -122,9 +118,7 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions
-
-![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -212,9 +206,7 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
-
-![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -234,9 +226,7 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide
-
-![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -254,9 +244,7 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions
-
-![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -344,9 +332,7 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
-
-![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -366,9 +352,7 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide
-
-![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -386,9 +370,7 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions
-
-![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -476,9 +458,7 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
-
-![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -498,9 +478,7 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide
-
-![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -518,9 +496,7 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions
-
-![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -577,3 +553,26 @@ So, we're now concluding on how to add music to PowerPoint along with describing
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-chime-chronicles-mastering-the-art-of-tamil-ringtones/"><u>2024 Approved  Chime Chronicles  Mastering the Art of Tamil Ringtones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-sierra-sovereign-dvd-and-media-cutting-tools-for-2024/"><u>[Updated] Sierra Sovereign Dvd & Media Cutting Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-into-another-realm-the-vr-timeline/"><u>[Updated] Into Another Realm  The VR Timeline</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-zoom-incorporating-video-effects-step-by-step-for-2024/"><u>[New] Mastering Zoom  Incorporating Video Effects Step by Step for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-discover-the-premier-complimentary-voice-transform-for-valorant/"><u>[Updated] 2024 Approved  Discover the Premier, Complimentary Voice Transform for Valorant</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-tech-gems-best-desktops-revealed/"><u>[New] In 2024, Ultimate Tech Gems - Best Desktops Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-bridging-language-barriers-adding-subtitles-to-windows-media-player/"><u>[Updated] Bridging Language Barriers  Adding Subtitles to Windows Media Player</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-filmmakers-guide-to-accompanying-unboxings-with-tunes-for-2024/"><u>[Updated] The Filmmaker's Guide to Accompanying Unboxings with Tunes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-streamlined-process-for-hassle-free-hdr-shots/"><u>[New] Streamlined Process for Hassle-Free HDR Shots</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/eye-catching-images-windows-10s-screenshot-feature/"><u>Eye-Catching Images  Windows 10'S Screenshot Feature</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/the-art-of-sound-visualization-combining-waveform-graphics-and-animation-techniques-in-premiere-pro-for-2024/"><u>The Art of Sound Visualization Combining Waveform Graphics & Animation Techniques in Premiere Pro for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-zero-to-hero-in-advertising-top-strategies-unveiled-by-experts/"><u>From Zero to Hero in Advertising  Top Strategies Unveiled by Experts</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/the-2023-guide-to-text-motion-graphics-and-tracking-tools-for-2024/"><u>The 2023 Guide to Text Motion Graphics and Tracking Tools for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-urban-uprising-video-game-list-like-gta-v/"><u>[Updated] Urban Uprising  Video Game List Like GTA V</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-resource-50plus-no-fee-visual-effects-websites-reviewed/"><u>In 2024, The Ultimate Resource  50+ No-Fee Visual Effects Websites Reviewed</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-optimizing-video-income-on-youtube-a-practical-guide/"><u>In 2024, Optimizing Video Income on Youtube  A Practical Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-guide-to-ppro-fs-viewing/"><u>2024 Approved  The Ultimate Guide to PPro FS Viewing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-behind-the-scenes-insights-deciphering-what-unlisted-means-for-youtube-users/"><u>[Updated] 2024 Approved  Behind-the-Scenes Insights  Deciphering What 'Unlisted' Means for YouTube Users</u></a></li>
+</ul></div>

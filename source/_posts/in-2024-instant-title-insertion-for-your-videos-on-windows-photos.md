@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Instant Title Insertion for Your Videos on Windows Photos"
-date: 2024-06-24 14:20:11
-updated: 2024-06-26 11:54:51
+date: 2024-06-25T19:49:38.572Z
+updated: 2024-06-26T19:49:38.572Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
 
 ## Instant Title Insertion for Your Videos on Windows Photos
 
-# How to Add Titles/Text to Video on Photos App in Windows 10
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Add Titles/Text to Video on Photos App in Windows 10 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -38,14 +36,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
 
 * Firstly, divide your videos into sections. Add section titles to the background video or image. Use relevant image for each section and add a section header. If you do not have any relevant image, search from the web by clicking on add Photos/videos.
-* Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
+* Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
-* Resize the image if black parts appear by clicking on resize and then, remove black parts
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+* Resize the image if black parts appear by clicking on resize and then, remove black parts ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -58,19 +52,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Open the Photos app
 * At the top, you can find “Create” option in blue color and choose it. From the drop-down menu, select the custom video with the music option. At the top right corner of the video, check the box you wish to edit
 * Click on Add and drag the video to the timeline below. Go to the effects menu and click 3D effects
-* On the right, find the effects sidebar and select any effect that you find suitable for your video text
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
+* On the right, find the effects sidebar and select any effect that you find suitable for your video text ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
-* To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
+* To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
-
-* To increase or decrease the length of animation time, adjust the slider
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
+* To increase or decrease the length of animation time, adjust the slider ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
@@ -102,3 +90,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-premier-real-time-video-distribution-tools/"><u>[Updated] 2024 Approved  Premier Real-Time Video Distribution Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-in-depth-analysis-lg-bp350s-visual-clarity-and-color-range/"><u>[New] 2024 Approved  In-Depth Analysis  LG BP350's Visual Clarity and Color Range</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-scrutinizing-if-opinions-on-items-are-paid-for/"><u>2024 Approved  Scrutinizing if Opinions on Items Are Paid For</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unparalleled-narratives-yt-channels-worth-watching-in-23/"><u>[Updated] 2024 Approved  Unparalleled Narratives  YT Channels Worth Watching in '23</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/videology-app-analysis-and-ratings-for-2024/"><u>Videology App Analysis & Ratings for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-from-tweeted-videos-to-downloadable-mp3-files/"><u>In 2024, From Tweeted Videos to Downloadable MP3 Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-echoes-and-essence-pairing-sounds-with-images/"><u>[New] 2024 Approved  Echoes & Essence  Pairing Sounds with Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pro-fishing-cams-ranked-your-ultimate-guide-for-2024/"><u>[Updated] Pro-Fishing Cams Ranked  Your Ultimate Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/obs-and-wirecast-clash-which-tops-in-live-broadcasting/"><u>OBS and Wirecast Clash  Which Tops in Live Broadcasting</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-tunewizard-pro-expertly-organize-your-music-library-across-windowsmac-platforms-for-2024/"><u>Updated TuneWizard Pro Expertly Organize Your Music Library Across Windows/Mac Platforms for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/finding-your-perfect-tone-strategies-for-personalized-vocal-change/"><u>Finding Your Perfect Tone Strategies for Personalized Vocal Change</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-discover-the-leading-free-ios-video-editor-a-comprehensive-guide-for-2024/"><u>[New] Discover the Leading Free iOS Video Editor  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-how-to-make-a-professional-looking-movie-on-your-mac-for-2024/"><u>Updated How to Make a Professional-Looking Movie on Your Mac for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oppo-find-x6-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Oppo Find X6 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-essential-skills-for-youtube-gamers/"><u>[New] In 2024, Essential Skills for YouTube Gamers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-gpu-renaissance-amd-radeon-redux/"><u>[Updated] 2024 Approved  GPU Renaissance  AMD Radeon Redux</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-legacy-hdmi-linkup/"><u>[Updated] In 2024, Legacy HDMI Linkup</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-android-podcast-apps/"><u>[Updated] Leading Android Podcast Apps</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-dynamics-of-home-security-manycam-vs-single-camera-tech-for-2024/"><u>[New] The Dynamics of Home Security  ManyCam Vs. Single-Camera Tech for 2024</u></a></li>
+</ul></div>

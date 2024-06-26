@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Easy Guide to Firefox's Popup Window Excellence"
-date: 2024-06-22 14:31:48
-updated: 2024-06-23 12:34:40
+date: 2024-06-25T19:24:55.313Z
+updated: 2024-06-26T19:24:55.313Z
 tags: 
   - screen-recording
   - ai video
@@ -22,7 +22,7 @@ Using your PC to watch films while working on something else has recently been p
 
 This feature is an important tool to help you multitask by dragging videos from web pages and navigating to another tab so you can continue working on other tabs while the video keeps playing. In this article, you will understand everything about this feature and how to enable this feature.
 
-![the firefox]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-1.jpg)
+![the firefox](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-1.jpg)
 
 ## Part 1\. How Picture-in-Picture Mode Works
 
@@ -52,16 +52,16 @@ Here's how to activate picture-in-picture video control in Firefox**:**
 2. Click on the 3 horizontal lines in the top-right menu.
 3. Choose the **Options/Settings** from the menu list. This opens the settings mode and its general model.
 
-![choose the options/settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
+![choose the options/settings](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
 
 1. Scroll down in the General mode to locate the **Browsing** settings option.
 2. Here, you will see a list of browsing settings; click to select the '**Enable picture in picture video controls'**, and check the box.
 
-![a list of browsing settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
+![a list of browsing settings](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
 
 Following the above procedure, you may now see the Firefox Picture-in-Picture symbol in the video streaming player. Whenever you visit a streaming site, a symbol for pip mode appears as an overlay on the video screen.
 
-![the firefox picture in picture symbol]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-4.jpg)
+![the firefox picture in picture symbol](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-4.jpg)
 
 You can load only a single video using the above guideline. Suppose you want to lunch multiple videos to increase your multitasking experience. In that case, follow the outlined procedure:
 
@@ -71,7 +71,7 @@ You can load only a single video using the above guideline. Suppose you want to 
 4. Repeat the preceding steps on the same page or in a separate tab to open several movies.
 5. Firefox plays the new video above the first. Drag and drop it anywhere to display both.
 
-![the new video above the first]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
+![the new video above the first](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
 
 By following these steps, videos appear on the screen at the same time. For all tabs containing open videos, the main Firefox window shows a "play" symbol. Even if you dismiss Firefox, numerous videos will continue to play in other programs or on your desktop.
 
@@ -79,7 +79,7 @@ By following these steps, videos appear on the screen at the same time. For all 
 
 Sometimes, the PiP mode can disturb necessary research or task that needs your full concentration. In this scenario, disabling the Picture-in-Picture mode is a way to get your task done with the optimum attention. If you want to turn off Picture-in-Picture mode and return to the video tab, hover over the video, then click the following icon **“X”**.
 
-![click the following icon]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
+![click the following icon](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
 
 ## Part 4\. Other tips about Picture-in-Picture Mode in Firefox
 
@@ -91,7 +91,7 @@ Another mode of having your picture-in-picture mode on Firefox is using the avai
 
 It is also possible to enable and disable the picture-in-picture mode using keyboard shortcuts. To get this done, use the key combination of **'Ctrl + Shift + \]'**. By simultaneously holding these keys, Firefox will launch the relevant video on the web page into a picture-in-picture mode. However, if the feature has been enabled before pressing the key combination, it automatically disables the feature.
 
-![the key combination]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-7.jpg)
+![the key combination](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-7.jpg)
 
 ## Part 5\. FAQs
 
@@ -138,3 +138,27 @@ Picture-in-Picture is a nice feature that helps you increase productivity while 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-windows-10-speaks-a-summary-of-recent-additions/"><u>In 2024, Windows 10 Speaks  A Summary of Recent Additions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-photo-perfection-highest-rated-phone-tripods/"><u>In 2024, Photo Perfection  Highest Rated Phone Tripods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-protecting-beats-on-instagram/"><u>[New] 2024 Approved  Protecting Beats on Instagram</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-coordinated-audio-visual-grouping-space-for-2024/"><u>[Updated] Coordinated Audio-Visual Grouping Space for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-supreme-select-iphone-customized-sound-crafting/"><u>[Updated] Supreme Select  IPhone Customized Sound Crafting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-video-avi-into-graphic-image-gif-filmoras-complete-guide/"><u>[New] 2024 Approved  Mastering Video (AVI) Into Graphic Image (GIF)  Filmora's Complete Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultra-hd-unveiled-delving-into-the-features-of-lg-27ud88-uhd-tv/"><u>[New] In 2024, Ultra HD Unveiled  Delving Into the Features of LG 27UD88-UHD TV</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/superior-4k-playback-best-blu-ray-machines-ranked-for-2024/"><u>Superior 4K Playback  Best Blu-Ray Machines Ranked for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-effortless-capture-of-webcast-radios-your-practical-guide-for-2024/"><u>[New] Effortless Capture of Webcast Radios  Your Practical Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-galaxy-visionhub-premium-integrated-4k-all-in-one-panels/"><u>[New] 2024 Approved  Galaxy VisionHub  Premium Integrated 4K All-in-One Panels</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/analyzing-lack-of-interaction-is-it-a-block-for-2024/"><u>Analyzing Lack of Interaction  Is It a Block for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-capture-life-smoothly-top-5-free-android-video-stabilization-apps/"><u>New In 2024, Capture Life Smoothly Top 5 Free Android Video Stabilization Apps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/strategic-sound-shifts-winning-with-words-in-free-fire-for-2024/"><u>Strategic Sound Shifts  Winning with Words in Free Fire for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-enhance-your-films-with-these-vfx-sites-for-2024/"><u>[Updated] Enhance Your Films with These VFx Sites for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-amplifying-your-content-free-techniques-to-boost-youtube-views-for-2024/"><u>[Updated] Amplifying Your Content  Free Techniques to Boost YouTube Views for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-comparing-profits-from-high-ranking-youtube-videos/"><u>[New] Comparing Profits From High-Ranking YouTube Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-leading-social-media-hash-tracking-software-for-fb-tweet-and-insta/"><u>[New] 2024 Approved  Leading Social Media Hash Tracking Software for FB, Tweet & Insta</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-digital-media-compreenhensive-srt-to-other-guidebook-for-2024/"><u>Unlocking Digital Media  Compreenhensive SRT-to-Other Guidebook for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-secret-pathway-to-premium-pristine-pictures/"><u>[New] The Secret Pathway to Premium, Pristine Pictures</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-hero5-black-meets-yi-4k-the-ultimate-update-for-action-camera-fans/"><u>In 2024, Hero5 Black Meets Yi 4K - The Ultimate Update for Action Camera Fans</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Captivating Podcasts  A Step-by-Step Writing Guide\""
-date: 2024-06-22 21:54:44
-updated: 2024-06-23 11:32:21
+date: 2024-06-25T18:59:02.410Z
+updated: 2024-06-26T18:59:02.410Z
 tags: 
   - screen-recording
   - ai video
@@ -74,24 +74,24 @@ The first right candidate for the word-for-word script is the one about to land 
 
 **Structure**
 
-* Intro: Introduce yourself, the topic of discussion, and the guests if there; episode teaser (Span: \_\_\_ )
+* Intro: Introduce yourself, the topic of discussion, and the guests if there; episode teaser (Span: \_\_\_)
 * \[Sponsor message\]
 * \[Theme music\]
-* Topic 1: \_\_\_\_\_(Span: \_\_ )
+* Topic 1: \_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
 * Segue (can be a phrase, a piece of music, or a sound effect)
-* Topic 2: \_\_\_\_\_\_\_(Span: \_\_ )
+* Topic 2: \_\_\_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
 * \[Sponsor message\]
-* Topic 3: \_\_\_\_\_\_\_(Span: \_\_ )
+* Topic 3: \_\_\_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
-* Outro: \_\_\_\_\_ (Span: \_\_ )
+* Outro: \_\_\_\_\_ (Span: \_\_)
 * Overview
 * Call to action
 * \[Closing theme music\]
@@ -132,19 +132,19 @@ See you in the upcoming episode with another interesting topic \[topic name\].
 
 **Podcast Example:**
 
-##### [Unfictional](https://www.kcrw.com/culture/shows/unfictional/cabin-notebook?utm%5Fsource=KCRW&utm%5Fmedium=RSS&utm%5Fcampaign=kcrw-show-rss)
+##### Unfictional
 
 An interesting narrative-style podcast hosted and produced by Bob Carlson.
 
 ![unfictional narrative podcast](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-2.jpg)
 
-##### [S-Town](https://podcasts.apple.com/us/podcast/s-town/id1212558767)
+##### S-Town
 
 A crime story podcast hosted by Brian Reed from Serial Productions, a New York Times company.
 
 ![s town cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-3.jpg)
 
-##### [Bill Burr's Monday Morning](https://open.spotify.com/show/5SFiQlOQ3EKmwp0chE1QzY)
+##### Bill Burr's Monday Morning
 
 A solo podcast hosted by Bill Burr.
 
@@ -201,13 +201,13 @@ CTAs: If you want to hear more interesting podcasts like this one, follow the ch
 
 **Podcast Example**
 
-##### [Smartless](https://open.spotify.com/show/0Yzd0g8NYmn27k2HFNplv7)
+##### Smartless
 
 "SmartLess" with Jason Bateman, Sean Hayes, & Will Arnett is a podcast where people from different fields of life come to share their life experiences.
 
 ![smartless podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-5.jpg)
 
-##### [The Joe Rogan Experience](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+##### The Joe Rogan Experience
 
 Hosted by Joe Rogan, a conversational style podcast it is.
 
@@ -224,17 +224,17 @@ Hosts who love ad-libbing just need a bulleted list of some points to do an epis
 
 **Structure**
 
-* Intro: \_\_\_\_\_ (Span: \_\_\_\_\_ )
+* Intro: \_\_\_\_\_ (Span: \_\_\_\_\_)
 * \[Sponsor message\]
 * \[Theme music\]
-* Topic 1: \_\_\_\_\_\_\_ (Span: \_\_\_\_ )
+* Topic 1: \_\_\_\_\_\_\_ (Span: \_\_\_\_)
 * Notations
-* Topic 2: \_\_\_\_\_\_\_ (Span: \_\_\_\_ )
+* Topic 2: \_\_\_\_\_\_\_ (Span: \_\_\_\_)
 * Notations
 * Segue
-* Topic 3: \_\_\_\_\_\_\_ (Duration: \_\_\_\_ )
+* Topic 3: \_\_\_\_\_\_\_ (Duration: \_\_\_\_)
 * Notations
-* Outro: \_\_\_\_\_ (Duration: \_\_\_\_ )
+* Outro: \_\_\_\_\_ (Duration: \_\_\_\_)
 * \[Ending music\]
 
 **Template**
@@ -261,19 +261,19 @@ CTAs: Follow the channel and forward it to your friends if you want to listen to
 
 **Podcast Example**
 
-##### [WTF with Marc Maron](http://www.wtfpod.com/)
+##### WTF with Marc Maron
 
 "WTF with Marc Maron" is a comedy podcast show with a growing list of episodes. It's one of the best examples of an Ad-libbed flexible podcast script.
 
 ![wtf podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-7.jpg)
 
-##### [Conan O'Brien Needs a Friend](https://open.spotify.com/show/3u26tlz7A3WyWRtXliX9a9)
+##### Conan O'Brien Needs a Friend
 
 A comedy podcast hosted by Conan.
 
 ![comedy podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-8.jpg)
 
-##### [2 Bears, 1 Cave with Tom Segura & Bert Kreischer](https://open.spotify.com/show/1PgDUTgeyu3FOzK1FcBoqa)
+##### 2 Bears, 1 Cave with Tom Segura & Bert Kreischer
 
 Together, two close friends make each other laugh.
 
@@ -390,3 +390,24 @@ The crux of our discussion is that a compelling podcast script makes it simple t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-camera-essentials-for-rookie-filmmakers/"><u>[Updated] 2024 Approved  Camera Essentials for Rookie Filmmakers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-effective-methods-for-downloading-audio-tracks-from-pinterest-videos/"><u>[Updated] 2024 Approved  Effective Methods for Downloading Audio Tracks From Pinterest Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-onoff-switch-windows-11s-auto-hdr-feature-for-2024/"><u>[New] On/Off Switch  Windows 11'S Auto-HDR Feature for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-future-of-virtuality-top-tier-oculus-rift-reviews/"><u>2024 Approved  The Future of Virtuality  Top-Tier Oculus Rift Reviews</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/stepping-into-silence-fading-out-audio-in-adobe-premiere-pro-for-2024/"><u>Stepping Into Silence  Fading Out Audio in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-fast-fb-videos-innovative-techniques-and-software-roundup/"><u>[Updated] 2024 Approved  Mastering Fast FB Videos  Innovative Techniques and Software Roundup</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beginners-overview-of-animation-trends/"><u>Beginner's Overview of Animation Trends</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-a-beginners-guide-making-your-podcasts-rss-feed/"><u>[New] In 2024, A Beginner's Guide  Making Your Podcast's RSS Feed</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/top-10-tiktok-sensations-spreading-via-tweets/"><u>Top 10 TikTok Sensations Spreading via Tweets</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/immersive-windows-display-snapshots/"><u>Immersive Windows Display Snapshots</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-comprehensive-insights-into-polarr-photo-enhancer/"><u>2024 Approved  Comprehensive Insights Into Polarr Photo Enhancer</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unlock-the-power-of-podcasts-15-task-filled-activities-to-do-while-listening-to-your-favorite-talk-shows/"><u>[New] Unlock the Power of Podcasts  15 Task-Filled Activities to Do While Listening to Your Favorite Talk Shows</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-xiaomi-redmi-12-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Xiaomi Redmi 12 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-realme-12plus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/easy-to-use-zoom-camera-for-instant-sharing-for-2024/"><u>Easy-to-Use Zoom Camera for Instant Sharing for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-counteract-bot-visitors-for-real-audience-growth/"><u>2024 Approved  Counteract Bot Visitors for Real Audience Growth</u></a></li>
+</ul></div>
