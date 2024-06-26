@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Helps Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-helps.techidaily.com](https://fox-helps.techidaily.com)
 
 ## Publish
 
