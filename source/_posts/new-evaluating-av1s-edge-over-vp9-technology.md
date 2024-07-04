@@ -1,7 +1,7 @@
 ---
 title: "[New] Evaluating AV1's Edge Over VP9 Technology"
-date: 2024-06-25T19:21:47.912Z
-updated: 2024-06-26T19:21:47.912Z
+date: 2024-07-03T13:07:35.625Z
+updated: 2024-07-04T13:07:35.625Z
 tags: 
   - screen-recording
   - ai video
@@ -76,7 +76,8 @@ For these reasons, use [Filmora 11](https://tools.techidaily.com/wondershare/fil
 
 Apply these steps to create an MP4 AV1 video on Filmora 11:
 
-##### Step1Customize video settings and upload a video ![av1 vs vp9 load video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-4.jpg)
+##### Step1Customize video settings and upload a video
+![av1 vs vp9 load video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-4.jpg)
 
 Install and run [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your computer, then select the video aspect ratio. For example, choose 16:9 (Widescreen) for YouTube videos. After that, start a **New Project** and click **Import Media** to load the video. Of course, you can load multiple videos and merge them later. Now move the video to the timeline by dragging.
 
@@ -86,7 +87,8 @@ Install and run [Filmora 11](https://tools.techidaily.com/wondershare/filmora/do
 
 As you may already know, thousands of videos are uploaded daily on YouTube. Therefore, your videos must look creative to attract views. So, trim, split, merge, and delete video clips. You can also click the **Effects** tab to add animated titles, intros, transitions, music, and more. In addition, double-tap the video timeline to add motion tracking, image stabilization, color correction, chroma key, and more. And don't forget to add subtitle tracks using the **Sound to Text** feature.
 
-##### Step3Export the video to MP4 AV1 ![av1 vs vp9 choose av1 mp4](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-6.jpg)
+##### Step3Export the video to MP4 AV1
+![av1 vs vp9 choose av1 mp4](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-6.jpg)
 
 Are you satisfied with the edited video? Click **Play** to preview it and apply further edits if needed. Then, tap **Export** and choose **MP4 AV1** as the target format. Lastly, name your video and export it to your local drive. You can also click the **YouTube** tab to directly upload the video on the platform. And that's it!
 

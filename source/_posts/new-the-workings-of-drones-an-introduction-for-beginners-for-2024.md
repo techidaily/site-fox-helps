@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Workings of Drones  An Introduction for Beginners for 2024\""
-date: 2024-06-25T19:23:27.158Z
-updated: 2024-06-26T19:23:27.158Z
+date: 2024-07-03T13:07:34.182Z
+updated: 2024-07-04T13:07:34.182Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 
 ## The Workings of Drones: An Introduction for Beginners
 
-# What is a Drone and How Does it Work ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# What is a Drone and How Does it Work
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

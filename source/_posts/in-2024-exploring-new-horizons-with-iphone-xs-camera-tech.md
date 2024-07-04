@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Exploring New Horizons with iPhone X's Camera Tech"
-date: 2024-06-25T19:11:35.637Z
-updated: 2024-06-26T19:11:35.637Z
+date: 2024-07-03T13:07:33.167Z
+updated: 2024-07-04T13:07:33.167Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/d47941553c96756e0922bd70e1fb7654903727793
 
 ## Exploring New Horizons with iPhone X's Camera Tech
 
-# New iPhone X Camera Features You Need to Know ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# New iPhone X Camera Features You Need to Know
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

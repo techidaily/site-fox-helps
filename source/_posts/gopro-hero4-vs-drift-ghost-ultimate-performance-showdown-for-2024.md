@@ -1,7 +1,7 @@
 ---
 title: "\"GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown for 2024\""
-date: 2024-06-25T18:46:58.294Z
-updated: 2024-06-26T18:46:58.294Z
+date: 2024-07-03T13:07:35.457Z
+updated: 2024-07-04T13:07:35.457Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
 
 ## GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown
 
-# GoPro Hero4 Black VS Drift Ghost-S ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# GoPro Hero4 Black VS Drift Ghost-S
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

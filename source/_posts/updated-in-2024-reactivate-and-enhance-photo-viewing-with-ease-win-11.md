@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Reactivate and Enhance Photo Viewing with Ease (Win 11)"
-date: 2024-06-25T19:19:03.359Z
-updated: 2024-06-26T19:19:03.359Z
+date: 2024-07-03T13:07:33.155Z
+updated: 2024-07-04T13:07:33.155Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 
 ## Reactivate and Enhance Photo Viewing with Ease (Win 11)
 
-# How to Restore Windows Photo Viewer in Windows 10 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Restore Windows Photo Viewer in Windows 10
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

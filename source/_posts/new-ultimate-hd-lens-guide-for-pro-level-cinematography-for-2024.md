@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Ultimate HD Lens Guide for Pro-Level Cinematography for 2024\""
-date: 2024-06-25T18:45:45.517Z
-updated: 2024-06-26T18:45:45.517Z
+date: 2024-07-03T13:07:35.536Z
+updated: 2024-07-04T13:07:35.536Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/4cdd8afbaa8b657928993c65ff49e85d13ed57593
 
 ## Ultimate HD Lens Guide for Pro-Level Cinematography
 
-# Best Lenses for 4K Professional Production ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Best Lenses for 4K Professional Production
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

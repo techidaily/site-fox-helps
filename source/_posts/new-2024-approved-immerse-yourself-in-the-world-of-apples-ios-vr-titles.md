@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Immerse Yourself in the World of Apple's iOS VR Titles\""
-date: 2024-06-25T19:48:51.931Z
-updated: 2024-06-26T19:48:51.931Z
+date: 2024-07-03T13:07:35.575Z
+updated: 2024-07-04T13:07:35.575Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/cb7e01d77e11396989975642eff6b3a0f56218967
 
 ## Immerse Yourself in the World of Apple's iOS VR Titles
 
-# Top iphone iOS VR games you should try ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Top iphone iOS VR games you should try
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 

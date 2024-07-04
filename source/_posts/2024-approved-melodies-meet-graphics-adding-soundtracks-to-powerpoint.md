@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Melodies Meet Graphics  Adding Soundtracks to PowerPoint\""
-date: 2024-06-25T19:10:40.487Z
-updated: 2024-06-26T19:10:40.487Z
+date: 2024-07-03T13:07:34.288Z
+updated: 2024-07-04T13:07:34.288Z
 tags: 
   - screen-recording
   - ai video
@@ -80,7 +80,8 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
+![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -100,7 +101,8 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide
+![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -118,7 +120,8 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions
+![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -206,7 +209,8 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
+![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -226,7 +230,8 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide
+![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -244,7 +249,8 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions
+![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -332,7 +338,8 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
+![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -352,7 +359,8 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide
+![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -370,7 +378,8 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions
+![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 
@@ -458,7 +467,8 @@ Yes, you can start the audio in the click sequence or immediately.
 
 ##### Step1Click the audio icon on the slide in the Normal view while you edit the slides
 
-##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab ![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
+##### Step2 Choose Automatically or In Click Sequence in the Start list within the Audio Options of Audio Tools Playback tab
+![play automatic ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-automatic-ppt.jpg)
 
 ##### Step3 Remember that the In Click Sequence function is only available in PowerPoint 2016 and the latest versions
 
@@ -478,7 +488,8 @@ If you wish to add audio or music from the web, you have to download it to your 
 
 ##### Step2 Browse to the music file you want to use within the File Explorer, and then select Insert
 
-##### Step3 Select Play in Background within the audio icon chosen over the slide ![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
+##### Step3 Select Play in Background within the audio icon chosen over the slide
+![ppt playback](https://images.wondershare.com/filmora/article-images/2022/02/ppt-playback.jpg)
 
 Play in Background helps automatically start the audio file during a slide show and makes the audio play throughout the multiple slides.
 
@@ -496,7 +507,8 @@ Before you do a new project, you can select the aspect ratio as per the requirem
 
 You can import music media to the Media Library and then directly drag and drop them to the timeline.
 
-##### Step3 Add Transitions ![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+##### Step3 Add Transitions
+![add transitions filmora](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are multiples of transitions available in Filmora to choose among. You can apply a particular transition between each selected photo or apply random transitions as per your interests.
 

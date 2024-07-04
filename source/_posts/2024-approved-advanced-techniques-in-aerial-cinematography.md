@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Advanced Techniques in Aerial Cinematography\""
-date: 2024-06-25T19:55:03.074Z
-updated: 2024-06-26T19:55:03.074Z
+date: 2024-07-03T13:07:33.596Z
+updated: 2024-07-04T13:07:33.596Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
 ## Advanced Techniques in Aerial Cinematography
 
-# Tips on Filming with Drone ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Tips on Filming with Drone
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

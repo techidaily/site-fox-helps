@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking the Full Potential  Top 9 Methods in VR Cinematography\""
-date: 2024-06-25T19:26:12.830Z
-updated: 2024-06-26T19:26:12.830Z
+date: 2024-07-03T13:07:35.039Z
+updated: 2024-07-04T13:07:35.039Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/170a02146718886a24f76eaa0c0aba6ab58e23ece
 
 ## Unlocking the Full Potential: Top 9 Methods in VR Cinematography
 
-# 9 Tips You Must Know when Shooting a 360 Degree Video ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# 9 Tips You Must Know when Shooting a 360 Degree Video
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

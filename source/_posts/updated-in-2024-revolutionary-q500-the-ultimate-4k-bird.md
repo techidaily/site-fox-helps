@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Revolutionary Q500  The Ultimate 4K Bird\""
-date: 2024-06-25T18:45:11.364Z
-updated: 2024-06-26T18:45:11.364Z
+date: 2024-07-03T13:07:34.943Z
+updated: 2024-07-04T13:07:34.943Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 
 ## Revolutionary Q500: The Ultimate 4K Bird
 
-# Yuneec Typhoon Q500 4K Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon Q500 4K Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -68,7 +69,8 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 | Flight Modes          | Home mode, Angle Mode, Smart Mode | Special Features  | Sturdy body                                   |
 | Maximum Flying Height | 400 feet                          | Video Resolution  | 4K, 2.7k, 2.5K, Full HD                       |
 
-#### 2\.  Design ![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
+#### 2\.  Design
+![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
 
  This device is having big size that makes it difficult to carry on trips. But the design is sturdy with impressive appearance. At the same time, you are going to find one charger, two batteries and two sets of propellers with this package. Few other accessories are sunshield, neck strap, ST10+ controller, cable and a steady Grip mount. The design is almost good but demands little polish to appear attractive. Professionals love to work with its sturdy body and stable design that helps to keep videos shake free during flight hours.
 
@@ -80,11 +82,13 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 
  Q500 offers impressive flight performance with intuitive controls. It can complete all other models with its classic flight experience. Whether you switch to normal mode or work with smart modes, the performance will be equally good with their specific features. It is also much easier to operate this device with joystick that can easily adjust the angles for flights. Beginners will find these controls much intuitive and it can help them to learn the advanced drone performance abilities with ease. You can generate left, rite, up or down movements with joystick and the drone behaves accordingly without causing any delay in response time. It is observed that Q500 can travel up to 17 miles in an hour when it is operated in Angle mode whereas 22 miles coverage is observed with Watch Me or Follow Me mode.
 
-#### 5\.  Controller ![yuneec typhoon controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-controller.jpg)
+#### 5\.  Controller
+![yuneec typhoon controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-controller.jpg)
 
  The transmitter as well as personal ground station of this system, both are combined together to form a single device that supports 10 channel functioning at 2.4GHz. Controller helps to make easy adjustments for flight modes and decisions about adventurous activities in air can be done easily. Roughly the control range is reported up to 800 meters. The dynamic return to home buttons offers fast response from drone to get back to its original position and it is very helpful if your device is running out of battery and it is required to make a safe landing as soon as possible. If you are able to understand the surroundings perfectly and learn all the control functions then it will become much easier to avoid crashes on the way and your device will surely work for years with great flight performances.
 
-#### 6\.  Camera ![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
+#### 6\.  Camera
+![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
 
  As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
 

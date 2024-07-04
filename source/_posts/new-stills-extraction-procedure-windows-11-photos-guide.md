@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Stills Extraction Procedure  Windows 11 Photos Guide\""
-date: 2024-06-25T18:56:53.368Z
-updated: 2024-06-26T18:56:53.368Z
+date: 2024-07-03T13:07:33.555Z
+updated: 2024-07-04T13:07:33.555Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 ## Stills Extraction Procedure: Windows 11 Photos Guide
 
-# How to Save Photo from Video in Windows 10 Photos App ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Save Photo from Video in Windows 10 Photos App
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

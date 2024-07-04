@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Video Editing in Apple M1 MacBook Air"
-date: 2024-06-25T18:45:12.297Z
-updated: 2024-06-26T18:45:12.297Z
+date: 2024-07-03T13:07:33.281Z
+updated: 2024-07-04T13:07:33.281Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/3e9db891de75640d42280dabbfbbc511c64f55b10
 
 ## Examining the Efficiency of M1 for Editing Software
 
-# Video Editing in Apple M1 MacBook Air ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Video Editing in Apple M1 MacBook Air
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

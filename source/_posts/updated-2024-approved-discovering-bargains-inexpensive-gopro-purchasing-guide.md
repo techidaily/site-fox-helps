@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Discovering Bargains  Inexpensive GoPro Purchasing Guide\""
-date: 2024-06-25T19:25:59.408Z
-updated: 2024-06-26T19:25:59.408Z
+date: 2024-07-03T13:07:33.939Z
+updated: 2024-07-04T13:07:33.939Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
 ## Discovering Bargains: Inexpensive GoPro Purchasing Guide
 
-# Where to Buy GoPro Cameras: Best Cheap GoPro Deals ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Where to Buy GoPro Cameras: Best Cheap GoPro Deals
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -156,7 +157,8 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00F3F0EIU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F3F0EIU&linkId=224d19a85f965b77c2facdcd119a525c)
 
-#### 8.GoPro Hero3 White ![hero3 plus white deals](https://images.wondershare.com/filmora/article-images/hero3-plus-white.jpg)
+#### 8.GoPro Hero3 White
+![hero3 plus white deals](https://images.wondershare.com/filmora/article-images/hero3-plus-white.jpg)
 
  Auto low light: Not Supported| Wireless: Wi-Fi only| Burst: up to 3fps | Stills: 5MP | WVGA video: up to 60fps |1080p video: up to 30fps |4K video: Not Supported | FOV: Ultra Wide |
 

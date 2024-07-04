@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Visual Magic  Grading Through Hue Manipulation\""
-date: 2024-06-25T19:45:09.798Z
-updated: 2024-06-26T19:45:09.798Z
+date: 2024-07-03T13:07:35.089Z
+updated: 2024-07-04T13:07:35.089Z
 tags: 
   - screen-recording
   - ai video
@@ -104,7 +104,8 @@ First, you need to select the specific video portion you want to change the colo
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
-##### Step3Apply the color correction preset that you want then click ok ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
+##### Step3Apply the color correction preset that you want then click ok
+![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 You will notice that the color changes depending on your selected preset.
 

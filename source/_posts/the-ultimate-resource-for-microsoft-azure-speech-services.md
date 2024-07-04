@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Resource for Microsoft Azure Speech Services"
-date: 2024-06-25T19:42:18.072Z
-updated: 2024-06-26T19:42:18.072Z
+date: 2024-07-03T13:07:32.795Z
+updated: 2024-07-04T13:07:32.795Z
 tags: 
   - screen-recording
   - ai video
@@ -96,7 +96,8 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
-### 2\. Google Docs - Free ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
+### 2\. Google Docs - Free
+![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
 
@@ -110,7 +111,8 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
-### 3. Audtext ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
+### 3. Audtext
+![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
 

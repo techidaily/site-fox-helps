@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Expert Tips on Mastering the Preview Application on Mac\""
-date: 2024-06-25T19:26:58.638Z
-updated: 2024-06-26T19:26:58.638Z
+date: 2024-07-03T13:07:35.331Z
+updated: 2024-07-04T13:07:35.332Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/606acaddc3ba9faf4d73376f1e2c554744034ba5a
 
 ## Expert Tips on Mastering the Preview Application on Mac
 
-# How to Use Preview App on Mac ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Use Preview App on Mac
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
