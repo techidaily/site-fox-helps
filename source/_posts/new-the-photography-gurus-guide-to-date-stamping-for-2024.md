@@ -1,7 +1,7 @@
 ---
 title: "[New] The Photography Guru's Guide to Date Stamping for 2024"
-date: 2024-06-25T19:41:27.227Z
-updated: 2024-06-26T19:41:27.227Z
+date: 2024-07-13T18:48:06.195Z
+updated: 2024-07-14T18:48:06.195Z
 tags: 
   - screen-recording
   - ai video
@@ -152,6 +152,9 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 
 The app is available for [Android](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US) and [iPhone](https://apps.apple.com/us/app/vsco-photo-video-editor/id588013838)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Edit Photos and Add Date Stamps On The Computer
 
 Mac and windows have free image editing programs that allow you to copy an image from its source, paste it into the editor, crop it, resize it, and then save it. First, let's look at how to **edit a photo on a Mac.**
@@ -180,6 +183,9 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use inbuilt photo app on mac to add date stamps
 
 **Adding a date in a photo** can also be done on a Mac pc. Below are the steps to take to **add the date to a photo** with a Mac
@@ -232,6 +238,9 @@ Step4To create a text box, click and drag.
 
 Step5Enter the date you want.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
 Step6Select Menu in the upper-left corner.
@@ -464,6 +473,9 @@ Step5When ready, drag and slide the date to the area of the image where you wish
 
 Step6Finally, select File>Save to add your date to the picture.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Use an inbuilt app to edit photos on Windows
 
 Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the image you want to edit.
@@ -574,3 +586,41 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-laughter-labyrinas-ideas-that-resonate-with-crowds/"><u>2024 Approved  Laughter Labyrinas  Ideas That Resonate with Crowds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-harmonize-visual-and-auditory-elements-adding-filters-and-sound-to-windows-photos-app/"><u>2024 Approved  Harmonize Visual & Auditory Elements  Adding Filters & Sound to Windows Photos App</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>2024 Approved  Elevate Your YT Marketing  Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-crafting-color-convincingness-like-a-pro/"><u>2024 Approved  Crafting Color Convincingness Like a Pro</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-translate-compressed-files-into-subtitle-format-srt/"><u>[New] Translate Compressed Files Into Subtitle Format (SRT)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhance-your-footage-perfect-aspect-ratio-selection/"><u>2024 Approved  Enhance Your Footage  Perfect Aspect Ratio Selection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-deciphering-hand-tracking-methodologies/"><u>2024 Approved  Deciphering Hand Tracking Methodologies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-engineer-eliciting-gags/"><u>2024 Approved  Engineer Eliciting Gags</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-explore-more-with-these-videography-aids/"><u>2024 Approved  Explore More with These Videography Aids</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-practices-for-incorporating-b-footage-in-projects/"><u>2024 Approved  Best Practices for Incorporating B-Footage in Projects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-endorsed-the-top-10-camcorders-for-your-needs/"><u>2024 Approved  Expert-Endorsed  The Top 10 Camcorders for Your Needs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-nokia-c210-to-mac-drfone-by-drfone-android/"><u>How to Mirror Nokia C210 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elevating-live-tiktok-content-via-zoom/"><u>2024 Approved  Elevating Live TikTok Content via Zoom</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-boost-productivity-on-your-mac-an-overview-of-great-tts-apps/"><u>2024 Approved  Boost Productivity on Your Mac  An Overview of Great TTS Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-djis-aviation-innovation-meets-gaming-mavic-air-versus-spark/"><u>2024 Approved  DJI’s Aviation Innovation Meets Gaming  Mavic Air Versus Spark</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-building-a-sustainable-income-via-youtube-and-adsense-for-2024/"><u>[Updated] Building a Sustainable Income via YouTube and AdSense for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-headshot-generator-for-2024/"><u>What Is an AI Headshot Generator for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-filmmakers-checklist-on-the-go-gear-guide/"><u>2024 Approved  Filmmaker's Checklist  On-the-Go Gear Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-vivo-t2-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Vivo T2 Pro 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-nexus-development-summary-pinnacle-studio-audit-2023/"><u>In 2024, Nexus Development Summary  Pinnacle Studio Audit, 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-masterful-makeovers-picarts-backdrop-banishment-guide/"><u>2024 Approved  Masterful Makeovers  PicArt’s Backdrop Banishment Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-selection-the-top-11-kid-friendly-waterproof-camcorders/"><u>2024 Approved  Expert Selection  The Top 11 Kid-Friendly, Waterproof Camcorders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-background-beats-guide-tunes-for-visuals/"><u>2024 Approved  Background Beats Guide  Tunes for Visuals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-sonic-selections-android-centric/"><u>2024 Approved  Optimal Sonic Selections, Android-Centric</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-the-ultimate-metaverse-glasses-selection/"><u>2024 Approved  Discover the Ultimate Metaverse Glasses Selection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-an-in-depth-look-at-basic-and-simplified-hdr-photography/"><u>2024 Approved  An In-Depth Look at Basic and Simplified HDR Photography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elevate-your-videography-on-tiktok-2-ways/"><u>2024 Approved  Elevate Your Videography on TikTok (2 Ways)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovative-title-crafting-with-top-10-ai-tools/"><u>2024 Approved  Innovative Title Crafting with Top 10 AI Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expertly-selected-best-5-free-online-convertors/"><u>[Updated] Expertly Selected Best 5 Free Online Convertors</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-inside-the-innovative-world-of-kinemaster-your-android-game-companion/"><u>In 2024, Inside the Innovative World of KineMaster - Your Android Game Companion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-your-craft-a-guide-to-samsungs-photography-tools/"><u>2024 Approved  Mastering Your Craft  A Guide to Samsung's Photography Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-animatedapp-full-guide-24-edition/"><u>2024 Approved  AnimatedApp Full Guide '24 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-lightning-fast-windows-evaluation-path/"><u>2024 Approved  Lightning-Fast Windows Evaluation Path</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-learn-to-craft-instagram-ringtones-with-us/"><u>2024 Approved  Learn to Craft Instagram Ringtones with Us</u></a></li>
+</ul></div>

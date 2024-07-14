@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Techniques for Video Production in Windows Photos for 2024\""
-date: 2024-06-25T19:07:41.682Z
-updated: 2024-06-26T19:07:41.682Z
+date: 2024-07-13T18:08:22.630Z
+updated: 2024-07-14T18:08:22.630Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/0cd373a6b0eece48a6e2d5d0248da5d1df8fff3f7
 
 ## Cutting-Edge Techniques for Video Production in Windows Photos
 
-# How to Use Story Remix to Edit a Video in Windows 10 Photos ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Use Story Remix to Edit a Video in Windows 10 Photos
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -59,6 +60,9 @@ How to create a Story Remix project automatically –
    2. You got to choose the image and videos and click **New video**. Then choose Automatic video with music.
    3. Give a name and tap on **OK**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/start-remix-video.jpg)
 
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
@@ -92,6 +96,9 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 1. First all the things are added to your timeline followed by adding to the toolbar. Hit on **Themes** subsequently.
 2. You can select one theme from the listed options namely, "No theme", "Adventure", "Chilled", "Classic", "Electric", "Joy" and "Loved". Preview the selected theme and if satisfied, click on "Done".
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
 ### Adding image duration
@@ -100,6 +107,9 @@ While adding media to the timeline in Story Mix, you will see that there is a de
 
 Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
 ### Adding custom text
@@ -108,6 +118,9 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 2. Use layout option and select location so that you can make the caption or title show up in a different place.
 3. Hit ‘Done’ after that.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
 ### Adding motion
@@ -183,3 +196,50 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-creativecanvas-blend-online-design-spectacle/"><u>2024 Approved  CreativeCanvas Blend  Online Design Spectacle</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-boost-productivity-on-your-mac-an-overview-of-great-tts-apps/"><u>2024 Approved  Boost Productivity on Your Mac  An Overview of Great TTS Apps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unparalleled-live-tv-experience-with-local-channels/"><u>In 2024, Unparalleled Live TV Experience with Local Channels</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/revel-in-every-box-with-these-strategies/"><u>Revel in Every Box with These Strategies</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-video-editing-on-windows-11-top-picks-for-free-and-paid-software/"><u>Updated In 2024, Video Editing on Windows 11 Top Picks for Free and Paid Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-efficiently-start-and-schedule-a-zoom-call-on-any-android-device/"><u>2024 Approved  Efficiently Start & Schedule a Zoom Call on Any Android Device</u></a></li>
+<li><a href="https://windows11.techidaily.com/correction-of-inaccessible-device-path-issue-in-win/"><u>Correction of Inaccessible Device Path Issue in Win</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-mp3-extraction-from-pinterest-vids/"><u>2024 Approved  Mastering MP3 Extraction From Pinterest Vids</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-a-resume-that-shines-in-design-industry/"><u>2024 Approved  Crafting a Resume that Shines in Design Industry</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-the-intricacies-of-networked-livestream-with-vlc/"><u>2024 Approved  Navigating the Intricacies of Networked Livestream with VLC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-increasing-onscreen-detail-in-virtual-spaces/"><u>2024 Approved  Increasing Onscreen Detail in Virtual Spaces</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-streamlined-guide-5-efficient-windows-11-audio-recording-tips-for-2024/"><u>[Updated] Streamlined Guide  5 Efficient Windows 11 Audio Recording Tips for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-to-add-timestamps-youtube-video-for-2024/"><u>How to Add Timestamps YouTube Video for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-evaluating-alternatives-to-magixs-acid-pro/"><u>2024 Approved  Evaluating Alternatives to Magix's ACID Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-masterful-mac-livestream-tech-best-of-the-best-ranked-1-to-5/"><u>2024 Approved  Masterful Mac Livestream Tech  Best of the Best, Ranked 1 to 5</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-charting-a-new-course-for-creative-vr-content/"><u>2024 Approved  Charting a New Course for Creative VR Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-eliminating-suggested-podcast-selections-on-spotify/"><u>2024 Approved  Eliminating Suggested Podcast Selections on Spotify</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-strategy-revealed-a-box-opening-narrative/"><u>2024 Approved  Strategy Revealed  A Box-Opening Narrative</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-daily-movie-data-demand-in-gigabytes/"><u>2024 Approved  Daily Movie Data Demand in Gigabytes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-lightning-fast-windows-evaluation-path/"><u>2024 Approved  Lightning-Fast Windows Evaluation Path</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-fine-tuning-online-discussions-with-advanced-zooming-skills/"><u>2024 Approved  Fine-Tuning Online Discussions with Advanced Zooming Skills</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-beijing-bid-wins-2022-winter-olympics-highlights/"><u>2024 Approved  Beijing Bid Wins  2022 Winter Olympics Highlights</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-xiaomi-redmi-13c-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Xiaomi Redmi 13C Location | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-djis-aviation-innovation-meets-gaming-mavic-air-versus-spark/"><u>2024 Approved  DJI’s Aviation Innovation Meets Gaming  Mavic Air Versus Spark</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-exploring-the-basics-of-effective-vlogging/"><u>2024 Approved  Exploring the Basics of Effective Vlogging</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-sonic-selections-android-centric/"><u>2024 Approved  Optimal Sonic Selections, Android-Centric</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-essential-15-cameras-for-professional-vlogging-experience/"><u>2024 Approved  Essential 15 Cameras for Professional Vlogging Experience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-role-of-competitive-intelligence-in-effective-market-research/"><u>The Role of Competitive Intelligence in Effective Market Research</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-secrets-unveiled-expert-adobe-captive-screen-recording-tips/"><u>[New] Secrets Unveiled  Expert Adobe Captive Screen Recording Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-through-mixed-reality-an-overview/"><u>2024 Approved  Navigating Through Mixed Reality  An Overview</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cutting-edge-chips-excellent-editing-made-easy-and-fast/"><u>2024 Approved  Cutting Edge Chips  Excellent Editing Made Easy and Fast</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-guide-to-building-massive-memes/"><u>2024 Approved  Guide to Building Massive Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-data-buffering-option-for-sony-a7c/"><u>2024 Approved  Best Data Buffering Option for Sony A7C</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-laughter-labyrinas-ideas-that-resonate-with-crowds/"><u>2024 Approved  Laughter Labyrinas  Ideas That Resonate with Crowds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-iosandroid-leading-photo-writing-app-list/"><u>2024 Approved  IOS/Android  Leading Photo-Writing App List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-graphic-wizardry-from-novice-to-industry-success-story/"><u>2024 Approved  Graphic Wizardry  From Novice to Industry Success Story</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/2024-approved-which-video-editor-should-you-choose-sony-vegas-vs-adobe-premiere-pro/"><u>2024 Approved Which Video Editor Should You Choose? Sony Vegas vs Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-learn-to-craft-instagram-ringtones-with-us/"><u>2024 Approved  Learn to Craft Instagram Ringtones with Us</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gratis-global-photo-perfection-suite/"><u>2024 Approved  Gratis Global Photo Perfection Suite</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ideal-platforms-for-procuring-youtube-ringtone-files/"><u>2024 Approved  Ideal Platforms for Procuring YouTube Ringtone Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-is-sns-hdr-the-best-for-your-hdr-needs-insights/"><u>2024 Approved  Is SNS HDR the Best for Your HDR Needs? Insights</u></a></li>
+</ul></div>

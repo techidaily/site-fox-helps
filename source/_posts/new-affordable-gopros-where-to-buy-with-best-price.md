@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Affordable GoPros  Where to Buy with Best Price\""
-date: 2024-06-25T18:38:44.607Z
-updated: 2024-06-26T18:38:44.607Z
+date: 2024-07-13T17:34:35.755Z
+updated: 2024-07-14T17:34:35.755Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,11 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
 ## Affordable GoPros: Where to Buy with Best Price
 
-# Where to Buy GoPro Cameras: Best Cheap GoPro Deals ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Where to Buy GoPro Cameras: Best Cheap GoPro Deals
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -52,6 +56,9 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
  Auto low light: Yes| Wireless: Wi-Fi, Bluetooth| Burst: up to 30fps | Stills: 12MP | WVGA video: up to 240fps |1080p video: up to 120fps |4K video: up to 30fps | FOV: Narrow, Medium, Super view, Wide |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hero5 black deals](https://images.wondershare.com/filmora/article-images/gopro-hero-5-back-touchscreen.png)
 
  \+ It can capture videos with 4K resolution.
@@ -126,6 +133,9 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
  Auto low light: Yes| Wireless: Wi-Fi| Burst: up to 30fps | Stills: 12MP | WVGA video: up to 240fps |1080p video: up to 60fps |4K video: up to 15fps | FOV: Narrow, Medium and Ultra Wide |
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hero3 plus deals](https://images.wondershare.com/filmora/article-images/hero3-plus.jpg)
 
  \+ This device was designed with hardware about 20% lighter and smaller as compared to its predecessor.
@@ -156,7 +166,8 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00F3F0EIU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F3F0EIU&linkId=224d19a85f965b77c2facdcd119a525c)
 
-#### 8.GoPro Hero3 White ![hero3 plus white deals](https://images.wondershare.com/filmora/article-images/hero3-plus-white.jpg)
+#### 8.GoPro Hero3 White
+![hero3 plus white deals](https://images.wondershare.com/filmora/article-images/hero3-plus-white.jpg)
 
  Auto low light: Not Supported| Wireless: Wi-Fi only| Burst: up to 3fps | Stills: 5MP | WVGA video: up to 60fps |1080p video: up to 30fps |4K video: Not Supported | FOV: Ultra Wide |
 
@@ -182,6 +193,9 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B01MSUJ6EI/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MSUJ6EI&linkId=e35bf9b13764f3d62c74c990a36cea53)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -208,3 +222,54 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-reveling-in-4k-an-in-depth-look-at-yis-hero-series/"><u>In 2024, Reveling in 4K  An In-Depth Look at Yi’s HERO Series</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-techniques-for-forming-youtube-collab-videos/"><u>[New] 2024 Approved  Essential Techniques for Forming YouTube Collab Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-jest-jar-compreenas-best-no-cost-templates/"><u>[New] In 2024, Jest Jar  Compreenas Best No-Cost Templates</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-tecno-spark-go-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-enhancing-content-reach-igtv-and-facebook-synergy/"><u>In 2024, Enhancing Content Reach  IGTV & Facebook Synergy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-streaming-software-showdown-wirecast-vs-obs-explored/"><u>[New] Streaming Software Showdown  Wirecast vs OBS Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-facebooks-live-shop-extravaganza-fri/"><u>Experience Facebook's Live Shop Extravaganza, Fri</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-art-of-auditory-alchemy-does-the-magic-voice-modifier-work-seek-alternates/"><u>In 2024, The Art of Auditory Alchemy  Does the Magic Voice Modifier Work? Seek Alternates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-10-secrets-to-flawless-live-broadcasts-of-cricket/"><u>[New] 2024 Approved  10 Secrets to Flawless Live Broadcasts of Cricket</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quick-and-clear-swap-clown-fins-voices-on-pcs-for-2024/"><u>Quick & Clear  Swap Clown Fins' Voices on PCs for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oppo-find-n3-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/effortless-pc-sound-logging-with-x-recorder-software-for-2024/"><u>Effortless PC Sound Logging with X-Recorder Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-prime-gear-selection-must-have-supplementary-gopro-items/"><u>[New] 2024 Approved  Prime Gear Selection  Must-Have Supplementary GoPro Items</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-from-your-iphone-12-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status From Your iPhone 12</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capture-stunning-colors-top-11-methods-for-professional-grading-and-correction-for-2024/"><u>Capture Stunning Colors  Top 11 Methods for Professional Grading & Correction for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-pros-playbook-mastering-the-art-of-capturing-ps4-gaming/"><u>[New] 2024 Approved  The Pro's Playbook  Mastering the Art of Capturing PS4 Gaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unlocking-chromebook-zoom-capabilities/"><u>In 2024, Unlocking Chromebook Zoom Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/pixelpioneer-8-version-visual-conjurer/"><u>PixelPioneer  8-Version Visual Conjurer</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-lava-yuva-3-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Lava Yuva 3 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-collection-top-notch-free-meme-designs/"><u>2024 Approved  Ultimate Collection  Top-Notch FREE Meme Designs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-leading-tech-the-top-10-4k-camera-phones-reviewed-for-2024/"><u>[New] Leading Tech  The Top 10 4K Camera Phones Reviewed for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-preserving-sound-integrity-with-ffmpeg-extract/"><u>In 2024, Preserving Sound Integrity with FFmpeg Extract</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-amplify-iphone-film-and-photo-experience-with-extra-gear/"><u>[New] In 2024, Amplify iPhone Film & Photo Experience with Extra Gear</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-instagrams-video-sharing-limits-for-2024/"><u>[New] Unlocking Instagram's Video Sharing Limits for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-high-end-hardware-a-showcase-of-excellence/"><u>[Updated] 2024 Approved  High-End Hardware  A Showcase of Excellence</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-honor-magic-v2-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Honor Magic V2 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-unlocking-tiktok-success-a-guide-to-its-best-analytic-tools/"><u>[New] In 2024, Unlocking TikTok Success  A Guide to Its Best Analytic Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-securing-your-periscope-footage-expert-techniques-revealed-for-2024/"><u>[New] Securing Your Periscope Footage  Expert Techniques Revealed for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-peak-outcome-total-immersion-complete-for-2024/"><u>[New] Peak Outcome  Total Immersion Complete for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-explore-premium-free-online-tools-for-professional-video-tweaks/"><u>In 2024, Explore Premium Free Online Tools for Professional Video Tweaks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-premium-video-devices-direct-headset-screens/"><u>[New] 2024 Approved  Premium Video Devices  Direct Headset Screens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-estimating-byte-consumption-of-full-film-daily/"><u>[New] Estimating Byte Consumption of Full Film Daily</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-dynamic-audio-excellence-best-cameras-microphones/"><u>[New] 2024 Approved  Dynamic Audio Excellence  Best Cameras' Microphones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-a54-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy A54 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-8-high-definition-5k-display-options-for-you-for-2024/"><u>Top 8 High-Definition 5K Display Options for You for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/revolutionizing-video-quality-on-tiktok/"><u>Revolutionizing Video Quality on TikTok</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ultra-wealthy-digital-creators/"><u>Ultra-Wealthy Digital Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-first-steps-in-vector-art-exploring-kinds-applications/"><u>[Updated] First Steps in Vector Art  Exploring Kinds, Applications</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-apple-iphone-6s-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your Apple iPhone 6s? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-fundamental-definitions-in-virtual-narrative-art/"><u>In 2024, Fundamental Definitions in Virtual Narrative Art</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-live-and-video-to-mp3-in-seconds-no-boundaries/"><u>2024 Approved  Facebook Live & Video to MP3 in Seconds, No Boundaries</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-appearance-in-apples-audio-library/"><u>[New] In 2024, Mastering Appearance in Apple's Audio Library</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/one-voice-many-listeners-a-solo-podcast-blueprint-for-2024/"><u>One Voice, Many Listeners  A Solo Podcast Blueprint for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-best-ios-filmmaking-software/"><u>[New] Best iOS Filmmaking Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-maximal-brightness-for-android-videos-explained/"><u>In 2024, Maximal Brightness for Android Videos Explained</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-trailblazing-drones-the-best-to-always-behind-you-for-2024/"><u>[New] Trailblazing Drones  The Best to Always Behind You for 2024</u></a></li>
+</ul></div>

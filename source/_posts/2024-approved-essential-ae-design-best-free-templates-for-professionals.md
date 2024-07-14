@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essential AE Design  Best Free Templates for Professionals\""
-date: 2024-07-03T13:14:03.462Z
-updated: 2024-07-04T13:14:03.462Z
+date: 2024-07-13T19:11:07.937Z
+updated: 2024-07-14T19:11:07.937Z
 tags: 
   - screen-recording
   - ai video
@@ -75,6 +75,9 @@ If your goal is to get the message across and you don’t want any colors or eff
 
 ![minimal ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/minimal-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. Masonry Title After Effects Template
 
 The complete opposite of the previous title template, the Masonry Title Template is the most ideal choice when your goal is to grab as much attention as you can. The unique 3D typography effect will make your title look like it has been carved out of stone and your target audience will not be able to look away. It is an ideal title for dramatic projects like documentaries and various movie genres.
@@ -119,6 +122,9 @@ If you would like to add a shape around the title just to make it stand out more
 
 Step1 Select the Rectangle Tool and proceed to draw a shape around the title.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add a shape around title](https://images.wondershare.com/filmora/article-images/2022/07/add-a-shape-around-title.jpg)
 
 Step2 Under “Fill” select “None” and under “Stroke,” set to “Solid Color.”
@@ -145,6 +151,9 @@ Step1 Select all the layers that you have created so far and then go to “Layer
 
 Step2 Move the playhead to about 3 seconds and then click on “Edit” and select “Split Layer.” Delete the top Split Layer.”
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete the top split layer](https://images.wondershare.com/filmora/article-images/2022/07/delete-the-top-split-layer.jpg)
 
 Step3 Select the comp that is remaining and click on “Edit” to select “Duplicate.”
@@ -191,6 +200,9 @@ This is a relatively simple, but very effective title template that can be used 
 
 ![arrive ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/arrive-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Laser After Effects Title Templates
 
 Laser Titles template is the most ideal solution for retro-themed content. It is also one of the most customizable title templates that we have found. On top of being able to change the text color, there are also several unique 3D animations and effects to choose from.
@@ -338,3 +350,66 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/quick-guide-how-to-download-windows-movie-maker-6/"><u>Quick Guide  How to Download Windows Movie Maker 6</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unleash-the-potential-of-pip-in-microsoft-edge-browser/"><u>[Updated] 2024 Approved  Unleash the Potential of PIP in Microsoft Edge Browser</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capturing-the-clouds-advanced-drone-video-techniques-for-2024/"><u>[New] Capturing the Clouds  Advanced Drone Video Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premier-mic-choices-for-4k-cameras-and-clear-audio-capture-for-2024/"><u>[New] Premier Mic Choices for 4K Cameras & Clear Audio Capture for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-elite-10-subtitle-manipulation-programs/"><u>[Updated] Elite 10 Subtitle Manipulation Programs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-blur-background-of-your-youtube-video/"><u>2024 Approved  How to Blur Background of Your YouTube Video</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-oppo-find-x7-ultra-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Oppo Find X7 Ultra Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pristine-movie-trailer-curated-list/"><u>[New] Pristine Movie Trailer Curated List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-the-power-of-reverse-recording-in-phantom-cameras/"><u>[New] Unveiling the Power of Reverse Recording in Phantom Cameras</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-crafting-your-signature-tone-a-comprehensive-zoom-recording-workshop/"><u>In 2024, Crafting Your Signature Tone  A Comprehensive ZOOM Recording Workshop</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-ultimate-guide-to-nikon-d500-4k-performance/"><u>[Updated] 2024 Approved  The Ultimate Guide to Nikon D500 4K Performance</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-a-trailers-soundtrack-a-guide/"><u>[Updated] Crafting a Trailer's Soundtrack  A Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-market-mastery-strategys-first-impressions-for-2024/"><u>[Updated] Market Mastery  Strategy's First Impressions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-designer-jokes-kapwings-visual-hilarity-suite/"><u>[Updated] 2024 Approved  Designer Jokes  Kapwing's Visual Hilarity Suite</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-in-depth-look-at-wirecast-plus-comparables/"><u>[Updated] 2024 Approved  In-Depth Look at WireCast + Comparables</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-instagram-way-of-showcasing-youtube-videos/"><u>[New] In 2024, The Instagram Way of Showcasing YouTube Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-upholders-of-popularity-the-10-most-loved-reddit-stories/"><u>[Updated] In 2024, Upholders of Popularity  The 10 Most Loved Reddit Stories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-inside-the-2023-samsung-bd-j5900-innovations/"><u>[New] Inside the 2023 Samsung BD-J5900 Innovations</u></a></li>
+<li><a href="https://review-topics.techidaily.com/put-and-play-mkv-movies-on-samsung-galaxy-s24-ultra-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Put and play MKV movies on Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-8th-generation-photographic-fusion-app/"><u>2024 Approved  Innovative 8Th Generation Photographic Fusion App</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-top-rated-avi-file-combiners-join-videos-without-cost/"><u>New In 2024, Top-Rated AVI File Combiners Join Videos Without Cost</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-inside-insights-proclaiming-rights-to-free-clip-art-legally/"><u>[New] Inside Insights  Proclaiming Rights to Free Clip Art Legally</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-htc-vive-comfort-strategies-for-a-smoother-ride/"><u>[New] In 2024, HTC Vive Comfort  Strategies for a Smoother Ride</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/split-videos-in-the-lightworks-step-by-step-for-2024/"><u>Split Videos in the Lightworks Step by Step for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-cutting-edge-communication-strategies-merging-slack-with-filmoras-capabilities/"><u>2024 Approved  Cutting-Edge Communication Strategies  Merging Slack with Filmora's Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-bridging-language-barriers-adding-subtitles-to-windows-media-player-for-2024/"><u>[New] Bridging Language Barriers  Adding Subtitles to Windows Media Player for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-digital-immersion-therapy-for-patients-for-2024/"><u>[Updated] Digital Immersion Therapy for Patients for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-change-default-backup-location-mac-for-2024/"><u>[Updated] Change Default Backup Location (Mac) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/sea-to-sea-recording-best-action-cameras-for-anglers-for-2024/"><u>Sea-to-Sea Recording  Best Action Cameras for Anglers for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-14-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 14 to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-exploring-advanced-gameplay-with-kinemaster-on-android/"><u>[Updated] In 2024, Exploring Advanced Gameplay with KineMaster on Android</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-seamlessly-shift-focus-with-picart-clear-borders/"><u>In 2024, Seamlessly Shift Focus with PicArt Clear Borders</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-build-at-home-an-affordable-and-versatile-virtual-reality-headset/"><u>In 2024, Build at Home an Affordable and Versatile Virtual Reality Headset</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-expected-video-gb-for-continuous-24-hour-viewing/"><u>2024 Approved  Expected Video GB for Continuous 24-Hour Viewing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-online-repositories-12-sites-with-free-photography-samples/"><u>[Updated] In 2024, Essential Online Repositories - 12 Sites with Free Photography Samples</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dynamic-hues-the-artists-toolkit-for-change/"><u>[Updated] Dynamic Hues  The Artist's Toolkit for Change</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-benefits-of-apples-m1-in-post-production-editing/"><u>[New] In 2024, Benefits of Apple's M1 in Post-Production Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unlocking-content-creation-free-tools-for-downloading-vids-online/"><u>[New] 2024 Approved  Unlocking Content Creation  Free Tools for Downloading Vids Online</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-explore-the-best-kept-secret-7-premium-transition-sounds-available-for-download/"><u>In 2024, Explore the Best-Kept Secret 7 Premium Transition Sounds Available for Download</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pro-tips-for-kinemaster-dominance-plus-best-digital-platforms-on-the-web/"><u>[New] Pro Tips for KineMaster Dominance + Best Digital Platforms on the Web</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-vivo-x100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-focus-and-depth-with-videoleaps-zoom-feature/"><u>Mastering Focus and Depth with Videoleap's Zoom Feature</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-filters-a-comprehensive-guide-for-2024/"><u>[New] Instagram Filters  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-how-to-improve-video-quality-in-zoom-meetings/"><u>[Updated] In 2024, How to Improve Video Quality in Zoom Meetings?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-harness-the-potential-of-gratuitous-timer-tools/"><u>[Updated] Harness the Potential of Gratuitous Timer Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exclusive-selection-best-5-free-convertors-for-video-from-gifs/"><u>[New] Exclusive Selection  Best 5 Free Convertors for Video From GIFs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-professional-touch-ups-for-your-tiktok-media/"><u>[Updated] In 2024, Professional Touch-Ups for Your TikTok Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-excellence-in-dialogue-maker-land/"><u>[Updated] 2024 Approved  Excellence in Dialogue Maker Land</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-direct-webcam-streaming-with-vlc/"><u>[Updated] 2024 Approved  Direct Webcam Streaming with VLC</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-samsung-galaxy-s21-fe-5g-2023-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Samsung Galaxy S21 FE 5G (2023) Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-leveraging-speech-recognition-in-googles-popular-docs-application-for-2024/"><u>[New] Leveraging Speech Recognition in Google's Popular Docs Application for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlocking-the-power-of-facebook-slideshows-in-digital-marketing/"><u>[New] Unlocking the Power of Facebook Slideshows in Digital Marketing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-future-of-fitness-in-virtual-reality-walkers-for-2024/"><u>The Future of Fitness in Virtual Reality Walkers for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-leveraging-camera-roll-for-nostalgic-snaps-via-snapchat/"><u>[New] Leveraging Camera Roll for Nostalgic Snaps via Snapchat</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-honor-magic-6-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Honor Magic 6</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-exploring-drones-vast-airtime-capabilities-top-10/"><u>2024 Approved  Exploring Drones' Vast Airtime Capabilities (Top 10)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-eight-high-performing-tablets-for-future-photography-titans-for-2024/"><u>[New] Eight High-Performing Tablets for Future Photography Titans for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elite-rankings-top-10-apps-to-watch-football-and-volleyball-in-the-moment/"><u>[New] 2024 Approved  Elite Rankings  Top 10 Apps to Watch Football & Volleyball in the Moment</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-adept-methods-for-mass-acquiring-videos-on-tiktok-app/"><u>[New] In 2024, Adept Methods for Mass Acquiring Videos on TikTok App</u></a></li>
+</ul></div>

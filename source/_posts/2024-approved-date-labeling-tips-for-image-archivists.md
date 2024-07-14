@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Date Labeling Tips for Image Archivists\""
-date: 2024-06-25T19:47:56.553Z
-updated: 2024-06-26T19:47:56.553Z
+date: 2024-07-13T18:55:44.670Z
+updated: 2024-07-14T18:55:44.670Z
 tags: 
   - screen-recording
   - ai video
@@ -180,6 +180,9 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use inbuilt photo app on mac to add date stamps
 
 **Adding a date in a photo** can also be done on a Mac pc. Below are the steps to take to **add the date to a photo** with a Mac
@@ -379,6 +382,9 @@ Instasize is an app that you will find quite useful. The app was developed for i
 
 You can download the app on [Android](https://play.google.com/store/apps/details?id=com.jsdev.instasize&gl=US) and [iPhone.](https://apps.apple.com/us/app/instasize-photo-editor-video/id576649830)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Adobe Photoshop Lightroom**
 
 Another photo editing app you can find useful is Adobe Photoshop Lightroom. The app makes dozens of photo enhancement and editing products.
@@ -474,6 +480,9 @@ Step2At the top of your screen, click on Edit & Create to get.
 
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Add date stamps using Windows PC
 
 Step1Launching the Photos app will **add a date to a photo** when using a windows PC.
@@ -484,6 +493,9 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 
 Step3Go to the screen's top and click Text.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
 
 Step4To create a text box, click and drag.
@@ -574,3 +586,44 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-oppo-a59-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Oppo A59 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-easily-downgrade-system-sound-on-macwindows-devices/"><u>[New] 2024 Approved  Easily Downgrade System Sound on Mac/Windows Devices</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/pathway-to-profitability-with-the-new-youtube-premium-program/"><u>Pathway to Profitability with the New YouTube Premium Program</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-leading-sites-boosting-youtube-viewership/"><u>[New] In 2024, Leading Sites Boosting YouTube Viewership</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essentials-of-capturing-free-visual-display-vids-for-2024/"><u>[New] Essentials of Capturing Free Visual Display Vids for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-from-fantasy-to-feasibility-vrs-milestones/"><u>[Updated] In 2024, From Fantasy to Feasibility  VR's Milestones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-esteemed-experts-premium-instragram-highlight-designs-online/"><u>2024 Approved  Esteemed Experts  Premium Instragram Highlight Designs Online</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-premier-ios-ps2-emulation-tools/"><u>[Updated] 2024 Approved  Premier iOS PS2 Emulation Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/become-an-instagram-reel-guru-with-these-proven-strategies-for-2024/"><u>Become an Instagram Reel Guru with These Proven Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-hotspots-for-revolutionary-vr-cinema-for-2024/"><u>[Updated] Hotspots for Revolutionary VR Cinema for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-itel-p40plus-by-fonelab-android-recover-music/"><u>How to recover old music from your Itel P40+</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-masterpieces-of-modern-mythology-top-youtube-storytellers-for-2024/"><u>[New] Masterpieces of Modern Mythology - Top YouTube Storytellers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-new-era-in-adventure-recording-the-ultra-30-review/"><u>[New] 2024 Approved  A New Era in Adventure Recording  The Ultra 30 Review</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-unleash-your-creativity-top-free-4k-video-editing-software/"><u>2024 Approved Unleash Your Creativity Top Free 4K Video Editing Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-all-you-need-to-know-about-adobe-storages-including-top-non-adobe-alternates-for-2024/"><u>[Updated] All You Need to Know About Adobe Storages, Including Top Non-Adobe Alternates for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-learning-managing-incremental-sound-gain/"><u>[New] In 2024, Essential Learning  Managing Incremental Sound Gain</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-complete-scrutiny-gopro-silver-hero4-version/"><u>[Updated] Complete Scrutiny  GoPro Silver Hero4 Version</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-conversion-wizardry-zip-to-subrip-transformation/"><u>[New] In 2024, Conversion Wizardry  ZIP to SubRip Transformation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-access-all-shows-seamless-apods-installation-tips/"><u>[New] In 2024, Access All Shows  Seamless APods Installation Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quick-guide-to-enhancing-colors-in-photoshop/"><u>Quick Guide to Enhancing Colors in Photoshop</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-decoding-the-magic-of-dynamic-range-capture/"><u>[New] 2024 Approved  Decoding the Magic of Dynamic Range Capture</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-vivo-x100-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Vivo X100 Phones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-next-gen-gpus-for-crystal-clear-4k/"><u>[Updated] 2024 Approved  Next-Gen GPUs for Crystal Clear 4K</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-making-cash-with-zero-skills-check-out-these-13-ways-on-reddit/"><u>[New] Making Cash with Zero Skills? Check Out These 13 Ways on Reddit</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-poco-f5-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Poco F5 5G phone? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-premier-selection-of-vr-cycling-options/"><u>[Updated] 2024 Approved  The Premier Selection of VR Cycling Options</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/al-reality-gamers-wealth/"><u>Virtual Reality Gamers' Wealth</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-focus-on-subjects-methods-for-editing-out-photography-backgrounds-for-2024/"><u>[New] Focus on Subjects  Methods for Editing Out Photography Backgrounds for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-basic-strategy-revamping-fishy-windowspeak/"><u>[New] In 2024, Basic Strategy  Revamping Fishy Windowspeak</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-chucklechief-easy-meme-design-tool-for-2024/"><u>[Updated] ChuckleChief  Easy Meme Design Tool for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/smilescribbler-share-laughter-digitally/"><u>SmileScribbler  Share Laughter Digitally</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-samsung-galaxy-s24plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-at-the-forefront-haptic-enhanced-headgear/"><u>[Updated] 2024 Approved  At the Forefront  Haptic-Enhanced Headgear</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-zen-of-sleep-curated-asmr-vocalists-for-2024/"><u>[New] The Zen of Sleep  Curated ASMR Vocalists for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-lava-yuva-2-pro-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-digital-file-migration-guide-for-devices-for-2024/"><u>[New] Digital File Migration Guide for Devices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unmatched-quick-windows-picture-browser/"><u>[New] In 2024, Unmatched Quick Windows Picture Browser</u></a></li>
+</ul></div>

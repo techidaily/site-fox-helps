@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Accelerate Office Productivity with Speech Recognition (Word)"
-date: 2024-06-25T19:08:47.960Z
-updated: 2024-06-26T19:08:47.960Z
+date: 2024-07-13T18:09:39.476Z
+updated: 2024-07-14T18:09:39.476Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,9 @@ Microsoft Word Speech to Text tool supports many languages as well languages tha
 
 If you've never used Microsoft Word's speech-to-text engine on Windows PC before, you'll need to allow the program access to your microphone. This may be completed with a single click when prompted. You can use your laptop's built-in microphone or connect an external one. But, we suggest you use an external microphone for improved accuracy.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![allow microsoft word access to the microphone](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-3.jpg)
 
 ![use speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-4.jpg)
@@ -106,10 +109,16 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Evernote Speech-To-Text
 
 Evernote is a widely used note-taking application that also offers a speech-to-text feature. To use this feature on Windows PC, create a new note and "Windows + H" to activate the microphone of your PC. You'll see the microphone icon at the top of the screen. Evernote will then start recording your voice and transcribing it into text in real-time. Once you're done, click the Stop button, and your transcription will be automatically saved. Evernote also offers a variety of other features that make it a great alternative to Microsoft Word, such as the ability to add images, attachments, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![evernote speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-6.jpg)
 
 To use voice dictation in Evernote on Mac:
@@ -207,6 +216,9 @@ Once again, click the dictate button after completing all the preceding steps. T
 
 Microsoft Word's text-to-speech technology does more than simply transcribing your voice. Instead, Microsoft's voice typing technology, which originally listened only to single words, now listens to individual words and the phrase as a whole, thanks to the advent and improvement of artificial neural networks. This has allowed Microsoft to develop a long list of commands for incorporating punctuation, symbols, and other formatting options into your text without saying anything out loud except for the command word itself. To see the list of commands, press "Ctrl + Shift + S" on your keyboard to open the Stop Dictation dialogue box, then click on the Commands button.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![using punctuation commands](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-5.jpg)
 
 We can't go through all of the punctuation instructions here, but we'll mention a few of the most important. For example, the command "period" inserts a period, and "comma" creates a comma, as you may guess. The same rules apply to exclamation marks and colons. In addition, you may use the command "new line" to create a new line, "new paragraph" to start a new paragraph, and "tab" to create a tab space.
@@ -315,3 +327,47 @@ Microsoft Word's speech-to-text feature is not perfect, but it can be a huge tim
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-rookie-capture-assessment-overview/"><u>2024 Approved  Rookie Capture Assessment Overview</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-master-real-time-video-sharing-on-facebook/"><u>[Updated] 2024 Approved  How to Master Real-Time Video Sharing on Facebook</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-video-upload-made-easy-a-comprehensive-guide-for-mac-and-pc-tiktok/"><u>2024 Approved  Video Upload Made Easy  A Comprehensive Guide for Mac & PC (TikTok)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-transforming-education-with-instructional-videos/"><u>[New] 2024 Approved  Transforming Education with Instructional Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elite-video-influencers-for-2024/"><u>Elite Video Influencers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-seamless-integration-of-links-into-tiktok-profiles/"><u>[New] 2024 Approved  Seamless Integration of Links Into TikTok Profiles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-meme-magic-sprinkle-hilarity-with-simple-steps-for-2024/"><u>[New] Meme Magic  Sprinkle Hilarity with Simple Steps for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-beatmaking-breakdown-top-8-digital-audio-workstations-daws-for-mac-and-pc-enthusiasts/"><u>New 2024 Approved Beatmaking Breakdown Top 8 Digital Audio Workstations (DAWs) For Mac & PC Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unboxed-talent-the-breakout-females-dominating-youtube/"><u>[Updated] Unboxed Talent  The Breakout Females Dominating YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-comparing-apowersoft-to-alternatives/"><u>[Updated] In 2024, Comparing Apowersoft to Alternatives</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essential-strategies-for-flawless-cricket-livestreams/"><u>Essential Strategies for Flawless Cricket Livestreams</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-had-you-ever-thought-about-modifying-the-aspect-ratio-of-your-memorable-videos-do-you-have-any-idea-about-it-quickly-step-into-this-article-/"><u>Updated In 2024, Had You Ever Thought About Modifying the Aspect Ratio of Your Memorable Videos? Do You Have Any Idea About It? Quickly Step Into This Article to Discover Insights on This Topic in Detail</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-meta-versus-omni-the-future-of-digital-worlds/"><u>[New] Meta versus Omni  The Future of Digital Worlds</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-shifting-screenshots-from-tif-to-common-formats-mac/"><u>[Updated] In 2024, Shifting Screenshots From .tif to Common Formats (Mac)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premium-picks-recommended-spots-for-procuring-snapchat-chime-for-2024/"><u>[New] Premium Picks  Recommended Spots for Procuring Snapchat Chime for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-nokia-xr21-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Nokia XR21? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-step-by-step-acquiring-top-notch-clip-art-without-a-price-tag/"><u>[New] Step-by-Step  Acquiring Top-Notch Clip Art Without a Price Tag</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-guide-to-seamless-videos-with-funimate/"><u>[New] 2024 Approved  Guide to Seamless Videos with Funimate</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-windows-11-the-next-level-upgrade-journey/"><u>[New] 2024 Approved  Windows 11  The Next-Level Upgrade Journey</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-complete-guide-to-edit-your-video-with-youtube-studio-editor-for-2024/"><u>The Complete Guide to Edit Your Video with YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-stills-extraction-in-windows-11-photos/"><u>Mastering Stills Extraction in Windows 11 Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/must-do-tasks-for-enhanced-podcast-experience/"><u>Must-Do Tasks for Enhanced Podcast Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-innovative-methods-for-enhancing-testimonial-video-authenticity/"><u>[New] In 2024, Innovative Methods for Enhancing Testimonial Video Authenticity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/exploring-the-undiscovered-facets-of-story-viewing-for-2024/"><u>Exploring the Undiscovered Facets of Story Viewing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/powerdirector-app-2024-in-depth-review-and-step-by-step-guide/"><u>PowerDirector App 2024  In-Depth Review & Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-iphone-filmmaking-achieving-complete-circles/"><u>[New] In 2024, IPhone Filmmaking  Achieving Complete Circles</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-before-you-start-key-considerations-for-m4r-conversion-for-2024/"><u>New Before You Start Key Considerations for M4R Conversion for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-nikon-1-j5-4k-camera-review/"><u>[New] 2024 Approved  Nikon 1 J5 4K Camera Review</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-photo-retouch-erase-backgrounds-effectively-for-2024/"><u>Mastering Photo Retouch  Erase Backgrounds Effectively for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-iphones-secret-life-after-the-shot/"><u>[New] In 2024, Unveiling iPhone's Secret Life After the Shot</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-how-to-seamlessly-observe-the-most-praised-youtube-comments/"><u>[New] In 2024, How to Seamlessly Observe the Most Praised YouTube Comments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-iphone-photo-watermarking-sites-list/"><u>In 2024, Ultimate iPhone Photo Watermarking Sites List</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-whatsapp-room-assembly-guide-for-2024/"><u>[New] WhatsApp Room Assembly Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-step-by-step-guide-to-excellent-ipadiphone-interview-podcast-recording/"><u>[New] 2024 Approved  Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/master-strategies-for-crafting-impactful-testimonials/"><u>Master Strategies for Crafting Impactful Testimonials</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/15-ultimate-video-cameras-for-engaging-vlogs/"><u>15 Ultimate Video Cameras for Engaging Vlogs</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-percussive-purge-mastering-the-art-of-drum-free-music-online/"><u>In 2024, Percussive Purge Mastering the Art of Drum-Free Music Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-examining-the-efficacy-of-dji-mavic-mini-fpv-technology/"><u>[New] In 2024, Examining the Efficacy of DJi Mavic Mini FPV Technology</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfecting-iphone-images-in-dim-light/"><u>2024 Approved  Perfecting iPhone Images in Dim Light</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Ultimate Manual to Creating Engaging AE Heads-Ups\""
-date: 2024-06-25T19:31:52.653Z
-updated: 2024-06-26T19:31:52.653Z
+date: 2024-07-13T18:36:50.209Z
+updated: 2024-07-14T18:36:50.209Z
 tags: 
   - screen-recording
   - ai video
@@ -73,18 +73,27 @@ If you want your text to be distorted and unusual, the skew parameter is there f
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Keyframe
 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
 
 Therefore, keyframes are the building blocks for text animations and you have to use keyframes to create all the different online text effects. You can put the keyframes far apart or close and speed up or slow down the animation.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to Edit Text Effects in Videos with AE
 
 Now that you know the different animation parameters and text effect types, it is time to combine the parameters and animate the text. First of all, you should create a text layer with the desired source text After Effects. Then you can select a text effect preset and apply it to the text layer. Thereafter, you can animate the text by editing the different parameters and properties we have mentioned along with keyframes. Here are the steps to add and edit text effects in videos with AE.
 
 Step1 Go to Tool panel, click on Type tool. Click on Composition panel and type in your text. Go to Characters and Paragraph section and adjust the text style parameters.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![text style parameters after effects](https://images.wondershare.com/filmora/article-images/2022/09/text-style-parameters-after-effects.jpg)
 
 Step2 Go to Effects and Presets panel, search for the desired text effect preset that you want to apply on your text. Drag and drop the selected preset on the text layer and you will see your text getting transformed instantly.
@@ -155,6 +164,9 @@ If you want to zoom in and zoom out animation for your text or title, you can us
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
@@ -258,3 +270,56 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-standard-edition-review-of-djis-drone-model-3/"><u>2024 Approved  The Standard Edition Review of DJI's Drone Model 3</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-abletons-soften-sound-strategies/"><u>2024 Approved  Ableton's Soften Sound Strategies</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, iCloud Unlocker Download Unlock iCloud Lock for your iPhone 15 Plus</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-tecno-spark-go-2023-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-vivo-y77t-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Vivo Y77t Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2023s-top-free-premiere-pro-masterpieces-for-2024/"><u>2023'S Top Free Premiere Pro Masterpieces for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-step-by-step-journey-to-itunes-audio-acquisition-on-ios-devices/"><u>2024 Approved  A Step-by-Step Journey to iTunes Audio Acquisition on iOS Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/trending-tweets-triumph-twitters-highest-viewed-video-hits-for-2024/"><u>Trending Tweets Triumph  Twitter's Highest-Viewed Video Hits for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-3dr-navigating-the-single-user-realm-of-3d-tech/"><u>2024 Approved  '3DR'  Navigating the Single User Realm of 3D Tech</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-3-straightforward-methods-to-fine-tune-shades/"><u>2024 Approved  3 Straightforward Methods to Fine-Tune Shades</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-financials-of-boosting-your-youtube-videos/"><u>[Updated] The Financials of Boosting Your YouTube Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-list-of-the-best-8-sites-for-free-3d-text-psd-downloads/"><u>2024 Approved  A List of the Best 8 Sites for Free 3D Text PSD Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/14-interesting-text-animation-examples-you-can-try-for-2024/"><u>14 Interesting Text Animation Examples You Can Try for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-best-approaches-to-non-sound-media/"><u>2024 Approved  Best Approaches to Non-Sound Media</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-achieving-realistic-blur-on-images-using-photoshop-techniques/"><u>2024 Approved  Achieving Realistic Blur on Images Using Photoshop Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-aerial-innovations-explained-drone-technology-simplified/"><u>2024 Approved  Aerial Innovations Explained  Drone Technology Simplified</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-journey-through-chromatic-realms-editing-essentials/"><u>2024 Approved  A Journey Through Chromatic Realms  Editing Essentials</u></a></li>
+<li><a href="https://techidaily.com/is-your-motorola-g54-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Motorola G54 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-review-of-the-goofy-movie-vhs/"><u>2024 Approved  A Review of The Goofy Movie VHS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-6-competitive-video-apps-as-periscope-substitutes/"><u>2024 Approved  6 Competitive Video Apps as Periscope Substitutes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-7-top-ranked-cameras-for-snowboarding-and-skiing-enthusiasts/"><u>2024 Approved  7 Top-Ranked Cameras for Snowboarding & Skiing Enthusiasts</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-how-to-add-audio-to-quicktime-video-files-for-2024/"><u>New How to Add Audio to QuickTime Video Files for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-diy-approach-downloading-and-personalizing-your-whatsapp-ringtone/"><u>2024 Approved  A DIY Approach  Downloading & Personalizing Your WhatsApp Ringtone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-achieve-sharp-footage-with-best-rated-camera-gimbals/"><u>2024 Approved  Achieve Sharp Footage with Best-Rated Camera Gimbals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-accelerate-access-funimates-download-demystified/"><u>2024 Approved  Accelerate Access  Funimate's Download Demystified</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-filmmakers-ally-unlocking-youtube-studio-editor-secrets/"><u>The Filmmaker's Ally  Unlocking YouTube Studio Editor Secrets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-beginners-guide-to-creating-impactful-slug-lines/"><u>2024 Approved  A Beginner's Guide to Creating Impactful Slug Lines</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-7-exceptional-drone-gimbals-unveiled/"><u>2024 Approved  7 Exceptional Drone Gimbals Unveiled</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-3dr-the-path-taken-by-a-lone-printer-explorer/"><u>2024 Approved  '3DR'  The Path Taken by a Lone Printer Explorer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-all-inclusive-360-panorama-viewer/"><u>2024 Approved  All-Inclusive 360 Panorama Viewer</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-poco-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-12-pro-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone 12 Pro Passcode not Working?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-guide-to-blurring-videos-on-iphone-and-android/"><u>Updated In 2024, The Ultimate Guide to Blurring Videos on iPhone and Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-adobes-path-to-perspective-creating-life-like-text/"><u>2024 Approved  Adobe's Path to Perspective  Creating Life-Like Text</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-adventure-essentials-top-10-gopro-protectors-reviewed/"><u>2024 Approved  Adventure Essentials - Top 10 GoPro Protectors Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/11-step-by-step-pathways-to-perfect-grading-for-2024/"><u>11 Step by Step Pathways to Perfect Grading for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/personal-evolution-building-an-enduring-youtubing-identity/"><u>Personal Evolution  Building an Enduring YouTubing Identity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-achieving-flawless-fb-live-via-zoom-streaming/"><u>2024 Approved  Achieving Flawless FB Live via Zoom Streaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/10-missing-iphone-x-tips-and-tricks-for-you-to-pick-up/"><u>10 Missing iPhone X Tips and Tricks For You to Pick Up</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-aerial-vehicles-a-taxonomy/"><u>2024 Approved  Aerial Vehicles  A Taxonomy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-acknowledgement-roundup-free-and-paid-template-haven/"><u>2024 Approved  Acknowledgement Roundup  Free & Paid Template Haven</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-elevate-your-typography-with-affects-best-in-class-plug-ins/"><u>[Updated] Elevate Your Typography with Affects' Best-in-Class Plug-Ins</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-10-ultimate-action-hunting-cameras-ranked/"><u>2024 Approved  10 Ultimate Action Hunting Cameras Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-4k-perfection-selecting-youtubes-best-video-tools/"><u>2024 Approved  4K Perfection  Selecting YouTube's Best Video Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-adding-captions-and-text-a-guide-for-photo-titles-in-microsoft-photos/"><u>2024 Approved  Adding Captions and Text  A Guide for Photo Titles in Microsoft Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-10plus-best-photo-to-cartoon-softwares/"><u>2024 Approved  10+ Best Photo to Cartoon Softwares</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-uncover-the-joyful-journey-best-comedy-and-sadness-on-insta/"><u>[New] Uncover the Joyful Journey  Best Comedy & Sadness on Insta</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-honesty-in-high-definition-reviewing-recordcasts-efficacy/"><u>[Updated] In 2024, Honesty in High-Definition  Reviewing RecordCast's Efficacy</u></a></li>
+</ul></div>

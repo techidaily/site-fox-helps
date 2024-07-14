@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlocking WhatsApp Wizardry  Your Essential Guide\""
-date: 2024-06-25T18:59:07.079Z
-updated: 2024-06-26T18:59:07.079Z
+date: 2024-07-13T17:58:21.270Z
+updated: 2024-07-14T17:58:21.270Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
 
 ## Unlocking WhatsApp Wizardry: Your Essential Guide
 
-# Cool Whatsapp Tricks and Hidden Features You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Cool Whatsapp Tricks and Hidden Features You Should Know
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -44,12 +45,18 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol (\_text\_) at the starting and end of your sentence.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
 #### 3.Strikethrough
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
 
 #### 4.Monospace
@@ -96,6 +103,9 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What are the Hidden Features of WhatsApp?
 
 Since most of the above-mentioned are owing to the tricks and trades of texting via WhatsApp, let us now jot down a WhatsApp hidden feature list that applies for general usability of the wonder-app. There are useful privacy settings and chat features that can make your user experience a lot more peaceful.
@@ -136,6 +146,9 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
 #### 8.Mute Stories that You Don’t Want to See
@@ -204,3 +217,62 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-exploring-fb-video-aspect-proportions/"><u>[Updated] Exploring FB Video Aspect Proportions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-streamline-your-content-best-12-html5-video-tools/"><u>2024 Approved  Streamline Your Content  Best 12 HTML5 Video Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elevate-your-zoom-sessions-boost-video-fidelity/"><u>2024 Approved  Elevate Your Zoom Sessions  Boost Video Fidelity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unmatched-playwrights-arena/"><u>[Updated] Unmatched Playwright's Arena</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-quintessential-editing-advantages-of-filmora/"><u>[Updated] The Quintessential Editing Advantages of Filmora</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-art-of-captivation-rally-more-likes-for-your-tiktok-unpacks/"><u>[Updated] The Art of Captivation  Rally More Likes for Your TikTok Unpacks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-plan-for-profit-from-instagram-content/"><u>The Ultimate Plan for Profit From Instagram Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-insights-into-magix-video-pro-xs-design/"><u>2024 Approved  Expert Insights Into Magix Video Pro X's Design</u></a></li>
+<li><a href="https://games-able.techidaily.com/meta-in-gaming-decoded-what-it-is-and-should-you-comply/"><u>Meta in Gaming Decoded: What It Is & Should You Comply?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sculpting-cinematographic-excellence-in-gopro-editing-for-2024/"><u>Sculpting Cinematographic Excellence in GoPro Editing for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/learn-to-add-youtube-videos-for-richer-google-slate-decks-for-2024/"><u>Learn to Add YouTube Videos for Richer Google Slate Decks for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-vivo-s17-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Vivo S17 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-exclusive-templates-for-tiktok-backdrops/"><u>[Updated] In 2024, Unveiling Exclusive Templates for TikTok Backdrops</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-virtual-decoration-google-vs-alternative-ar-tools/"><u>In 2024, Virtual Decoration  Google Vs. Alternative AR Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-steps-to-secure-unmarked-stock-photos-for-business/"><u>[New] 2024 Approved  Steps to Secure Unmarked Stock Photos for Business</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-engage-inspire-convert-strategizing-for-impactful-instavideo-content/"><u>[Updated] Engage, Inspire, Convert  Strategizing for Impactful InstaVideo Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-elite-list-10-best-cases-for-your-gopro/"><u>[New] 2024 Approved  The Elite List  10 Best Cases for Your GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-all-about-dji-inspire-1-in-depth-analysis/"><u>[New] 2024 Approved  All About  DJI Inspire 1 in Depth Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-maximizing-iphone-to-mac-file-transfer-for-large-videos/"><u>2024 Approved  Maximizing iPhone-to-Mac File Transfer for Large Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-twisting-the-narrative-a-guide-to-angled-photography-in-todays-digital-landscape/"><u>[Updated] Twisting the Narrative  A Guide to Angled Photography in Today's Digital Landscape</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-masters-crafting-unparalleled-vr-adventures/"><u>[New] 2024 Approved  Masters Crafting Unparalleled VR Adventures</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-proven-techniques-for-stunning-timelapses-in-gopro-studio/"><u>[Updated] In 2024, Proven Techniques for Stunning Timelapses in GoPro Studio</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-create-animated-bouncing-text/"><u>[New] 2024 Approved  How to Create Animated Bouncing Text</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-pulse-of-the-population-vllo-analysis/"><u>2024 Approved  The Pulse of the Population  VLLO Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/eliminate-blur-in-zoom-calls-actionable-strategies-for-2024/"><u>Eliminate Blur in Zoom Calls – Actionable Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-handheld-vr-camera-stability-enhancer-for-2024/"><u>[Updated] Handheld VR Camera Stability Enhancer for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-send-hidden-youtube-videos-using-google-login/"><u>How to Send Hidden YouTube Videos Using Google Login</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-transformative-editing-experience-windows-photos-meets-story-remix/"><u>[Updated] 2024 Approved  Transformative Editing Experience  Windows Photos Meets Story Remix</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-essential-action-triumphs-the-top-games-compilation/"><u>[Updated] In 2024, Essential Action Triumphs  The Top Games Compilation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-pick-cross-platform-devices-ideal-entry-editor/"><u>[New] 2024 Approved  Top Pick  Cross-Platform Devices' Ideal Entry Editor</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-iphone-photography-boosted-by-ios-11-features/"><u>[Updated] IPhone Photography Boosted by iOS 11 Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-global-vr-landscape-recent-developments/"><u>[New] 2024 Approved  Global VR Landscape  Recent Developments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-snap-your-next-podcast-pick-for-sharing/"><u>[Updated] In 2024, Snap Your Next Podcast Pick for Sharing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-ordinary-to-outstanding-photos-ios-and-androids-leading-sticker-adders-for-2024/"><u>From Ordinary to Outstanding Photos  IOS & Android's Leading Sticker Adders for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-zoom-launch-your-guide-to-online-chats/"><u>2024 Approved  Zoom Launch  Your Guide to Online Chats</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-digital-dimensions-metaverse-and-multiverse/"><u>2024 Approved  Navigating Digital Dimensions  Metaverse and Multiverse</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-finest-digital-voice-recorders/"><u>[New] Finest Digital Voice Recorders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-camera-companion-dilemma-polaroid-cube-or-gopro-hero-edition/"><u>[Updated] 2024 Approved  Camera Companion Dilemma  Polaroid Cube or GoPro Hero Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-seamless-video-editing-in-windows-10-without-expensive-software/"><u>In 2024, Seamless Video Editing in Windows 10 Without Expensive Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-future-sighted-the-foremost-cameras-excellence/"><u>[Updated] 2024 Approved  Future Sighted  The Foremost Cameras Excellence</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevating-your-photography-with-lightrooms-hdr-merging-features/"><u>[New] 2024 Approved  Elevating Your Photography with Lightroom's HDR Merging Features</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-x-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone X Prevention & Solution</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-panoramic-portals-cutting-edge-filmscapes/"><u>In 2024, Panoramic Portals  Cutting-Edge Filmscapes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-from-basics-to-mastery-unveiling-timelapse-shooting-techniques-with-gopro-for-2024/"><u>[Updated] From Basics to Mastery  Unveiling Timelapse Shooting Techniques with GoPro for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/skirting-persistent-login-prompt-issues-in-windows/"><u>Skirting Persistent Login Prompt Issues in Windows</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-skyward-gazing-inside-the-world-of-x4-fpv-quads/"><u>In 2024, Skyward Gazing  Inside the World of X4 FPV Quads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-essentials-of-professional-editing-in-gopro-studio/"><u>2024 Approved  The Essentials of Professional Editing in GoPro Studio</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-what-is-the-top-mp3-converter-mac-software/"><u>Updated 2024 Approved What Is the Top MP3 Converter Mac Software?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-securing-visuals-the-method-of-concealing-details/"><u>[Updated] 2024 Approved  Securing Visuals  The Method of Concealing Details</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-crafting-perfect-srt-output-with-premiere-pro/"><u>[New] 2024 Approved  Crafting Perfect SRT Output with Premiere Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-magical-jargon-uncover-the-best-marketing-phrases/"><u>2024 Approved  Magical Jargon  Uncover the Best Marketing Phrases</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhanced-question-guide-for-engaging-audio-content/"><u>2024 Approved  Enhanced Question Guide for Engaging Audio Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-the-art-of-restarting-disrupted-fb-live-sessions/"><u>[Updated] In 2024, Mastering the Art of Restarting Disrupted FB LIVE Sessions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-vmix-os-transcendence-software/"><u>[Updated] In 2024, VMix OS Transcendence Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-by-step-garageband-tutorial-for-podcast-creation/"><u>[Updated] Step-by-Step GarageBand Tutorial for Podcast Creation</u></a></li>
+</ul></div>

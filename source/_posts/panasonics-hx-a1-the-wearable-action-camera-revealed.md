@@ -1,7 +1,7 @@
 ---
 title: "\"Panasonic’s HX-A1 - The Wearable Action Camera Revealed\""
-date: 2024-06-25T18:59:12.667Z
-updated: 2024-06-26T18:59:12.667Z
+date: 2024-07-13T17:58:27.871Z
+updated: 2024-07-14T17:58:27.871Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
 ## Panasonic’s HX-A1 - The Wearable Action Camera Revealed
 
-# Panasonic HX-A1 Wearable Action Camera Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Panasonic HX-A1 Wearable Action Camera Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -30,10 +31,17 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-## Design and Usability ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Design and Usability
+![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -92,8 +100,14 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
 #### Wind jammer and strap adapter
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Features
 
 #### **1. Video and photo quality**
@@ -154,3 +168,45 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/boosting-engagement-posting-vivid-3d-images-to-facebook/"><u>Boosting Engagement: Posting Vivid 3D Images to Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-advanced-data-analytics-methods-for-market-research-analysis/"><u>[Updated] In 2024, Advanced Data Analytics Methods for Market Research Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-comprehensively-reviewing-the-ricoh-theta-s-system/"><u>[New] Comprehensively Reviewing the Ricoh Theta S System</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-art-of-film-capturing-essential-camera-movements-for-novices/"><u>The Art of Film Capturing  Essential Camera Movements for Novices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-powerful-path-to-stellar-videos-top-free-intro-makers-for-2024/"><u>The Powerful Path to Stellar Videos  Top Free Intro Makers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-hearing-beginnings-mastering-volume-control-in-adobe-audition/"><u>[New] Hearing Beginnings  Mastering Volume Control in Adobe Audition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-professional-audio-techniques-in-audacity/"><u>[Updated] In 2024, Professional Audio Techniques in Audacity</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-12-mini-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone 12 mini without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-universalaccess-tv-diverse-channels-with-a-local-twist/"><u>[Updated] In 2024, UniversalAccess TV  Diverse Channels with a Local Twist</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-dells-vision-for-the-future-with-an-insight-into-p2715q-monitor-specs/"><u>[New] In 2024, Dell's Vision for the Future with an Insight Into P2715Q Monitor Specs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-comprehensive-guide-to-the-updated-facetune-photo-editing/"><u>[New] In 2024, Comprehensive Guide to the Updated Facetune Photo Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-apex-gk-quizmasters-video-channel-list/"><u>[Updated] 2024 Approved  Apex GK Quizmasters' Video Channel List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-behind-the-shoot-spots-seeking-budget-friendly-stunning-tiktok-backdrops-for-2024/"><u>[New] Behind-the-Shoot Spots  Seeking Budget-Friendly, Stunning TikTok Backdrops for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-streamlining-your-workflow-with-mac-preview-complete-guide/"><u>[Updated] Streamlining Your Workflow with Mac Preview  Complete Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlocking-the-secrets-of-alluring-vlog-narratives/"><u>Unlocking the Secrets of Alluring Vlog Narratives</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-uninitiateds-guide-to-finding-rhythmic-foundations-for-rap-lyrics/"><u>Updated In 2024, The Uninitiateds Guide to Finding Rhythmic Foundations for Rap Lyrics</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-from-full-blast-to-quietude-implementing-audio-volume-transitions-in-imovie/"><u>Updated In 2024, From Full Blast to Quietude Implementing Audio Volume Transitions in iMovie</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-inside-out-a-thorough-examination-of-dji-phantom-4/"><u>[Updated] In 2024, Inside Out  A Thorough Examination of DJI Phantom 4</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expert-advice-enhancing-control-over-snapchat-video-speed/"><u>[Updated] Expert Advice  Enhancing Control Over Snapchat Video Speed</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-top-10-viral-music-videos-on-social-media/"><u>In 2024, Top 10 Viral Music Videos on Social Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-beyond-the-lens-essential-ios-and-android-video-platforms/"><u>[Updated] 2024 Approved  Beyond the Lens  Essential iOS and Android Video Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-reclaim-the-loss-10-essential-iphone-x-techniques/"><u>[New] Reclaim The Loss  10 Essential iPhone X Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-shoppers-quick-guide-to-choosing-top-notch-360cams/"><u>[Updated] In 2024, The Shopper’s Quick Guide to Choosing Top-Notch 360Cams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-shot-to-spectacle-pro-tips-for-transformative-photographic-edits/"><u>[New] From Shot to Spectacle  Pro Tips for Transformative Photographic Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-savvy-sound-engineers-10-best-free-lut-picks-for-2024/"><u>[New] Savvy Sound Engineers' 10 Best FREE LUT Picks for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-fpv-fantasy-a-closer-look-at-the-hubsan-h501x4/"><u>[Updated] 2024 Approved  FPV Fantasy  A Closer Look at the Hubsan H501X4</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-is-it-possible-to-watch-fb-videos-on-tv-in-2024/"><u>[Updated] Is It Possible to Watch FB Videos on TV , In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-superior-online-concert-streamers-for-2024/"><u>[New] Superior Online Concert Streamers for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/direct-fix-route-no-current-nvidia-output/"><u>Direct Fix Route: No Current NVIDIA Output</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-skewed-imagery-texts/"><u>[Updated] In 2024, Mastering Skewed Imagery Texts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-directors-speak-the-soul-of-film-writing-for-2024/"><u>[New] Directors Speak  The Soul of Film Writing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-evolution-of-video-from-sdr-to-the-era-of-high-dynamic-range/"><u>[New] In 2024, The Evolution of Video  From SDR to the Era of High Dynamic Range</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-best-free-platforms-for-unique-and-striking-text-appeal-for-2024/"><u>[New] The Best Free Platforms for Unique and Striking Text Appeal for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-stealthy-styles-easy-color-corrections-techniques/"><u>[New] In 2024, Stealthy Styles  Easy Color Corrections Techniques</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-apple-iphone-13-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>In 2024, Best Apple iPhone 13 & iPad Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-conquering-vr-lexicon-for-beginners/"><u>[New] Conquering VR Lexicon for Beginners</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-combining-zoom-and-facebook-live-a-step-by-step-guide/"><u>[New] Combining Zoom & Facebook Live  A Step-by-Step Guide</u></a></li>
+</ul></div>

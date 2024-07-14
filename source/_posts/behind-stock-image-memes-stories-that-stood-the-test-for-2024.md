@@ -1,7 +1,7 @@
 ---
 title: "\"Behind Stock Image Memes  Stories That Stood the Test for 2024\""
-date: 2024-06-25T18:57:15.317Z
-updated: 2024-06-26T18:57:15.317Z
+date: 2024-07-13T17:56:10.893Z
+updated: 2024-07-14T17:56:10.893Z
 tags: 
   - screen-recording
   - ai video
@@ -22,7 +22,11 @@ A stock photo meme is an image or video you use to communicate a specific idea. 
 
 So, what are the most popular stock photo memes, and how did they reach this status? Keep reading to find out more.
 
-## Part1: Hide the Pain Harold ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
+## Part1: Hide the Pain Harold
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
 
 Since 2011, Hide the Pain Harold continues to rank as one of the world's most popular stock photo memes. Here are some numbers to show you how popular the meme is.
 
@@ -37,6 +41,9 @@ Since 2011, Hide the Pain Harold continues to rank as one of the world's most po
 
 According to Andras, Hide the Pain Harold results from his vacation in Turkey. A professional photographer contacted him to do stock image modeling. During the shoot, the photographer kept telling him to smile, resulting in some photos of Andras appearing to force a smile. This expression led to netizens using his image to express situations where the forced smile is masking your true feelings.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![do stock image modeling](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-3.jpg)
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
@@ -66,7 +73,8 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
-## Part3: I Bet He's Thinking About Other Women ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
+## Part3: I Bet He's Thinking About Other Women
+![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
@@ -86,11 +94,15 @@ The post references the Toy Story character Buzz Lightyear, with the man contemp
 
 According to sources, the stock photo meme was first featured on Twitter in December 2016.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
-## Part4: Bonjour Bear ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
+## Part4: Bonjour Bear
+![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -109,6 +121,9 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 
 ## Part5: FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
@@ -154,3 +169,43 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-novice-to-expert-a-compreenhensive-fcp-guide/"><u>2024 Approved  From Novice to Expert  A Compreenhensive FCP Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigate-and-binge-with-finesse-perfect-use-of-floating-window-in-netflix/"><u>[Updated] Navigate and Binge with Finesse  Perfect Use of Floating Window in Netflix</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-dynamic-website-content-incorporating-youtube-playlists/"><u>In 2024, Dynamic Website Content  Incorporating YouTube Playlists</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-hard-to-remove-black-background-in-after-effects-heres-the-best-way-to-deal-with-it/"><u>In 2024, Hard to Remove Black Background in After Effects? Heres the Best Way to Deal With It</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-appreciation-showcase-outro-themes-for-all-budgets/"><u>[Updated] In 2024, Appreciation Showcase  Outro Themes for All Budgets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dji-quadcopters-tiers-basic-model-enhanced-version-high-definition-masterclass/"><u>[Updated] DJI Quadcopters Tiers  Basic Model, Enhanced Version, High Definition Masterclass</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-strategies-for-producing-top-notch-professional-gopro-content/"><u>2024 Approved  Strategies for Producing Top-Notch, Professional Gopro Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-in-depth-video-studio-analysis-comprehensive-xreview-guide/"><u>[Updated] 2024 Approved  In-Depth Video Studio Analysis  Comprehensive XReview Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/windows-edition-filmmaking-essentials-expert-editor-suggestions/"><u>Windows Edition Filmmaking Essentials  Expert Editor Suggestions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-grow-to-1k-per-month-master-the-art-of-ig-popularity/"><u>[New] 2024 Approved  Grow to 1K Per Month  Master the Art of IG Popularity</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-mastering-the-art-of-animation-in-viral-online-videos/"><u>[Updated] In 2024, Mastering the Art of Animation in Viral Online Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-tecno-spark-10c-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Tecno Spark 10C Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-professional-drones-an-in-depth-pilots-list/"><u>[Updated] Best Professional Drones – An In-Depth Pilot’s List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-alarm-tone-collection-premier-websites/"><u>2024 Approved  Alarm Tone Collection  Premier Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-freeframe-finders-your-path-to-aesthetic-economical-backdrops-on-tiktok/"><u>[Updated] In 2024, FreeFrame Finders  Your Path to Aesthetic, Economical Backdrops on TikTok</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-onestepcams-evaluation-are-we-overlooking-gems/"><u>2024 Approved  OneStepCams Evaluation  Are We Overlooking Gems?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-excellent-camcorders-with-facing-panel/"><u>[Updated] In 2024, Excellent Camcorders with Facing Panel</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-innovative-ways-to-earn-on-snapchat/"><u>[New] In 2024, Innovative Ways to Earn on Snapchat</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-m1-max-clips/"><u>[Updated] 2024 Approved  Unveiling the Secrets of M1 Max Clips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-ultimate-guide-to-best-windows-11-screen-capturing-apps-top-15/"><u>2024 Approved  Ultimate Guide to Best Windows 11 Screen-Capturing Apps (Top 15)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-free-sound-library-download/"><u>[Updated] 2024 Approved  Facebook's Free Sound Library Download</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-organizing-virtual-gatherings-syncing-slack-with-filmoras-features/"><u>[New] Organizing Virtual Gatherings  Syncing Slack with Filmora's Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-decoding-instagrams-music-copyright-doctrine/"><u>2024 Approved  Decoding Instagram's Music Copyright Doctrine</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-innovative-image-transformation-hacks/"><u>[Updated] Innovative Image Transformation Hacks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-crafting-harmonious-photographic-mosaics-with-ease/"><u>[Updated] In 2024, Crafting Harmonious Photographic Mosaics with Ease</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-navigating-through-new-camera-settings-in-ios-11/"><u>[Updated] In 2024, Navigating Through New Camera Settings in iOS 11</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-creative-photography-palette-radiantvisuals-edge/"><u>2024 Approved  Creative Photography Palette  RadiantVisuals Edge</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-ps1-classics-on-your-desktop-the-best-emulators-reviewed/"><u>In 2024, PS1 Classics on Your Desktop  The Best Emulators Reviewed</u></a></li>
+<li><a href="https://video-capture.techidaily.com/joining-google-meet-easily-anytime-anywhere/"><u>Joining Google Meet Easily, Anytime, Anywhere</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-from-airwaves-to-e-readers-how-to-save-web-tv-shows/"><u>[Updated] 2024 Approved  From Airwaves To E-Readers  How to Save Web TV Shows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-generate-humor-picmagic-creation/"><u>[Updated] 2024 Approved  Generate Humor  PicMagic Creation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-voice-editing-for-instagrams-media/"><u>[New] The Ultimate Guide to Voice Editing for Instagram's Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-content-for-insta-clout-a-9-step-playbook-for-fame/"><u>2024 Approved  Crafting Content for Insta Clout  A 9-Step Playbook for Fame</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-beginners-guide-to-masterful-marketing-with-reddit-insights/"><u>[Updated] Beginner's Guide to Masterful Marketing with Reddit Insights</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-building-a-brand-in-the-metaverse-ecosystem/"><u>[Updated] Building a Brand in the Metaverse Ecosystem</u></a></li>
+</ul></div>

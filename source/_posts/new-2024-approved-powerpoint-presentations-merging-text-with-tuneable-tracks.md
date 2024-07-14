@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  PowerPoint Presentations  Merging Text with Tuneable Tracks\""
-date: 2024-06-25T18:58:12.379Z
-updated: 2024-06-26T18:58:12.379Z
+date: 2024-07-13T17:57:16.874Z
+updated: 2024-07-14T17:57:16.874Z
 tags: 
   - screen-recording
   - ai video
@@ -44,13 +44,15 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 **Steps to add audio to PowerPoint from PC**
 
-##### Step1 Select Insert > Audio ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+##### Step1 Select Insert > Audio
+![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
 
 ##### Step3 Select the audio file you want to add in the Insert Audio dialogue box
 
-##### Step4 Select Insert ![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
+##### Step4 Select Insert
+![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
 
 ## Part 2 Record audio on PowerPoint
 
@@ -98,15 +100,20 @@ Select Export to confirm.
 
 This section will look at editing the added Audio into PowerPoint. As we've already gathered steps on adding Audio to PowerPoint and recording Audio on PowerPoint, it's time to move a step ahead into the editing panel as follows.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### I. Trim audio in PowerPoint presentation
 
 Let's suppose we've added long audio to our presentation, and we just only need it a few seconds long. So, we need to trim its audio by hitting the specific tabs.
 
 ##### Step1 Click the audio icon you’ve just added to the presentation in previous steps
 
-##### Step2 Click Playback> Trim Audio as shown below ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
+##### Step2 Click Playback> Trim Audio as shown below
+![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
+##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
+![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
@@ -124,7 +131,8 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-##### Step1 Click Add Bookmark after clicking the place ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
+##### Step1 Click Add Bookmark after clicking the place
+![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
 ## Part 4 How to play audio automatically in PowerPoint
 
@@ -144,10 +152,16 @@ Instead of doing extreme and lengthy steps, we can create a top-notch video with
 
 Let’s see how we can achieve this!
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Steps to add audio to PowerPoint via Wondershare Filmora
 
 #### Wondershare Filmora
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
@@ -164,6 +178,9 @@ Note: You can also go for in-built music tracks to add music to your video by se
 
 Hover the mouse over the media you’ve imported for presentation and click the + sign to add audio to the project.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add audio Filmora](https://images.wondershare.com/filmora/article-images/add-video-filmora.jpg)
 
 ##### Step3 Edit audio
@@ -232,3 +249,40 @@ In this guide, we’ll specifically talk about the feature by which you can reco
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-face-fluidity-techniques-implementing-motion-blur-effects/"><u>2024 Approved  Face Fluidity Techniques  Implementing Motion Blur Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-drone-footage-mastery-editorial-software-hierarchy-unlocked/"><u>2024 Approved  Drone Footage Mastery  Editorial Software Hierarchy Unlocked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-tiny-worlds-5-ways-to-zoom-in-on-minecraft/"><u>2024 Approved  Navigating Tiny Worlds  5 Ways to Zoom In on Minecraft</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-character-adventures-windows-movie-maker-for-animators/"><u>2024 Approved  Crafting Character Adventures  Windows Movie Maker for Animators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta/"><u>2024 Approved  Mastering the Art of Soundtrack Posts  A Copyright Primer for Insta</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-experts-insight-best-car-tracking-gadgets/"><u>2024 Approved  Expert's Insight  Best Car Tracking Gadgets</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-x100-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo X100 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-inside-the-immersive-evolution-vrs-present-state-and-foreseen-obstacles/"><u>2024 Approved  Inside the Immersive Evolution  VR's Present State and Foreseen Obstacles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-how-to-identify-premium-hassle-free-free-srt-translator-services/"><u>2024 Approved  How to Identify Premium, Hassle-Free Free SRT Translator Services</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-filmmakers-first-steps-learning-15-fundamental-shots/"><u>In 2024, The Filmmaker's First Steps  Learning 15 Fundamental Shots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-first-film-experience-selecting-best-gopro-extras/"><u>2024 Approved  First Film Experience  Selecting Best GoPro Extras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimizing-storage-spend-best-prices-in-cloud-services/"><u>2024 Approved  Optimizing Storage Spend  Best Prices in Cloud Services</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cutting-edge-tools-to-revamp-virtual-performer-voices/"><u>2024 Approved  Cutting-Edge Tools to Revamp Virtual Performer Voices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-funny-faces-for-iphone-users/"><u>2024 Approved  Funny Faces for iPhone Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-luminarx-the-freepaid-lightroom-rival-list/"><u>2024 Approved  LuminarX  The Free/Paid Lightroom Rival List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-economical-dslrs-for-the-cost-conscious/"><u>2024 Approved  Economical DSLRs for the Cost-Conscious</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-go-incognito-with-instagram-live-streaming-tips/"><u>2024 Approved  Go Incognito with Instagram Live Streaming Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-elegant-mosaic-imagery-fusions/"><u>2024 Approved  Mastering Elegant Mosaic Imagery Fusions</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-tailor-made-melodies-assembling-your-own-youtube-playlist/"><u>In 2024, Tailor-Made Melodies  Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-guide-to-blurring-faces-in-photos-and-videos-free-resources-for-2024/"><u>New The Ultimate Guide to Blurring Faces in Photos and Videos (Free Resources) for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-vn-video-editor-pro-apk-is-it-a-worthy-video-editing-app/"><u>Updated 2024 Approved VN Video Editor Pro Apk - Is It A Worthy Video Editing App?</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-top-rated-image-to-video-makers-free-and-paid-solutions/"><u>New 2024 Approved Top-Rated Image to Video Makers Free and Paid Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dynamic-strategies-for-complementary-podcast-consumption/"><u>2024 Approved  Dynamic Strategies for Complementary Podcast Consumption</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/take-your-smartphone-cinematography-to-new-heights-with-these-9-accessories/"><u>Take Your Smartphone Cinematography to New Heights with These 9 Accessories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-hubsan-x4-quadcopter-examination-an-in-depth-guide/"><u>2024 Approved  Hubsan X4 Quadcopter Examination  An In-Depth Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-proven-methods-to-elevate-your-filmora-editing-skills-for-2024/"><u>[Updated] Proven Methods to Elevate Your Filmora Editing Skills for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-capturing-movement-with-clarity-implementing-motion-blur-on-peoples-photos-with-picsart/"><u>2024 Approved  Capturing Movement with Clarity  Implementing Motion Blur on People's Photos with Picsart</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-6s-plus-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-hassle-free-video-opener-templates/"><u>2024 Approved  Discover Hassle-Free Video Opener Templates</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-huawei-p60-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Huawei P60 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/starting-point-learning-to-thrive-in-instagrams-virtual-spaces-for-2024/"><u>Starting Point  Learning to Thrive in Instagram's Virtual Spaces for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-adventures-with-the-foremost-6-gopro-mounts-revealed/"><u>2024 Approved  Mastering Adventures with the Foremost 6 GoPro Mounts Revealed</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-grandview-alliance-how-to-settle-on-a-cms-for-2024/"><u>[Updated] Grandview Alliance  How to Settle on a CMS for 2024</u></a></li>
+</ul></div>

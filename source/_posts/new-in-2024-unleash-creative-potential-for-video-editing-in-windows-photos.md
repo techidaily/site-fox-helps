@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Unleash Creative Potential for Video Editing in Windows Photos"
-date: 2024-06-25T19:24:10.599Z
-updated: 2024-06-26T19:24:10.599Z
+date: 2024-07-13T18:27:45.451Z
+updated: 2024-07-14T18:27:45.451Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/6eaf9b365a6361451b5795d958332fe971bf3b2af
 
 ## Unleash Creative Potential for Video Editing in Windows Photos
 
-# How to Use Story Remix to Edit a Video in Windows 10 Photos ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Use Story Remix to Edit a Video in Windows 10 Photos
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -66,6 +67,9 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -130,8 +134,14 @@ Adding 3D special effects to video clips is one of the lucrative features of Pho
 2. Position the effect by dragging/dropping and via preview panel > set the time range for effect > adjust the Y and Z co-ordinates for the effect. Some of the effects are applicable to the whole clip, while some are meant to be placed at particular locations over the clip. Slide on the ‘Attach to a point’ toggle, so it makes the effect move or stay fixed, depending on the object it is fixed to.
 3. Click ‘Delete’ if you want to remove 3D effects. Hit ‘Done’ for saving the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-effects-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 6: How to export a Story Remix video
 
 Now that you have learnt how to edit videos in Story Remix, let’s see how can you export or share them with the world. You can directly share from Photos or use a USB drive to do the needful.
@@ -157,6 +167,9 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -183,3 +196,47 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-integrate-srt-into-windowsmacos-operations/"><u>[New] In 2024, Integrate SRT Into Windows/macOS Operations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-discovering-success-through-the-most-effective-15-youtube-themes/"><u>[Updated] In 2024, Discovering Success Through the Most Effective 15 YouTube Themes</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-journey-through-cinematic-universes-with-vr/"><u>[Updated] In 2024, Journey Through Cinematic Universes with VR</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-zte-blade-a73-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your ZTE Blade A73 5G</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-10-hexacopter-drone-breakthroughs/"><u>[New] In 2024, Top 10 Hexacopter Drone Breakthroughs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-luminous-techniques-for-web-based-cinema/"><u>[Updated] 2024 Approved  Luminous Techniques for Web-Based Cinema</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elite-groups-top-12-camcorders-featuring-gps-mapping-capabilities/"><u>[Updated] In 2024, Elite Group's Top 12 Camcorders  Featuring GPS Mapping Capabilities</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-skys-best-friends-top-11-drone-gear-for-phantom/"><u>In 2024, Sky's Best Friends  Top 11 Drone Gear for Phantom</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-engagement-a-guide-to-more-youtube-shorts-success/"><u>Boosting Engagement  A Guide to More YouTube Shorts Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-mobile-solutions-to-sharpen-dji-drone-shoots/"><u>[New] In 2024, Ultimate Mobile Solutions to Sharpen DJi Drone Shoots</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-the-ultimate-list-10-video-editing-apps-for-kids-of-all-ages/"><u>New In 2024, The Ultimate List 10 Video Editing Apps for Kids of All Ages</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-is-aurora-hdr-a-step-forward-in-quality-viewing/"><u>[New] Is Aurora HDR a Step Forward in Quality Viewing?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-increase-viewership-fairly-insights-for-video-marketers/"><u>[Updated] Increase Viewership Fairly  Insights for Video Marketers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-software-for-photo-to-video-projects/"><u>[Updated] Premium Software for Photo-to-Video Projects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-precision-in-every-frame-top-9-tips-for-vr-filmmaking-for-2024/"><u>[New] Precision in Every Frame  Top 9 Tips for VR Filmmaking for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-vivo-y55s-5g-2023-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Vivo Y55s 5G (2023) Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ghoul-gags-generator/"><u>[Updated] 2024 Approved  Ghoul Gags Generator</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mobile-mastery-an-exhaustive-look-at-androids-lightroom/"><u>[Updated] 2024 Approved  Mobile Mastery  An Exhaustive Look at Android’s Lightroom</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-cutting-edge-from-srt-to-subtitle-system-for-2024/"><u>[Updated] Cutting Edge From SRT to Subtitle System for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ipiccy-photo-editor-features-tutorial-and-review/"><u>[New] In 2024, IPiccy Photo Editor Features, Tutorial and Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebook-cinematic-capture-tool-for-2024/"><u>[Updated] Facebook Cinematic Capture Tool for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/reimagined-realities-augmented-wisdom-for-todays-world-for-2024/"><u>Reimagined Realities  Augmented Wisdom for Today's World for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhancing-webcasts-with-dynamic-background-transitions/"><u>[New] In 2024, Enhancing Webcasts with Dynamic Background Transitions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-recommendation-best-iphone-ringtone-makers-for-2024/"><u>[New] Recommendation  Best iPhone Ringtone Makers for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-an-in-depth-review-of-dji-drone-model-3s-performance/"><u>In 2024, An In-Depth Review of DJI Drone Model 3'S Performance</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/what-is-an-ai-script-generator-in-2024/"><u>What Is an AI Script Generator, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-elevating-social-media-presence-adding-linktree-to-tiktok-bios/"><u>[Updated] Elevating Social Media Presence  Adding Linktree to TikTok Bios</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-get-clear-coffee-stain-free-images-using-ioss-free-app-for-2024/"><u>[New] Get Clear, Coffee Stain-Free Images Using iOS's Free App for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-independent-filming-freedoms-agreement/"><u>[New] In 2024, Independent Filming Freedoms Agreement</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unleashing-creative-potential-editing-tiktok-videos-on-mac/"><u>Unleashing Creative Potential  Editing TikTok Videos on Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-speedy-retrieval-for-elusive-snaps/"><u>[New] Speedy Retrieval for Elusive Snaps</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-guide-reinstalling-advanced-drivers-on-all-windows/"><u>Direct Guide: Reinstalling Advanced Drivers on All Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-audiences-eye-view-selecting-best-webcams-for-podcasts/"><u>In 2024, The Audience's Eye View  Selecting Best Webcams for Podcasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-organize-photo-album-on-iphone-and-icloud-for-2024/"><u>[New] How To Organize Photo Album On iPhone And iCloud for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-best-price-to-performance-ratio-for-asmr-equipment/"><u>[New] The Best Price-to-Performance Ratio for ASMR Equipment</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-redesigned-look-at-s3700-sony-entertainment/"><u>2024 Approved  Redesigned Look at S3700 Sony Entertainment</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premier-destinations-amplifying-youtube-videos-for-2024/"><u>[New] Premier Destinations Amplifying YouTube Videos for 2024</u></a></li>
+</ul></div>

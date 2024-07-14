@@ -1,7 +1,7 @@
 ---
 title: "\"Quick and Easy  Increase or Decrease Story Video Speed\""
-date: 2024-06-25T18:44:10.068Z
-updated: 2024-06-26T18:44:10.068Z
+date: 2024-07-13T17:40:54.005Z
+updated: 2024-07-14T17:40:54.005Z
 tags: 
   - screen-recording
   - ai video
@@ -90,6 +90,9 @@ Step3 From the options at the bottom, tap on the Speed option. If you want to sp
 
 Step4 Move the slider to the right to speed up the video. Finally, tap on the Tick icon when you are done.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![slider to the right](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-5.jpg)
 
 Step5 Tap on the Save option located at the top-right corner. Thereafter, you can upload the edited video as Instagram Story.
@@ -132,10 +135,16 @@ Step4 Select the Uniform Speed option. You will see the Uniform Speed tab above 
 
 Step5 Adjust the speed slider to change the speed of the video. To speed it up, set the slider above 1\. To slow down your video, you need to set the slider below 1.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![speed slider](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-9.jpg)
 
 Step6 Finally, click on the Ok button. Click Export. Thereafter, you can upload it on Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 2: Speed Ramping
 
 If you are an advanced video editor, you will love to customize the video speed through the speed graph. This helps to vary the speed of the video as per the graph your set. There can be some sped-up parts as well as slow-down parts with smooth transitions. That is what speed ramping is all about on Filmora.
@@ -160,6 +169,9 @@ Step1 Drag and drop the video file onto the timeline.
 
 Step2 Select the video clip on the timeline and click on the Speed(timer) icon that you will find on top of the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![find on top of the timeline](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-12.jpg)
 
 Step3 Go to the Fast option and select any speed preset to speed up your video. If you want to slow it down, go to the Slow option and select any speed preset.
@@ -269,3 +281,58 @@ We have answered the frequently asked question, "how to do slow motion on Instag
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/the-best-of-home-workouts-top-yoga-channels-online/"><u>The Best of Home Workouts  Top Yoga Channels Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-step-by-step-strategy-for-dominating-the-digital-marketing-arena/"><u>[New] A Step-by-Step Strategy for Dominating the Digital Marketing Arena</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-online-methods-to-perfect-vhs-picture-editing-for-2024/"><u>Mastering Online Methods to Perfect VHS Picture Editing for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-craft-your-photos-in-minutes-learning-lunapic/"><u>[Updated] Craft Your Photos in Minutes  Learning LunaPic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-preventing-vr-sickness/"><u>[Updated] Mastering the Art of Preventing VR Sickness</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovating-image-vision-mastering-hdr-in-photoshop/"><u>2024 Approved  Innovating Image Vision  Mastering HDR in Photoshop</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-list-of-alternatives-to-the-popular-gopro/"><u>[Updated] In 2024, The Ultimate List of Alternatives to the Popular GoPro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/efeating-dissidence-a-guide-for-content-makers/"><u>[New] Defeating Dissidence  A Guide for Content Makers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-ordinary-to-extraordinary-the-ultimate-iphoneandroid-screenshot-enhancers-list/"><u>[Updated] From Ordinary to Extraordinary  The Ultimate iPhone/Android Screenshot Enhancers List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-progopro-tips-for-cinematic-results/"><u>[New] 2024 Approved  ProGoPro Tips for Cinematic Results</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-outstanding-evaluation-and-alternative-paths/"><u>[New] In 2024, Outstanding Evaluation & Alternative Paths</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-capture-lifes-movement-integrating-motion-blur-into-face-photography-with-picsart/"><u>[New] In 2024, Capture Life's Movement  Integrating Motion Blur Into Face Photography with Picsart</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-motion-review-full-scope-2023/"><u>2024 Approved  Motion Review  Full Scope 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/master-iphone-podcast-downloads-a-comprehensible-approach-for-2024/"><u>Master iPhone Podcast Downloads  A Comprehensible Approach for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-exclusive-list-top-10-live-streaming-networks-ranked/"><u>[New] 2024 Approved  Exclusive List  Top 10 Live Streaming Networks Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capturing-photos-from-moving-frames-on-windows-11-for-2024/"><u>[New] Capturing Photos From Moving Frames on Windows 11 for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-advanced-3d-media-player-for-android-users/"><u>In 2024, Advanced 3D Media Player for Android Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/crafting-visual-narratives-with-premium-text-tools-in-ae-for-2024/"><u>Crafting Visual Narratives with Premium Text Tools in AE for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-scaling-up-integrating-tiktok-into-your-brands-strategy/"><u>[Updated] 2024 Approved  Scaling Up  Integrating TikTok Into Your Brand's Strategy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/accelerated-windows-review-strategies/"><u>Accelerated Windows Review Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-techniques-to-soften-sound-in-fl-studio/"><u>[New] 2024 Approved  Essential Techniques to Soften Sound in FL Studio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-kinetic-insight-study-for-2024/"><u>Comprehensive Kinetic Insight Study for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-up-your-home-cinema-game-with-these-essential-tips/"><u>[Updated] Step Up Your Home Cinema Game with These Essential Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-viewer-insights-understanding-subscriber-feedback/"><u>2024 Approved  Unveiling Viewer Insights  Understanding Subscriber Feedback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/compelling-beginnings-scriptwriting-tips-for-intros/"><u>Compelling Beginnings  Scriptwriting Tips for Intros</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimizing-playback-speed-with-professional-tactics-for-2024/"><u>[Updated] Optimizing Playback Speed with Professional Tactics for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-oppo-a78-5g-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Oppo A78 5G</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/enduring-seamlessness-direct-profile-url-insertion-guide-for-2024/"><u>Enduring Seamlessness  Direct Profile URL Insertion Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mobile-youtube-watching-iphone-and-android-edition/"><u>[Updated] In 2024, Mobile YouTube Watching  IPhone & Android Edition</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-best-gif-to-avi-converters-online-plus-software-solutions-for-2024/"><u>New Best GIF to AVI Converters (Online + Software Solutions) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-infuse-your-reels-with-dynamic-music-choices-for-2024/"><u>[New] How to Infuse Your Reels with Dynamic Music Choices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-full-breakdown-dji-inspire-2-analysis/"><u>2024 Approved  Full Breakdown  DJI Inspire 2 Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-artful-stop-motion-animation-the-best-15-films-for-2024/"><u>[New] Artful Stop-Motion Animation - The Best 15 Films for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-structuring-stories-that-resonate-in-docu-cinema/"><u>[Updated] In 2024, Structuring Stories That Resonate in Docu-Cinema</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-exploring-new-horizons-with-iphone-xs-camera-tech/"><u>In 2024, Exploring New Horizons with iPhone X's Camera Tech</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-apple-iphone-se-2022-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing Apple iPhone SE (2022) Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-guide-to-selecting-a-superior-camcorder-for-2024/"><u>[New] Ultimate Guide to Selecting a Superior Camcorder for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elite-photo-safe-houses-online-for-2024/"><u>[New] Elite Photo Safe Houses Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-the-art-of-invisible-viewership-on-instagram-live-for-2024/"><u>[New] Mastering the Art of Invisible Viewership on Instagram Live for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ideal-accessories-for-optimal-gopro-photography/"><u>2024 Approved  Ideal Accessories for Optimal GoPro Photography</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-elevating-your-speech-to-text-experience-using-googles-tools/"><u>[New] Elevating Your Speech to Text Experience Using Google's Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/groove-gatherers-try-our-cost-free-beats-scanners/"><u>Groove Gatherers  Try Our Cost-Free Beats Scanners</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-s23-fe-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy S23 FE? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-srt-pinnacle-selecting-the-premier-turbo-charger-systems-for-os-xwin/"><u>[New] In 2024, SRT Pinnacle  Selecting the Premier Turbo Charger Systems for OS X/Win</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prove-your-prowess-with-swift-video-edits-on-windows-11-photos/"><u>In 2024, Prove Your Prowess with Swift Video Edits on Windows 11 Photos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/ultimate-race-realism-5-favorites/"><u>Ultimate Race Realism  5 Favorites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-great-race-camera-battle-gopro-hero-4-vs-ghost-s/"><u>2024 Approved  The Great Race Camera Battle  GoPro Hero 4 VS Ghost-S</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pushing-limits-with-vr-which-console-and-controller-fits-best-in-2024/"><u>[Updated] Pushing Limits with VR  Which Console and Controller Fits Best, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-superior-streaming-services-for-musicians/"><u>2024 Approved  Superior Streaming Services for Musicians</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximizing-visuals-a-step-by-step-guide-for-buying-a-4k-monitor/"><u>[New] Maximizing Visuals  A Step-by-Step Guide for Buying a 4K Monitor</u></a></li>
+</ul></div>

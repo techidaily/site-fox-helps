@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Use LUTs to OBS Studio & Download Free LUTs\""
-date: 2024-06-25T19:46:26.443Z
-updated: 2024-06-26T19:46:26.443Z
+date: 2024-07-13T18:53:58.179Z
+updated: 2024-07-14T18:53:58.179Z
 tags: 
   - screen-recording
   - ai video
@@ -122,6 +122,9 @@ Video Mark
 
 For your next video production, you can get 35 FREE LUTs. Add one of these retro or cinematic effects to your footage or adjust them to suit your needs. The 35 Free LUTs from RocketStock are 3D.CUBE files may be used in a variety of NLEs and color grading tools.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![free obs luts - Rocket stock](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-6.png)
 
 Rocket stock
@@ -130,6 +133,18 @@ Rocket stock
 
 Then there's Christian Mate Grab's LUT. It's only a single LUT filter with an orange and teal grade to give it a more cinematic appearance. This one likewise requires you to join their email list. You may color grade your films in real-time using straight in OBS.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![free obs luts - Christian Mate Grab](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-7.png)
 
 Christian Mate Grab
@@ -158,6 +173,9 @@ To create your LUT, follow the instructions below.
 2. Then, either drag your LUT or unzip your LUT bundle into this folder. These LUTs will now be available for usage in OBS Studio.
 3. Then run OBS Studio. Select filters by right-clicking on your webcam source.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![obs Lut](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-1.png)
 
 How to use LUTs in Lumafuison
@@ -212,6 +230,18 @@ Rocket stock
 
 Then there's Christian Mate Grab's LUT. It's only a single LUT filter with an orange and teal grade to give it a more cinematic appearance. This one likewise requires you to join their email list. You may color grade your films in real-time using straight in OBS.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![free obs luts - Christian Mate Grab](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-7.png)
 
 Christian Mate Grab
@@ -245,3 +275,56 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/in-2024-graphic-wizardry-from-novice-to-industry-success-story/"><u>In 2024, Graphic Wizardry  From Novice to Industry Success Story</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/elite-guide-selecting-high-quality-ringtone-downloads-for-2024/"><u>Elite Guide  Selecting High-Quality Ringtone Downloads for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-how-to-create-a-memorable-podcast-name-from-brainstorming-to-execution/"><u>[Updated] 2024 Approved  How To Create a Memorable Podcast Name  From Brainstorming to Execution</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-game-on-in-reality-the-ultimate-vr-headset-comparison/"><u>In 2024, Game On in Reality  The Ultimate VR Headset Comparison</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-boundless-gallery-of-forgotten-artists/"><u>[New] 2024 Approved  The Boundless Gallery of Forgotten Artists</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-expert-strategies-for-developing-captivating-audio-visual-teasers/"><u>[New] 2024 Approved  Expert Strategies for Developing Captivating Audio-Visual Teasers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-curated-list-of-premium-iphone-x7-camera-improvers/"><u>In 2024, Curated List of Premium iPhone X/7 Camera Improvers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/digital-decision-making-choosing-the-best-cropping-tool/"><u>Digital Decision Making  Choosing the Best Cropping Tool</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-streamlining-photo-editing-processes-a-guide/"><u>[Updated] In 2024, Streamlining Photo Editing Processes  A Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-xiaomi-13t-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Xiaomi 13T Phone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-expert-insights-the-best-approaches-to-live-cricket-broadcasting/"><u>2024 Approved  Expert Insights  The Best Approaches to Live Cricket Broadcasting</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/monetizing-vlogs-a-step-by-step-blueprint-for-2024/"><u>Monetizing Vlogs  A Step-by-Step Blueprint for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-15-masterpieces-in-stop-motion-cinema-history-for-2024/"><u>Top 15 Masterpieces in Stop-Motion Cinema History for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-capturing-stability-mastering-shaky-images/"><u>[New] Capturing Stability  Mastering Shaky Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/your-signature-starts-here-free-modifiable-logos-to-define-brands-for-2024/"><u>Your Signature Starts Here  Free, Modifiable Logos to Define Brands for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-high-altitude-escapades-the-husqvarna-h501s-review-explored/"><u>[New] 2024 Approved  High Altitude Escapades - The Husqvarna H501S Review Explored</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-prime-5-racer-simulation-titles-to-play/"><u>[New] In 2024, Prime 5 Racer Simulation Titles to Play</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-understanding-the-upside-to-asmrs-sensory-experience/"><u>[New] 2024 Approved  Understanding the Upside to ASMR's Sensory Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-live-your-dreams-insights-into-the-panasonic-hx-a1-cam/"><u>[Updated] 2024 Approved  Live Your Dreams  Insights Into the Panasonic HX-A1 Cam</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tale-weavers-hub-hall-of-fame-picks/"><u>[Updated] Tale Weavers Hub - Hall of Fame Picks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-to-adding-motion-blur-effect-in-photoshop-for-2024/"><u>The Ultimate Guide to Adding Motion Blur Effect in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-maximizing-fun-finding-hot-images-at-pexelscom/"><u>2024 Approved  Maximizing Fun  Finding Hot Images at Pexels.com</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-premier-8-video-transformers-for-your-mac-and-phone/"><u>In 2024, The Premier 8 Video Transformers for Your Mac & Phone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-distort-image-distance-worry-photo-editing-trick-for-2024/"><u>[Updated] Distort Image, Distance Worry  Photo Editing Trick for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastery-in-multichannel-instagram-to-tiktok-connector-for-2024/"><u>Mastery in Multichannel  Instagram to TikTok Connector for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unleashing-androids-audio-potential-mastering-the-art-of-ringtones-and-sounds/"><u>In 2024, Unleashing Android's Audio Potential  Mastering the Art of Ringtones & Sounds</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-elevate-your-discord-community-with-these-30-bots/"><u>[Updated] 2024 Approved  Elevate Your Discord Community with These 30 Bots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-10-luxury-car-accessories-for-the-modern-sj4000-driver-for-2024/"><u>[New] Top 10 Luxury Car Accessories for the Modern SJ4000 Driver for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-maximizing-display-youtube-video-upgrades/"><u>[Updated] 2024 Approved  Maximizing Display  YouTube Video Upgrades</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-navigating-through-film-workflow-choosing-between-hdr-and-sdr/"><u>[Updated] 2024 Approved  Navigating Through Film Workflow  Choosing Between HDR & SDR</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-detailed-overview-of-xvision-labs-comprehensive-study/"><u>[Updated] 2024 Approved  Detailed Overview of XVision Lab's Comprehensive Study</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quadcopters-unveiled-their-intricate-workings-revealed/"><u>Quadcopters Unveiled  Their Intricate Workings Revealed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-premier-ios-tools-replicating-ps2-games/"><u>[New] Premier iOS Tools Replicating PS2 Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-how-to-fade-out-in-audacity/"><u>[Updated] In 2024, How to Fade Out in Audacity</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-capturing-slow-motions-in-tiktok-videos-tips-and-tricks-for-2024/"><u>[New] Capturing Slow Motions in TikTok Videos - Tips & Tricks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-igtv-creation-and-monetization-the-ultimate-cheat-sheet/"><u>[New] In 2024, Mastering IGTV Creation & Monetization  The Ultimate Cheat Sheet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-decoding-adobes-cloud-storage-features-and-benefits-with-contrasting-solutions/"><u>2024 Approved  Decoding Adobe’s Cloud Storage  Features & Benefits with Contrasting Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-science-of-motion-without-contact-for-2024/"><u>[Updated] Unraveling the Science of Motion Without Contact for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-future-of-tiktok-master-video-trends-and-techniques/"><u>The Future of TikTok - Master Video Trends and Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-xiaomi-14-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Xiaomi 14 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pushing-boundaries-upward-an-incisive-mavic-pro-review-for-2024/"><u>[New] Pushing Boundaries Upward  An Incisive Mavic Pro Review for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-tvs-to-accompany-your-highest-rated-consoles/"><u>[Updated] Best TVs to Accompany Your Highest Rated Consoles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-overcoming-common-gs-pitfalls-in-kinemaster/"><u>[Updated] 2024 Approved  Overcoming Common GS Pitfalls in KineMaster</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-cutting-it-down-a-step-by-step-guide-to-trimming-videos-on-kapwing-for-2024/"><u>Updated Cutting It Down A Step-by-Step Guide to Trimming Videos on Kapwing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-yuneec-typhoon-h-dive-professional-takeaways/"><u>[Updated] The Yuneec Typhoon H Dive  Professional Takeaways</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unleashing-visual-impact-techniques-for-ai-text-depth/"><u>[Updated] 2024 Approved  Unleashing Visual Impact  Techniques for AI Text Depth</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-why-is-my-photobooth-video-stopping/"><u>In 2024, Why Is My Photobooth Video Stopping?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-aurora-vs-standard-hd-is-the-premium-worth-it/"><u>[Updated] In 2024, Aurora vs Standard HD  Is the Premium Worth It?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/stop-screen-blackouts-with-obs-game-recordings-for-2024/"><u>Stop Screen Blackouts with OBS Game Recordings for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"Mastermind WhatsApp  Advanced Techniques and Undisclosed Features for 2024\""
-date: 2024-06-25T18:51:48.374Z
-updated: 2024-06-26T18:51:48.374Z
+date: 2024-07-13T17:49:49.381Z
+updated: 2024-07-14T17:49:49.381Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/9a1d2889cbe4ad14880fa77a388cff944d010380f
 
 ## Mastermind WhatsApp: Advanced Techniques and Undisclosed Features
 
-# Cool Whatsapp Tricks and Hidden Features You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Cool Whatsapp Tricks and Hidden Features You Should Know
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -50,6 +51,18 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
 
 #### 4.Monospace
@@ -88,6 +101,9 @@ Though we have already mentioned the shortcuts for bold, italics, and other text
 
 There are plenty of things you can do with one word. It can be bold, italic, monospace, and strikethrough all at the same time. Apply the native settings or shortcuts one after another and voila!
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apply All Whatsapp Font Tricks](https://images.wondershare.com/filmora/article-images/apply-all-whatsapp-font-tricks.png)
 
 #### 10.Share Sections of Messages While Typing
@@ -136,12 +152,18 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
@@ -204,3 +226,47 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-vibrant-visibility-30plus-biographical-concepts-for-increased-viewers-on-the-filmora-tiktok-platform/"><u>[Updated] In 2024, Vibrant Visibility  30+ Biographical Concepts for Increased Viewers on the Filmora TikTok Platform</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-business-model-101-how-to-turn-snaps-into-dollars/"><u>[Updated] Snapchat Business Model 101  How to Turn Snaps Into Dollars</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-uncover-top-8-sites-offering-free-3d-text-psd-images-and-files/"><u>In 2024, Uncover Top 8 Sites Offering FREE 3D Text PSD Images and Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-art-of-creating-smooth-audio-cuts-for-2024/"><u>[Updated] The Art of Creating Smooth Audio Cuts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-art-of-saturation-and-contrast-in-gopro-editing/"><u>In 2024, The Art of Saturation and Contrast in GoPro Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-drone-accessory-guide-10-must-haves-revealed/"><u>[New] 2024 Approved  The Ultimate Drone Accessory Guide - 10 Must-Haves Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-minds-on-trial-best-general-knowledge-channels-for-2024/"><u>[Updated] Minds on Trial  Best General Knowledge Channels for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-navigating-the-world-of-instagram-and-podcast-sharing/"><u>[New] 2024 Approved  Navigating the World of Instagram & Podcast Sharing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-raw-footage-to-instagram-gold-top-10-editor-shortlists-for-2024/"><u>[New] From Raw Footage to Instagram Gold - Top 10 Editor Shortlists for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-vegaspro-the-19-edition/"><u>[Updated] In 2024, Unveiling VegasPro  The '19 Edition</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-samsung-galaxy-a34-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Samsung Galaxy A34 5G to Another | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-from-apple-iphone-se-2022-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password From Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-macs-leading-5-mkv-playbackers-for-2024/"><u>[Updated] Mac's Leading 5 MKV Playbackers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-hunters-top-5-video-tools-of-today/"><u>[Updated] Hunters' Top 5 Video Tools of Today</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-clarifying-video-margins-imovie-crop-explanation/"><u>In 2024, Clarifying Video Margins  IMovie Crop Explanation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-marketing-magic-20-keywords-for-profound-impact/"><u>In 2024, Mastering Marketing Magic  20 Keywords for Profound Impact</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-master-your-creative-process-essential-affects-plugin-guide-for-2024/"><u>[Updated] Master Your Creative Process  Essential Affects Plugin Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-decoding-the-nuances-of-whatsapp-audio-messages/"><u>[Updated] Decoding the Nuances of WhatsApp Audio Messages</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-classification-guide-to-diverse-video-cameras/"><u>[Updated] In 2024, Classification Guide to Diverse Video Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-mobile-camera-best-android-practices/"><u>In 2024, Mastering Mobile Camera  Best Android Practices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-art-of-blending-work-and-virtual-realitiescape/"><u>[Updated] In 2024, The Art of Blending Work and Virtual Realitiescape</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-serpent-soundtrack-comprehensive-guide-to-tts-resources-online/"><u>[New] 2024 Approved  Serpent Soundtrack  Comprehensive Guide to TTS Resources Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-free-live-streaming-software-and-app-for-all-platforms-2023-list/"><u>[New] 2024 Approved  Best Free Live Streaming Software and App for All Platforms [2023 List]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-metaverse-marketing-landscapes/"><u>[Updated] Navigating Metaverse Marketing Landscapes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-masterclass-5-in-best-mac-videography-software-for-2024/"><u>[Updated] Masterclass 5 in Best Mac Videography Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-galactic-gateway-top-10-sci-fi-movies-that-transcend-reality/"><u>[Updated] In 2024, Galactic Gateway  Top 10 Sci-Fi Movies that Transcend Reality</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-first-film-experience-selecting-best-gopro-gear/"><u>[New] 2024 Approved  First Film Experience  Selecting Best GoPro Gear</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-guide-to-charging-up-your-video-empire/"><u>In 2024, The Ultimate Guide to Charging Up Your Video Empire</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-color-command-center-expert-transformation-techniques-for-2024/"><u>[Updated] Color Command Center  Expert Transformation Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-virtual-reality-current-state-and-future-challenges/"><u>In 2024, Virtual Reality  Current State and Future Challenges</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/does-xiaomi-redmi-note-12-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Xiaomi Redmi Note 12 Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-elevate-video-editing-gratuitous-premiere-pro-tools/"><u>2024 Approved  Elevate Video Editing  Gratuitous Premiere Pro Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-mind-games-top-trivia-channels-for-24/"><u>[Updated] Mastering Mind Games – Top Trivia Channels for '24</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-essential-tips-keeping-your-snapchat-images-intact-post-snap/"><u>[New] In 2024, Essential Tips  Keeping Your Snapchat Images Intact Post-Snap</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-top-skype-call-techniques-for-effective-recordings-free-and-paid-on-computers/"><u>[New] Top Skype Call Techniques for Effective Recordings (Free & Paid) on Computers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-iphone-13-pro-max-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On iPhone 13 Pro Max? Heres the Best Fixes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-quadcopter-power-5-premium-engine-choices/"><u>2024 Approved  Mastering Quadcopter Power  5 Premium Engine Choices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/30-must-try-mp4-gadgets-unveiled-for-2024/"><u>30 Must-Try MP4 Gadgets Unveiled for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 To Android devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-complete-guide-to-crafting-killer-youtube-outros/"><u>[Updated] In 2024, Complete Guide to Crafting Killer YouTube Outros</u></a></li>
+</ul></div>

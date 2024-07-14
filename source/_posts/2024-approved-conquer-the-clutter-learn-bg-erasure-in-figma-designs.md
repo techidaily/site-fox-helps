@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Conquer the Clutter  Learn BG Erasure in Figma Designs\""
-date: 2024-07-03T13:09:10.925Z
-updated: 2024-07-04T13:09:10.925Z
+date: 2024-07-13T19:05:59.416Z
+updated: 2024-07-14T19:05:59.416Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,9 @@ To make things easier, we've written a comprehensive step-by-step guide on **rem
 
 So, keep reading to find out about removing an image's background in Figma!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Best Option to Remove Image's Background in Figma
 
 As aforementioned, **Figma** does not offer a **Background Remover** tool but comes with a Plugins menu to help you find the required tool.
@@ -68,6 +71,9 @@ To get the APPkey, visit **"Wondershare PixCut,"** log in to your account using 
 
 Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, click the **"Main Menu"** icon and navigate to **"Plugins" > "PixCut Background Remover" > "Run."**
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
@@ -115,6 +121,9 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explored the step-by-step process of how to remove background in Figma using the PixCut plugin. We've also explained the reasons why you should use this tool.
@@ -133,6 +142,9 @@ Step2 **Right-click** on the image in the editor and click **"Plugins."**
 
 Step3 Select **"Find More Plugins"** and use the search option in the pop-up window to find the plugin you need.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 ### (3) Using Online Removers
@@ -176,3 +188,51 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-iphones-leading-selfie-aids-8-edition/"><u>[New] Iphone's Leading Selfie Aids - #8 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-photos-ios-alignment-and-cloud-syncing/"><u>2024 Approved  Mastering Photos  IOS Alignment and Cloud Syncing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-sharing-success-replicating-content-on-insta/"><u>[Updated] Sharing Success  Replicating Content on Insta</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-stellar-skincare-secrets-top-youtubes-expertise/"><u>2024 Approved  Stellar Skincare Secrets  Top Youtube's Expertise</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-infuse-laughter-into-content-use-kapwing/"><u>2024 Approved  Infuse Laughter Into Content - Use Kapwing</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-from-youtube-to-mp3-how-to-choose-a-safe-and-efficient-converter-for-2024/"><u>Updated From YouTube to MP3 How to Choose a Safe and Efficient Converter for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-combat-common-youtube-short-obstacles/"><u>[New] In 2024, Combat Common YouTube Short Obstacles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafty-laughter-your-adobe-guide/"><u>2024 Approved  Crafty Laughter  Your Adobe Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhancing-visuals-on-tiktok-the-digit-editing-guide/"><u>2024 Approved  Enhancing Visuals on TikTok  The Digit Editing Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovation-unleashed-experience-our-6-best-signature-removers/"><u>2024 Approved  Innovation Unleashed – Experience Our 6 Best Signature Removers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-masterful-asmr-methods-by-leading-talents/"><u>2024 Approved  Masterful ASMR Methods by Leading Talents</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-how-to-slow-down-gif-building-an-understanding/"><u>New How To Slow Down GIF Building an Understanding</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-3gp-file-cutter-extract-specific-parts-of-your-video/"><u>Updated In 2024, 3GP File Cutter Extract Specific Parts of Your Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-no-pay-all-gain-the-fcp-freedom-guide/"><u>2024 Approved  No Pay, All Gain  The FCP Freedom Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-becoming-a-savvy-vr-tour-connoisseur/"><u>2024 Approved  Becoming a Savvy VR Tour Connoisseur</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-xiaomi-14-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-video-frame-ratio-classifications/"><u>In 2024, FB Video Frame Ratio Classifications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-through-the-world-of-ar-stickers-highlighting-google/"><u>2024 Approved  Navigating Through the World of AR Stickers, Highlighting Google</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-how-to-revive-a-stuck-obs-fullscreen-for-2024/"><u>[Updated] How to Revive a Stuck OBS Fullscreen for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-kitchens-to-cameras-7-essentials-for-flavorful-filmmaking/"><u>2024 Approved  From Kitchens to Cameras  7 Essentials for Flavorful Filmmaking</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-comprehensive-study-editmagics-power-edition/"><u>2024 Approved  Comprehensive Study  EditMagic's Power Edition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-metaverse-compelling-vr-headsets-recommended/"><u>[Updated] Navigating Metaverse  Compelling VR Headsets Recommended</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-game-masters-guide-to-4k-monitors/"><u>2024 Approved  Game Masters' Guide to 4K Monitors</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-rewind-to-the-past-top-apps-for-adding-retro-vhs-effects-to-your-videos/"><u>In 2024, Rewind to the Past Top Apps for Adding Retro VHS Effects to Your Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>2024 Approved  Hero5 Black in Action  Essential Shooting Advice for Amazing Results</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-mac-cam-high-quality-captures-in-minutes-for-2024/"><u>[New] Mastering Mac Cam  High-Quality Captures in Minutes for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-comprehensive-playlists-of-relaxing-melodies-for-serene-atmospheres/"><u>Updated Comprehensive Playlists of Relaxing Melodies for Serene Atmospheres</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-jest-jacket-picture-fabricator/"><u>2024 Approved  Jest Jacket  Picture Fabricator</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-audio-amplification-for-online-photo-archiving/"><u>2024 Approved  Audio Amplification for Online Photo Archiving</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-innovative-ideas-to-boost-package-prelude-joy/"><u>[Updated] Innovative Ideas to Boost Package Prelude Joy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-zoomed-in-shots-avoiding-common-pitfalls-with-videoleap/"><u>2024 Approved  Navigating Zoomed-In Shots  Avoiding Common Pitfalls with VideoLeap</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-next-level-entertainment-exclusive-windows-10-gaming-and-apps/"><u>2024 Approved  Next-Level Entertainment  Exclusive Windows 10 Gaming & Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-correcting-gopros-fish-eye-distortion-techniques/"><u>2024 Approved  Correcting GoPro's Fish Eye Distortion Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-previewed-fb-activity-is-it-safe-or-not/"><u>2024 Approved  Navigating Previewed FB Activity  Is It Safe or Not?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-bring-your-video-to-life-from-standard-to-hdri-excellence/"><u>2024 Approved  Bring Your Video to Life  From Standard to HDRI Excellence</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-business-communication-essentials-free-slide-show-tools/"><u>2024 Approved  Business Communication Essentials – Free Slide Show Tools</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-link-audio-clips-to-powerpoint-slides/"><u>2024 Approved  Link Audio Clips to PowerPoint Slides</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-maps-drawn-understanding-through-6-vivid-scenarios/"><u>2024 Approved  Metaverse Maps Drawn  Understanding Through 6 Vivid Scenarios</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-free-fires-voice-alteration-strategies/"><u>2024 Approved  Free Fire's Voice Alteration Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gopro-deep-dive-side-by-side-specification-comparison/"><u>2024 Approved  GoPro Deep Dive  Side-by-Side Specification Comparison</u></a></li>
+</ul></div>

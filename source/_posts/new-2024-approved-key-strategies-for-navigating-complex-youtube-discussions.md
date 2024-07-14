@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Key Strategies for Navigating Complex YouTube Discussions\""
-date: 2024-06-25T19:50:28.474Z
-updated: 2024-06-26T19:50:28.474Z
+date: 2024-07-13T18:58:44.614Z
+updated: 2024-07-14T18:58:44.614Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,9 @@ All social media has a comment section where in those who watch or follow you ar
 
 If you are a content creator who makes product reviews, the comment section is also one that will help the brand. Most brands want to have a voice on matters that affect them. The most powerful way to do that on YouTube is to make amazing videos on topics dear to your heart. But you don't want people to think of you as merely a broadcaster. Social media requires that you be social and make intelligent comments on your videos and those of others, showing that you are trying, and engaging with your audience.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to view comments on youtube](https://images.wondershare.com/filmora/article-images/2022/11/how-to-view-comments-on-youtube.jpg)
 
 Unfortunately, when it comes to comment, YouTube can be a little clunky and time consuming especially as your channel grows and you have more comments to respond to.
@@ -54,6 +57,9 @@ Each comment you leave is another reference and exposure to your brand (and a ch
 
 Step1 Below the video itself, find the comment section.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
@@ -82,6 +88,9 @@ Step3 From the drop down menu, select “History”.
 
 Step4 On the right side under the “Manage all history” section, click on “comments”.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
@@ -112,6 +121,9 @@ Retrieve a comment so that you can share it with others outside of YouTube.
 
 Comments history also contains the link to the video where you've left the comment along with the date and time when the comment was made. Clicking on this link will open the video page with your comment highlighted at the top of the comment section.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 ## Conclusion
@@ -149,3 +161,53 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-correcting-gopros-fish-eye-distortion-techniques/"><u>2024 Approved  Correcting GoPro's Fish Eye Distortion Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-leading-live-game-networks-unveiled/"><u>2024 Approved  Leading Live Game Networks Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-excellent-websites-for-3d-metallic-type-imagery-for-2024/"><u>[New] Excellent Websites for 3D Metallic Type Imagery for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-conquer-the-clutter-learn-bg-erasure-in-figma-designs/"><u>2024 Approved  Conquer the Clutter  Learn BG Erasure in Figma Designs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-value-for-money-top-6-budget-4k-projector-models/"><u>2024 Approved  Best Value for Money  Top 6 Budget 4K Projector Models</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cutting-edge-microphones-synergy-with-4k-cameras/"><u>Cutting-Edge Microphones Synergy with 4K Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-beginners-tips-shooting-hero5-time-lapse-footage/"><u>2024 Approved  Beginner's Tips  Shooting Hero5 Time-Lapse Footage</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-flawless-filming-ipad-timelapse-techniques/"><u>[Updated] Flawless Filming  IPad Timelapse Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-effortless-playback-of-srt-files-across-computers/"><u>2024 Approved  Effortless Playback of SRT Files Across Computers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elite-fast-windows-10-picture-viewer/"><u>2024 Approved  Elite Fast Windows 10 Picture Viewer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-canva-tutorial-for-flawless-image-border-clearance/"><u>2024 Approved  Canva Tutorial for Flawless Image Border Clearance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-s23-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-zoomed-in-shots-avoiding-common-pitfalls-with-videoleap/"><u>2024 Approved  Navigating Zoomed-In Shots  Avoiding Common Pitfalls with VideoLeap</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pioneering-perspectives-on-first-moments-in-audio/"><u>2024 Approved  Pioneering Perspectives on First Moments in Audio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-through-the-world-of-ar-stickers-highlighting-google/"><u>2024 Approved  Navigating Through the World of AR Stickers, Highlighting Google</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-free-fires-voice-alteration-strategies/"><u>2024 Approved  Free Fire's Voice Alteration Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-kitchens-to-cameras-7-essentials-for-flavorful-filmmaking/"><u>2024 Approved  From Kitchens to Cameras  7 Essentials for Flavorful Filmmaking</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/mac-enthusiasts-take-on-screenflow-software-review-for-2024/"><u>Mac Enthusiast's Take on ScreenFlow Software Review for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discovering-the-best-free-videodownloaders-for-pinterest/"><u>2024 Approved  Discovering the Best Free Videodownloaders for Pinterest</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-interactive-learning-activities/"><u>2024 Approved  Interactive Learning Activities</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-vivo-y77t-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Vivo Y77t Android SIM Unlock APK</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-becoming-a-savvy-vr-tour-connoisseur/"><u>2024 Approved  Becoming a Savvy VR Tour Connoisseur</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gopro-deep-dive-side-by-side-specification-comparison/"><u>2024 Approved  GoPro Deep Dive  Side-by-Side Specification Comparison</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-jest-jacket-picture-fabricator/"><u>2024 Approved  Jest Jacket  Picture Fabricator</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-maps-drawn-understanding-through-6-vivid-scenarios/"><u>2024 Approved  Metaverse Maps Drawn  Understanding Through 6 Vivid Scenarios</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-previewed-fb-activity-is-it-safe-or-not/"><u>2024 Approved  Navigating Previewed FB Activity  Is It Safe or Not?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-easy-sound-alteration-for-everyday-vocalization-with-free-software/"><u>2024 Approved  Easy Sound Alteration for Everyday Vocalization with Free Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhancing-user-engagement-how-to-use-youtube-tags-effectively/"><u>2024 Approved  Enhancing User Engagement  How to Use YouTube Tags Effectively</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-balancing-frameworks-for-engaging-visual-media/"><u>2024 Approved  Balancing Frameworks for Engaging Visual Media</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-undead-uprising-top-8-unleashed-in-video-game-realm/"><u>[Updated] Undead Uprising - Top 8 Unleashed in Video Game Realm</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhancing-visuals-on-tiktok-the-digit-editing-guide/"><u>2024 Approved  Enhancing Visuals on TikTok  The Digit Editing Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-enhancing-content-visibility-slug-line-tactics/"><u>2024 Approved  Enhancing Content Visibility  Slug Line Tactics</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-14-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 14</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-bring-your-video-to-life-from-standard-to-hdri-excellence/"><u>2024 Approved  Bring Your Video to Life  From Standard to HDRI Excellence</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-filmmakers-guide-to-using-standardized-color-luts/"><u>[Updated] The Filmmaker's Guide to Using Standardized Color Luts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-through-video-editing-delight-filmoras-core-traits/"><u>2024 Approved  Navigating Through Video Editing Delight  Filmora's Core Traits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expertise-in-iphones-high-dynamic-range-photography/"><u>2024 Approved  Expertise in iPhone's High-Dynamic Range Photography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discovering-the-full-potential-of-toolwiz-app-2023-edition/"><u>2024 Approved  Discovering the Full Potential of Toolwiz App, 2023 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafty-laughter-your-adobe-guide/"><u>2024 Approved  Crafty Laughter  Your Adobe Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-ideal-7-cameras-to-improve-your-youtube-vlogging-experience/"><u>2024 Approved  Ideal 7 Cameras To Improve Your YouTube Vlogging Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-infuse-laughter-into-content-use-kapwing/"><u>2024 Approved  Infuse Laughter Into Content - Use Kapwing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-add-a-personal-touch-using-branded-graphic-elements-in-your-instagram-content/"><u>2024 Approved  Add a Personal Touch  Using Branded Graphic Elements in Your Instagram Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-no-pay-all-gain-the-fcp-freedom-guide/"><u>2024 Approved  No Pay, All Gain  The FCP Freedom Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-leverage-both-platforms-youtube-and-facebook-integration/"><u>[Updated] 2024 Approved  Leverage Both Platforms  YouTube and Facebook Integration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-efficiently-transforming-ttml-and-xml-into-high-quality-srts/"><u>2024 Approved  Efficiently Transforming TTML and XML Into High-Quality SRTs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-incredible-method-unlock-mac-using-apple-watch/"><u>2024 Approved  Incredible Method  Unlock Mac Using Apple Watch</u></a></li>
+</ul></div>

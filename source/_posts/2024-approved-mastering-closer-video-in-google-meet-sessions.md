@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Closer Video in Google Meet Sessions\""
-date: 2024-06-25T19:13:45.024Z
-updated: 2024-06-26T19:13:45.024Z
+date: 2024-07-13T18:15:27.293Z
+updated: 2024-07-14T18:15:27.293Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,16 @@ The simplest way to do it in Google Meet is by clicking or tapping to zoom in. W
 
 Step1 Set up a video conferencing setup and start a conference in your web browser with your administrator. The configurations you wish to modify such as Camera: for this option, choose the camera device of your choice as shown here:
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![setup google meet](https://images.wondershare.com/filmora/article-images/2022/07/setup-google-meet.jpg)
 
 Step2 Hover over the shared screen and click the Pin symbol to save it. Go to the "Webcam Settings" window, pick the "Camera Control" option at the top, then select the webcam from the drop-down list.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![google meeting settings panel](https://images.wondershare.com/filmora/article-images/2022/07/google-meeting-settings-panel.jpg)
 
 Step3 The "Layout" option is next to the slider; click it. Adjust it in the direction the zoom-in zooms in using the slider. The "Ok" button may assist you in making all of your decisions. Select the Minimize icon while your cursor is on your own picture.
@@ -50,8 +56,14 @@ Step4 Change your Layout to "Focus" in the Meet Menu (three dots). By repeatedly
 
 Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full screen mode may be ended.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![full screen mode google meet](https://images.wondershare.com/filmora/article-images/2022/07/full-screen-mode-google-meet.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Tips and tricks to use Google Meet
 
 Those who have a Google Account are able to start a meeting. It's simple to make one if you don't already have one. Especially if you have a Gmail account, you undoubtedly already have one. The sooner you learn how to use them, the sooner you'll be an expert on Meet calls. Google has numerous handy keyboard shortcuts built in, including a keyboard shortcut to display you all of the keyboard shortcuts. Start using these methods without ever taking your eyes off your camera if you truly want to wow your colleagues on your next Google Meet conversation.
@@ -98,3 +110,56 @@ You may show additional information on your Google Meet by zooming in and out. O
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-brilliance-bunch-leading-gk-video-channels/"><u>2024 Approved  Brilliance Bunch  Leading GK Video Channels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-elegant-mosaic-imagery-fusions/"><u>2024 Approved  Mastering Elegant Mosaic Imagery Fusions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-budget-friendly-backdrops-a-journey-through-tiktoks-visual-wonderland/"><u>2024 Approved  Budget-Friendly Backdrops  A Journey Through TikTok's Visual Wonderland</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-capturing-movement-with-clarity-implementing-motion-blur-on-peoples-photos-with-picsart/"><u>2024 Approved  Capturing Movement with Clarity  Implementing Motion Blur on People's Photos with Picsart</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-inside-the-immersive-evolution-vrs-present-state-and-foreseen-obstacles/"><u>2024 Approved  Inside the Immersive Evolution  VR's Present State and Foreseen Obstacles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/years-biggest-beauty-influencers-on-youtube/"><u>Year's Biggest Beauty Influencers on YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-experts-insight-best-car-tracking-gadgets/"><u>2024 Approved  Expert's Insight  Best Car Tracking Gadgets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-auditory-storytelling-at-a-high-level/"><u>2024 Approved  Auditory Storytelling at a High Level</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/uncovering-ustream-plus-other-live-streamers/"><u>Uncovering Ustream + Other Live Streamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cutting-edge-creativity-high-quality-ae-samples-without-fee/"><u>2024 Approved  Cutting-Edge Creativity  High-Quality AE Samples Without Fee</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/discover-the-best-vllo-alternatives-for-mac-users-for-2024/"><u>Discover the Best VLLO Alternatives for Mac Users for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-economical-dslrs-for-the-cost-conscious/"><u>2024 Approved  Economical DSLRs for the Cost-Conscious</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-luminarx-the-freepaid-lightroom-rival-list/"><u>2024 Approved  LuminarX  The Free/Paid Lightroom Rival List</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-tips-for-smooth-cross-sounding-with-audacity/"><u>2024 Approved  Expert Tips for Smooth Cross-Sounding with Audacity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-the-landscape-smm-best-practices/"><u>2024 Approved  Navigating the Landscape  SMM Best Practices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-adventures-with-the-foremost-6-gopro-mounts-revealed/"><u>2024 Approved  Mastering Adventures with the Foremost 6 GoPro Mounts Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-go-incognito-with-instagram-live-streaming-tips/"><u>2024 Approved  Go Incognito with Instagram Live Streaming Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-first-film-experience-selecting-best-gopro-extras/"><u>2024 Approved  First Film Experience  Selecting Best GoPro Extras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-how-to-identify-premium-hassle-free-free-srt-translator-services/"><u>2024 Approved  How to Identify Premium, Hassle-Free Free SRT Translator Services</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-integrated-marketing-campaigns-for-brand-and-video-platforms/"><u>2024 Approved  Integrated Marketing Campaigns for Brand and Video Platforms</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-a-step-by-step-guide-to-finding-a-trustworthy-youtube-mp3-converter/"><u>2024 Approved A Step-by-Step Guide to Finding a Trustworthy YouTube MP3 Converter</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-mix-text-and-video-on-a-shoestring-budget-for-2024/"><u>How to Mix Text & Video on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revamped-design-tools-after-acid-pro-era/"><u>In 2024, Revamped Design Tools  After ACID Pro Era</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reviving-a-canon-device-that-wont-react/"><u>Reviving a Canon Device That Won't React</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-face-fluidity-techniques-implementing-motion-blur-effects/"><u>2024 Approved  Face Fluidity Techniques  Implementing Motion Blur Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dynamic-strategies-for-complementary-podcast-consumption/"><u>2024 Approved  Dynamic Strategies for Complementary Podcast Consumption</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-conquer-copious-drafts-with-clever-edits-on-tiktok/"><u>2024 Approved  Conquer Copious Drafts with Clever Edits on TikTok</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-enhancing-multilingual-reach-adding-subtitles-in-vimeo/"><u>[New] 2024 Approved  Enhancing Multilingual Reach  Adding Subtitles in Vimeo</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta/"><u>2024 Approved  Mastering the Art of Soundtrack Posts  A Copyright Primer for Insta</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-erase-wisely-strategies-using-photoshops-eraser/"><u>2024 Approved  Erase Wisely  Strategies Using Photoshop's Eraser</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-hue-harmony-translating-theory-into-artistry/"><u>2024 Approved  Hue Harmony  Translating Theory Into Artistry</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-hassle-free-video-opener-templates/"><u>2024 Approved  Discover Hassle-Free Video Opener Templates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-highlighting-elite-gif-software-on-apple-iphones/"><u>2024 Approved  Highlighting Elite GIF Software on Apple iPhones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-driving-down-the-charts-a-compreranble-seo-approach-for-podcasters/"><u>2024 Approved  Driving Down the Charts  A Compreranble Seo Approach for Podcasters</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-free-gift-guide-all-about-our-50-unique-youtube-ads-for-you/"><u>[Updated] Free Gift Guide  All About Our 50 Unique YouTube Ads for You</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-character-adventures-windows-movie-maker-for-animators/"><u>2024 Approved  Crafting Character Adventures  Windows Movie Maker for Animators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimizing-storage-spend-best-prices-in-cloud-services/"><u>2024 Approved  Optimizing Storage Spend  Best Prices in Cloud Services</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-drone-footage-mastery-editorial-software-hierarchy-unlocked/"><u>2024 Approved  Drone Footage Mastery  Editorial Software Hierarchy Unlocked</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cutting-edge-tools-to-revamp-virtual-performer-voices/"><u>2024 Approved  Cutting-Edge Tools to Revamp Virtual Performer Voices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovative-approaches-for-mosaic-photography/"><u>2024 Approved  Innovative Approaches for Mosaic Photography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-funny-faces-for-iphone-users/"><u>2024 Approved  Funny Faces for iPhone Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gopros-latest-camera-face-off/"><u>2024 Approved  GoPro's Latest Camera Face-Off</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-tiny-worlds-5-ways-to-zoom-in-on-minecraft/"><u>2024 Approved  Navigating Tiny Worlds  5 Ways to Zoom In on Minecraft</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-master-the-art-of-excluding-commercial-videos-from-social-media/"><u>In 2024, Master the Art of Excluding Commercial Videos From Social Media</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-transforming-tiktok-viewers-into-your-facebook-likes/"><u>[New] In 2024, Transforming TikTok Viewers Into Your Facebook Likes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-hubsan-x4-quadcopter-examination-an-in-depth-guide/"><u>2024 Approved  Hubsan X4 Quadcopter Examination  An In-Depth Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/process-to-undo-system-image-fault-0x80780119/"><u>Process to Undo System Image Fault: 0X80780119</u></a></li>
+</ul></div>

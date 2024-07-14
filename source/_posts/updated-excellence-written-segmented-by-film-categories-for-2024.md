@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Excellence Written, Segmented by Film Categories for 2024"
-date: 2024-06-25T18:39:47.714Z
-updated: 2024-06-26T18:39:47.714Z
+date: 2024-07-13T17:35:48.505Z
+updated: 2024-07-14T17:35:48.505Z
 tags: 
   - screen-recording
   - ai video
@@ -115,7 +115,8 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
-### Best promotional video scripts ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
+### Best promotional video scripts
+![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
 
 _**1\. Announcement**_
 
@@ -229,6 +230,9 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Best animation scripts
 
 **_1\. Cinderella_(1950)**
@@ -249,6 +253,9 @@ Like any child of the 90s, I admit to having a soft spot for The Lion King. The 
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Make your own short movie now
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
@@ -275,6 +282,9 @@ The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) f
 
 Creating video content that can potentially go viral is no longer a complicated process that takes an enormous amount of time and effort. Each of the scripts we featured in this article offers more than enough brilliant scripts that are going to impress your target audience. Make your own short movies and script plays using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and checks out additional features explained in the article.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. Why did we pick these films?
 
 When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
@@ -359,7 +369,8 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
-### Best promotional video scripts ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
+### Best promotional video scripts
+![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
 
 _**1\. Announcement**_
 
@@ -437,6 +448,9 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 
 **Download the script:** <https://thescriptlab.com/script-library/2guns-pdf/>
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 _**2\. Casino Royale**_ ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
 **Writers:** Robert Wade and Paul Haggis
@@ -542,3 +556,40 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-the-three-simplest-and-costless-audio-to-text-solutions-for-todays-world-step-by-step/"><u>New 2024 Approved The Three Simplest and Costless Audio-to-Text Solutions for Todays World (Step by Step)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovating-visual-stories-through-hyperlapse/"><u>2024 Approved  Innovating Visual Stories Through Hyperlapse</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-captivating-copy-creator-pro/"><u>2024 Approved  Captivating Copy Creator Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-journeys-top-10-films-that-bring-alien-worlds-to-life/"><u>2024 Approved  Metaverse Journeys  Top 10 Films That Bring Alien Worlds to Life</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-rtf-file-document-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a .rtf file document electronically</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-free-top-6-best-apps-to-remove-objects-from-photo-on-iphone/"><u>2024 Approved  FREE Top 6 Best Apps to Remove Objects From Photo on iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-filmcraft-studio-top-alternatives-for-lightroom-users/"><u>2024 Approved  FilmCraft Studio  Top Alternatives for Lightroom Users</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-and-science-of-crafting-a-captivating-trailer-for-youtube/"><u>[Updated] The Art and Science of Crafting a Captivating Trailer for YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-close-up-a-guide-to-richer-minecraft-imagery/"><u>2024 Approved  Close-Up  A Guide to Richer Minecraft Imagery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dissecting-the-divide-full-sphere-vs-immersive-films/"><u>2024 Approved  Dissecting the Divide  Full Sphere Vs. Immersive Films</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/precision-cutting-for-impressive-youtube-videos-for-2024/"><u>Precision Cutting for Impressive YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-merging-yt-chorus-with-visual-storytelling/"><u>2024 Approved  Merging YT Chorus with Visual Storytelling</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-no-license-plenty-of-melodies-top-10-online-websites/"><u>2024 Approved  No License, Plenty of Melodies - Top 10 Online Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-m1-mastery-seamless-editing-with-video-tools/"><u>2024 Approved  M1 Mastery  Seamless Editing with Video Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-low-light-captures-on-your-iphone/"><u>2024 Approved  Mastering Low-Light Captures on Your IPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-media-channels-for-youtube-popularity/"><u>2024 Approved  Optimal Media Channels for YouTube Popularity</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackling-missing-printmanagement-component-on-your-pc/"><u>Tackling Missing 'PrintManagement' Component on Your PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-evaluated-and-ranked-the-best-iphone-photo-watermarkers/"><u>2024 Approved  Evaluated and Ranked  The Best iPhone Photo Watermarkers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-chuckle-inducing-snaps-applying-the-cartoon-face-effect-on-snapchat/"><u>2024 Approved  Chuckle-Inducing Snaps  Applying the Cartoon Face Effect on Snapchat</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/rectifying-inverted-screens-display-windows-11/"><u>Rectifying Inverted Screens Display: Windows 11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-honor-magic-6-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Honor Magic 6</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-tik-hop-waves-unveiling-todays-viral-rap-sounds/"><u>[Updated] Tik-Hop Waves  Unveiling Today's Viral Rap Sounds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-effortless-voice-customization-secrets-in-pubg/"><u>2024 Approved  Effortless Voice Customization Secrets in PUBG</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-harness-canons-power-explore-10-basic-free-luts-and-more/"><u>2024 Approved  Harness Canon's Power  Explore 10 Basic Free LUTs and More</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-flawless-tint-enhancer/"><u>2024 Approved  Flawless Tint Enhancer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-building-a-robust-spotify-advertising-foundation/"><u>2024 Approved  Building a Robust Spotify Advertising Foundation</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-mbs-service-connection-failures-on-windows-11/"><u>Solving MB's Service Connection Failures on Windows 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-giggle-gang-exploring-the-best-memetic-apps/"><u>2024 Approved  Giggle Gang  Exploring the Best Memetic Apps</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-best-online-image-resizers-for-perfect-proportions/"><u>Updated In 2024, Best Online Image Resizers for Perfect Proportions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-film-star-access-pass-talent-release/"><u>2024 Approved  Film Star Access Pass - Talent Release</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-the-art-of-audio-file-conversion-from-srt-formats/"><u>2024 Approved  Mastering the Art of Audio File Conversion From SRT Formats</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-effortless-auditory-transition-with-logic-pro-x/"><u>2024 Approved  Effortless Auditory Transition with Logic Pro X</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Deciphering Hand Tracking Methodologies\""
-date: 2024-07-03T13:16:31.345Z
-updated: 2024-07-04T13:16:31.345Z
+date: 2024-07-13T19:13:42.916Z
+updated: 2024-07-14T19:13:42.916Z
 tags: 
   - screen-recording
   - ai video
@@ -81,10 +81,16 @@ Above we have learned what is Hand Tracking and the two types of it. Now let’s
 
 Before we go further about them, let us learn about Python quickly. Python is a versatile language used for a wide range of tasks, including image processing and computer vision. We will use Python and two Python Libraries: OpenCV and MediaPipe, to create a Hand Tracking module.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What is OpenCV
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What Is Media Pipe
 
 Media Pipe is an open-source framework by Google that provides a set of tools for working with multimedia data or media processing. It includes modules for handling audio, video, and images. Media Pipe also supports various codecs and file formats.
@@ -252,6 +258,9 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Guidance With Steps
 
 Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
@@ -312,6 +321,9 @@ In this method, use the code that you used to find the ID and hand landmark of e
 
 Now, write the below dummy code to showcase what the module can do, i.e., identify and track hands. The code appears in the main method and uses the _lmlist object_ and _image_.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-8.jpg)
 
 ##### Step7 Main Method Execution
@@ -365,3 +377,59 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-through-the-maze-creating-seamless-video-experienences-in-pixiz-for-2024/"><u>[Updated] Navigating Through the Maze  Creating Seamless Video Experienences in Pixiz for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-complete-guide-to-cd-conversion-and-burning-with-wmp/"><u>[New] 2024 Approved  The Complete Guide to CD Conversion & Burning with WMP</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-capture-times-essence-a-comprehensive-guide-to-making-slow-motion-video-from-still-images-online-for-2024/"><u>[Updated] Capture Time's Essence  A Comprehensive Guide to Making Slow-Motion Video From Still Images Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-intense-dissection-unveiling-the-secrets-of-the-bublcam-camera-for-2024/"><u>[Updated] Intense Dissection  Unveiling the Secrets of the Bublcam Camera for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-a-broader-audience-strategies-for-multistreaming-on-youtube-and-twitch/"><u>Unlock a Broader Audience  Strategies for Multistreaming on Youtube and Twitch</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-becoming-a-onestream-pro-tips-and-tricks-from-the-pros/"><u>[New] 2024 Approved  Becoming a OneStream Pro  Tips and Tricks From the Pros</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-building-your-own-youtube-auto-subscribe-url/"><u>[Updated] Building Your Own YouTube Auto-Subscribe URL</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-examination-gopro-hero4-silver-version/"><u>Comprehensive Examination  GoPro HERO4 Silver Version</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-vertical-video-editing-made-easy-best-mobile-apps-for-beginners/"><u>Updated In 2024, Vertical Video Editing Made Easy Best Mobile Apps for Beginners</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-does-reduced-shakiness-improve-creative-editing-in-adobe-photos/"><u>[New] Does Reduced Shakiness Improve Creative Editing in Adobe Photos?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-master-the-art-of-swift-srt-to-text-transformation/"><u>2024 Approved  Master the Art of Swift SRT to Text Transformation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-perfect-your-content-mix-horizontal-videos-on-the-igtv-stage/"><u>[Updated] In 2024, Perfect Your Content Mix  Horizontal Videos on the IGTV Stage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-tvs-to-accompany-your-highest-rated-consoles/"><u>[New] 2024 Approved  Best TVs to Accompany Your Highest Rated Consoles</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-video-content-insights-into-effective-keywords-for-2024/"><u>[New] Mastering Video Content  Insights Into Effective Keywords for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-premier-fast-photo-viewing-software-for-2024/"><u>[Updated] Premier Fast Photo Viewing Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-squeezing-light-from-iphone-nocturnes/"><u>[Updated] In 2024, Squeezing Light From iPhone Nocturnes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-pure-pitch-perception-recording-in-mac-studios-for-2024/"><u>[New] Pure Pitch Perception  Recording in Mac Studios for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-30-video-concepts-for-engaging-audiences/"><u>2024 Approved  Top 30 Video Concepts for Engaging Audiences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-smart-spending-on-action-cams-find-your-bargains-under-100/"><u>[Updated] Smart Spending on ACTION Cams  Find Your Bargains Under $100</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-y27s-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo Y27s by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premium-smartphones-shining-in-high-definition-video/"><u>Premium Smartphones Shining in High Definition Video</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-live-feed-obs-on-instagram-app/"><u>[New] Live Feed  OBS on Instagram App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-from-idea-to-installment-making-custom-instagram-notifications/"><u>In 2024, From Idea to Installment  Making Custom Instagram Notifications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-shutter-excellence-roundup-top-6-incredible-4k-dslrs-for-2024/"><u>[Updated] Shutter Excellence Roundup  Top 6 Incredible 4K DSLRs for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-cost-free-harmonies-for-cinematic-cutting-a-compilation-guide/"><u>In 2024, Cost-Free Harmonies for Cinematic Cutting A Compilation Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-best-practices-for-dynamic-and-dramatic-ae-titles/"><u>In 2024, Best Practices for Dynamic and Dramatic AE Titles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-podcast-sharing-instagram-stories-and-posts-tutorial-for-2024/"><u>[Updated] Podcast Sharing  Instagram Stories & Posts Tutorial for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-crafting-new-dimensions-a-look-at-mixed-reality/"><u>In 2024, Crafting New Dimensions  A Look at Mixed Reality</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-transform-your-livestreams-with-eco-friendly-screen-effects/"><u>[Updated] 2024 Approved  Transform Your Livestreams with Eco-Friendly Screen Effects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-essential-edits-the-definitive-list-of-apps/"><u>Instagram's Essential Edits  The Definitive List of Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/adding-descriptive-tags-to-your-images-on-pcs-and-macs/"><u>Adding Descriptive Tags to Your Images on PCs and Macs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dreamscapes-on-display-a-film-study/"><u>2024 Approved  Dreamscapes on Display  A Film Study</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-audio-clarity-commandments-choosing-from-the-best-6-livestreaming-mics/"><u>[Updated] In 2024, Audio Clarity Commandments  Choosing From the Best 6 Livestreaming Mics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-neptune-display-premium-4k-all-in-one-screens/"><u>2024 Approved  Neptune Display  Premium 4K All-in-One Screens</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-journey-through-chromatic-realms-editing-essentials/"><u>[New] 2024 Approved  A Journey Through Chromatic Realms  Editing Essentials</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-next-gen-virtual-adventures-upcoming-top-5-psvr-games-to-love/"><u>[Updated] In 2024, Next-Gen Virtual Adventures  Upcoming Top 5 PSVR Games to Love</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-samsung-galaxy-z-flip-5-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Samsung Galaxy Z Flip 5 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-editors-edge-insider-strategies-to-supercharge-your-photos/"><u>[Updated] The Editor's Edge  Insider Strategies to Supercharge Your Photos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-echoes-of-chuckles-parody-playlists/"><u>[Updated] Echoes of Chuckles  Parody Playlists</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-prime-alert-tones-selective-websites-guide/"><u>2024 Approved  Prime Alert Tones  Selective Websites Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-podcast-logo-basics-key-principles-for-striking-art/"><u>In 2024, Podcast Logo Basics  Key Principles for Striking Art</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-pioneering-sky-hdr-images-at-your-fingertips/"><u>[Updated] In 2024, Pioneering Sky HDR Images at Your Fingertips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-usenet-video-player-direct-streaming-access/"><u>In 2024, Usenet Video Player  Direct Streaming Access</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-7-high-motion-dslrs-for-dynamic-live-content-creation/"><u>[Updated] Best 7 High-Motion DSLRs for Dynamic Live Content Creation</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-best-free-video-editing-software-for-rotating-and-flipping-videos-for-2024/"><u>Updated Best Free Video Editing Software for Rotating and Flipping Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-exploring-the-capabilities-of-yuneecs-typhoon-uav/"><u>In 2024, Exploring the Capabilities of Yuneec’s Typhoon UAV</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mold-amusement-pictures-for-giphy-platform/"><u>[New] 2024 Approved  Mold Amusement Pictures for Giphy Platform</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>What is Fake GPS Location Pro and Is It Good On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-smartest-podcast-renaming-options-through-ai-technology/"><u>[Updated] 2024 Approved  The Smartest Podcast Renaming Options Through AI Technology</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-win10s-15-favorite-screen-grabbers/"><u>In 2024, Win10's 15 Favorite Screen Grabbers</u></a></li>
+</ul></div>

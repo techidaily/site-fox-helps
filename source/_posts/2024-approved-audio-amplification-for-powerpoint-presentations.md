@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Audio Amplification for PowerPoint Presentations\""
-date: 2024-06-25T19:18:22.115Z
-updated: 2024-06-26T19:18:22.115Z
+date: 2024-07-13T18:20:54.330Z
+updated: 2024-07-14T18:20:54.330Z
 tags: 
   - screen-recording
   - ai video
@@ -44,13 +44,18 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 **Steps to add audio to PowerPoint from PC**
 
-##### Step1 Select Insert > Audio ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+##### Step1 Select Insert > Audio
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
 
 ##### Step3 Select the audio file you want to add in the Insert Audio dialogue box
 
-##### Step4 Select Insert ![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
+##### Step4 Select Insert
+![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
 
 ## Part 2 Record audio on PowerPoint
 
@@ -104,9 +109,14 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ##### Step1 Click the audio icon you’ve just added to the presentation in previous steps
 
-##### Step2 Click Playback> Trim Audio as shown below ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
+##### Step2 Click Playback> Trim Audio as shown below
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
+##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
+![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
@@ -124,8 +134,12 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-##### Step1 Click Add Bookmark after clicking the place ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
+##### Step1 Click Add Bookmark after clicking the place
+![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4 How to play audio automatically in PowerPoint
 
 After the above modifications, you can adjust the Audio Options. Thus, you can change how the audio plays in PPT as follows.
@@ -148,6 +162,14 @@ Let’s see how we can achieve this!
 
 #### Wondershare Filmora
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
@@ -232,3 +254,48 @@ In this guide, we’ll specifically talk about the feature by which you can reco
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/simplifying-onestream-techniques-for-effective-streaming-for-2024/"><u>Simplifying OneStream Techniques for Effective Streaming for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-10-leading-4k-displays/"><u>[Updated] In 2024, 10 Leading 4K Displays</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-a-list-ps3-mimicry-software-on-pcs-ranked-1-5/"><u>[Updated] 2024 Approved  A-List PS3 Mimicry Software on PCs, Ranked #1-5</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unmatched-video-upload-aides-to-twitter-for-2024/"><u>Unmatched Video Upload Aides to Twitter for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-art-of-image-hunting-on-pexelscom/"><u>[New] The Art of Image Hunting on Pexels.com</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-illustrator-tutorial-bringing-text-to-life/"><u>[Updated] 2024 Approved  Illustrator Tutorial  Bringing Text to Life</u></a></li>
+<li><a href="https://techidaily.com/sign-ext-files-online-for-free-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Sign {{ext}} files Online for Free</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-prime-win11-videography-software-for-editors-for-2024/"><u>[New] Prime Win11 Videography Software for Editors for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-photobooth-lags-steadying-the-playback-journey/"><u>[Updated] Photobooth Lags  Steadying the Playback Journey</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-jaunt-vr-journey-explained-for-2024/"><u>The Jaunt VR Journey Explained for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-videography-items-for-travelers/"><u>[New] Top Videography Items for Travelers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-vlc-vs-mpc-decoding-the-best-free-media-player/"><u>[New] In 2024, VLC Vs. MPC  Decoding the Best Free Media Player</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-deep-dive-into-the-technological-framework-of-sound-forge/"><u>New Deep Dive Into the Technological Framework of Sound Forge</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-gaming-and-economics-collide-24s-best-business-simulations/"><u>[New] Gaming and Economics Collide  '24'S Best Business Simulations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-building-better-montages-a-creative-guide-for-2024/"><u>[Updated] Building Better Montages  A Creative Guide for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-cutting-edge-in-live-event-streaming-tech-for-2024/"><u>The Cutting Edge in Live Event Streaming Tech for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-animators-toolkit-windows-movie-maker-for-winning-projects-for-2024/"><u>The Animator's Toolkit  Windows Movie Maker for Winning Projects for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-neo-5-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Realme GT Neo 5 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-light-manipulation-for-captivating-gopro-time-lapse-scenes/"><u>[Updated] In 2024, Mastering Light Manipulation for Captivating GoPro Time Lapse Scenes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-digital-dossiers-decoded-craft-your-signature-bio-with-stars/"><u>[Updated] 2024 Approved  Digital Dossiers Decoded  Craft Your Signature Bio with Stars</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/seamless-integration-of-video-filters-in-zoom/"><u>Seamless Integration of Video Filters in Zoom</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-subtitles-from-srt-proven-techniques-revealed/"><u>[New] Unlocking Subtitles From SRT  Proven Techniques Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-realms-intersecting-delving-into-vr-augmented-and-mixed-immersion-for-2024/"><u>[Updated] Realms Intersecting  Delving Into VR, Augmented & Mixed Immersion for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-gamer-writes-top-7-fps-games-list/"><u>Ultimate Gamer' Writes  Top 7 FPS Games List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-tackling-massed-up-tiktoks-expert-edits-for-less-chaos/"><u>[New] In 2024, Tackling Massed-Up TikToks  Expert Edits for Less Chaos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-revolutionary-tools-elevating-vr-games-for-2024/"><u>[Updated] Revolutionary Tools Elevating VR Games for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-premier-online-repositories-for-typography/"><u>[Updated] 2024 Approved  Premier Online Repositories for Typography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-diy-tips-for-crafting-your-own-iphone-tones-for-2024/"><u>[Updated] DIY Tips for Crafting Your Own iPhone Tones for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/techniques-for-straightening-aerial-video-stability-for-2024/"><u>Techniques for Straightening Aerial Video Stability for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/reducing-noise-sensitivity-in-logic-pro-mixes/"><u>Reducing Noise Sensitivity in Logic Pro Mixes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-scripted-text-into-storytelling-magic/"><u>Transform Scripted Text Into Storytelling Magic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-thriving-livestreams-strategies-for-beginners-with-low-followers/"><u>[Updated] In 2024, Thriving Livestreams  Strategies for Beginners with Low Followers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers/"><u>[Updated] In 2024, Transform Your Tactics  Exclusive Free Voice Change Tool for Valorant Gamers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-list-8-key-steps-for-irresistible-unboxing-reels/"><u>In 2024, The Ultimate List  8 Key Steps for Irresistible Unboxing Reels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-srt-essentials-decoded-for-easy-understanding-for-2024/"><u>[New] SRT Essentials Decoded for Easy Understanding for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-paint-your-vision-top-8-best-drawing-apps-for-iphone-enthusiasts-for-2024/"><u>[New] Paint Your Vision  Top 8 Best Drawing Apps for iPhone Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-smart-shopping-strategy-top-7-affordable-4k-mirrorless/"><u>[Updated] Smart Shopping Strategy  Top 7 Affordable 4K Mirrorless</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-professional-panoramas-and-cinematography-with-hero5-black/"><u>[Updated] In 2024, Professional Panoramas & Cinematography with Hero5 Black</u></a></li>
+<li><a href="https://some-skills.techidaily.com/techniques-for-swiftly-finding-deleted-reddit-contributions-for-2024/"><u>Techniques for Swiftly Finding Deleted Reddit Contributions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pro-vision-best-4k-dslr-mounting-systems-reviewed/"><u>[Updated] 2024 Approved  Pro Vision  Best 4K DSLR Mounting Systems Reviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Oppo A59 5G | Dr.fone</u></a></li>
+</ul></div>

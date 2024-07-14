@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Best Data Buffering Option for Sony A7C\""
-date: 2024-07-03T13:15:55.446Z
-updated: 2024-07-04T13:15:55.446Z
+date: 2024-07-13T19:13:04.952Z
+updated: 2024-07-14T19:13:04.952Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/904e4358c32651c8870cd752598cbad0b1afa3205
 
 # Best Memory Card for Sony A7S II
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/904e4358c32651c8870cd752598cbad0b1afa3205
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -67,6 +73,9 @@ thumbnail: https://thmb.techidaily.com/904e4358c32651c8870cd752598cbad0b1afa3205
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -105,6 +114,9 @@ thumbnail: https://thmb.techidaily.com/904e4358c32651c8870cd752598cbad0b1afa3205
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -131,3 +143,41 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-on-apple-iphone-11-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email On Apple iPhone 11? Heres the Best Fixes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-deep-dive-sonys-s6700-updates-review-for-2024/"><u>[New] Deep Dive  Sony's S6700 Updates Review for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-amplify-your-footage-the-power-of-enhancer-22/"><u>[Updated] Amplify Your Footage  The Power of Enhancer 2.2</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ensuring-your-pictures-endure-top-rated-cloud-storage-services-for-2024/"><u>[New] Ensuring Your Pictures Endure  Top-Rated Cloud Storage Services for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/proving-ideal-for-iphone-users-9-photo-watermarking-tools/"><u>Proving Ideal for iPhone Users  9 Photo Watermarking Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-from-script-to-screen-a-kids-guide-to-movie-making-for-2024/"><u>New From Script to Screen A Kids Guide to Movie Making for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/introduction-to-organizing-remote-work-hours-for-2024/"><u>Introduction to Organizing Remote Work Hours for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/stepping-into-silence-fading-out-audio-in-adobe-premiere-pro-for-2024/"><u>Stepping Into Silence  Fading Out Audio in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-outlining-expenditures-the-price-tag-of-video-capturing-tunes/"><u>[New] Outlining Expenditures  The Price Tag of Video Capturing Tunes</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-meta-to-omni-a-new-age-digital-odyssey-guide/"><u>[New] From Meta to Omni  A New Age Digital Odyssey Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-strategic-animation-techniques-to-boost-your-facebook-ad-roi/"><u>In 2024, Strategic Animation Techniques to Boost Your Facebook Ad ROI</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-premier-20-anime-theme-melodies/"><u>[New] 2024 Approved  Premier 20 Anime Theme Melodies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlock-professional-video-quality-with-obs-studios-lut-functionalities/"><u>Unlock Professional Video Quality with OBS Studio's LUT Functionalities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pushing-boundaries-with-film-color-grading-these-7-for-2024/"><u>[New] Pushing Boundaries with Film Color Grading (These 7) for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/tutorial-for-creating-mute-avi-video-files-edition/"><u>Tutorial for Creating Mute AVI Video Files Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-breaking-the-barrier-acquiring-mass-tiktok-videos-easily-for-2024/"><u>[New] Breaking the Barrier  Acquiring Mass TikTok Videos Easily for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-essential-9-video-calling-apps-android-and-ios-review/"><u>In 2024, Essential 9 Video Calling Apps  Android & iOS Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-10-athletic-free-front-rows-for-relaxing-for-2024/"><u>[New] 10 Athletic-Free Front Rows for Relaxing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-effortless-installation-and-fun-with-ifunnys-memes/"><u>[New] Effortless Installation & Fun with iFunny's Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-future-of-audio-extraction-with-pazera-tools-analysis/"><u>[New] The Future of Audio Extraction with Pazera Tools Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-vanguard-ventures-newcomers-to-the-panzoid-world/"><u>In 2024, Vanguard Ventures  Newcomers to the Panzoid World</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-conquer-broadcasting-unite-obs-and-streamlabs-for-mac/"><u>[New] Conquer Broadcasting  Unite OBS & Streamlabs for Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-nikons-1j5-videographer-a-spectacle-in-4k/"><u>[New] In 2024, Nikon's 1J5 Videographer  A Spectacle in 4K</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-significance-of-reducing-camera-shake-with-software-tools/"><u>[Updated] The Significance of Reducing Camera Shake with Software Tools</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713951145919-sometimes-when-it-comes-to-editing-a-video-we-dont-even-know-where-to-start-because-there-are-too-many-options-online-platforms-which-instantly-help-us-edit/"><u>Sometimes, when It Comes to Editing a Video, We Dont Even Know Where to Start, because There Are Too Many Options –Online Platforms Which Instantly Help Us Edit Our Clips, without Lengthy Process of Downloading and Installing Computer Programs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-integrate-xp-moviemaker-from-digital-software-suite/"><u>[New] In 2024, Integrate XP Moviemaker From Digital Software Suite</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-becoming-a-master-at-creating-flattering-discord-pfps/"><u>[New] 2024 Approved  Becoming a Master at Creating Flattering Discord PFPs</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-vivo-y02t-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Vivo Y02T by Name | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-snicker-showcase-top-10-tweets/"><u>In 2024, Snicker Showcase  Top 10 Tweets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-from-cluttered-canvases-to-crystal-clear-captures-using-photopea/"><u>[New] 2024 Approved  From Cluttered Canvases to Crystal Clear Captures Using Photopea</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-why-does-imovie-crop-my-videos/"><u>[New] In 2024, Why Does iMovie Crop My Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/principles-of-crafting-alluring-video-scripts-for-2024/"><u>Principles of Crafting Alluring Video Scripts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-the-tiktok-threat-to-its-revenue-streams/"><u>Facebook Faces the TikTok Threat to Its Revenue Streams</u></a></li>
+</ul></div>

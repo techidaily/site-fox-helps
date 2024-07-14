@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unveiling Gestures in Tech Landscape for 2024"
-date: 2024-06-25T19:35:29.355Z
-updated: 2024-06-26T19:35:29.355Z
+date: 2024-07-13T18:41:05.683Z
+updated: 2024-07-14T18:41:05.683Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,9 @@ In this article, we’ll discuss **Hand Tracking** technology, its various appli
 
 * [Use Filmora to demonstarte your Hand Tracking skill](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. What Is Hand Tracking? Where Is It Applied?
 
 Hand Tracking refers to the process of tracking the position and movement of a user's hands in virtual reality. This is usually done using a combination of sensors, including cameras, infrared sensors, or ultrasonic sensors.
@@ -81,6 +84,9 @@ Above we have learned what is Hand Tracking and the two types of it. Now let’s
 
 Before we go further about them, let us learn about Python quickly. Python is a versatile language used for a wide range of tasks, including image processing and computer vision. We will use Python and two Python Libraries: OpenCV and MediaPipe, to create a Hand Tracking module.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What is OpenCV
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
@@ -138,7 +144,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -197,6 +204,9 @@ The Oculus Quest 2 is a virtual reality headset that immerses you in virtual wor
 
 With Hand Tracking, you can interact with the virtual world more naturally and intuitively. You can use your hands to pick up objects, draw, and even type on a virtual keyboard. Moreover, it opens up new possibilities for gameplay, allowing you to play games in new and innovative ways.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hand tracking technology](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-technology.jpg)
 
 ## Part 2\. Types Of Hand Tracking
@@ -290,7 +300,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -298,6 +309,9 @@ Afterward, use the above code to create a method for using specifically to ident
 
 To create a method for finding the x and y coordinates of the z21 hand points and a list that you will use to keep the values of these, write the code below:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![locate x and y coordinate of hand point](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-7.jpg)
 
 In this method, use the code that you used to find the ID and hand landmark of each hand point. Moreover, put the code you will use to circle the hand point.
@@ -357,3 +371,52 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-film-fanatics-dream-the-ultimate-list-of-free-movies-streaming-on-youtube/"><u>[Updated] 2024 Approved  Film Fanatics' Dream – The Ultimate List of Free Movies Streaming on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-amplifying-your-minecraft-scene/"><u>In 2024, The Art of Amplifying Your Minecraft Scene</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-zen-and-the-art-of-crystal-clear-zoom-video/"><u>[Updated] In 2024, Zen and the Art of Crystal-Clear Zoom Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-master-iphones-natural-features-with-these-photo-hacks/"><u>[New] 2024 Approved  Master iPhone's Natural Features with These Photo Hacks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beyond-limits-a-critical-look-at-panasonics-hx-a1-actionrecorder/"><u>Beyond Limits - A Critical Look at Panasonic’s HX-A1 ActionRecorder</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-video-quality-debate-the-pros-of-30-vs-60-fps/"><u>[New] In 2024, Video Quality Debate  The Pros of 30 Vs. 60 Fps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-artistry-selecting-from-6-best-nft-makers/"><u>Navigating Artistry  Selecting From 6 Best NFT Makers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-vivo-y36i-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Vivo Y36i for Parents | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-to-your-digital-editing-oasis-on-youtube/"><u>[New] 2024 Approved  Navigating to Your Digital Editing Oasis on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-best-gaming-streams-a-selection-of-leading-webcams/"><u>In 2024, Best Gaming Streams  A Selection of Leading Webcams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/curated-index-of-leading-vector-art-and-illustration-pages/"><u>Curated Index of Leading Vector Art and Illustration Pages</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-best-pc-snippets-tools-handy-guide-to-top-5-choices/"><u>[Updated] Best Pc Snippets Tools  Handy Guide to Top 5 Choices</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-everything-from-apple-iphone-14-pro-max-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Everything from Apple iPhone 14 Pro Max to iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-secrets-to-subtle-sound-diminishment-in-lumafusion/"><u>[Updated] The Secrets to Subtle Sound Diminishment in Lumafusion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-how-to-effectively-download-huge-quantities-of-tiktok-content/"><u>[New] 2024 Approved  How to Effectively Download Huge Quantities of TikTok Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-what-sets-triller-aside-from-traditional-video-platforms-like-tiktok-for-2024/"><u>[Updated] What Sets Triller Aside From Traditional Video Platforms Like TikTok for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-best-microphones-ranked-perfect-companions-for-4k-cinematography/"><u>In 2024, Best Microphones Ranked  Perfect Companions for 4K Cinematography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unleash-the-full-potential-of-your-chat-on-whatsapp/"><u>2024 Approved  Unleash the Full Potential of Your Chat on WhatsApp</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/subscribe-smart-hundreds-for-under-5-for-2024/"><u>Subscribe Smart - Hundreds for Under $5 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/assessing-the-value-of-digital-image-anchor-points-for-2024/"><u>Assessing the Value of Digital Image Anchor Points for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-snip-save-and-share-high-quality-tamil-ringtones-easily/"><u>How to Snip, Save and Share High-Quality Tamil Ringtones Easily</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-sharing-tweets-with-facebook-friends/"><u>[Updated] In 2024, Sharing Tweets with Facebook Friends</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unraveling-visual-clarity-for-the-new-digital-age/"><u>In 2024, Unraveling Visual Clarity for the New Digital Age</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-assemble-photos-for-a-captivating-storyboard-experience/"><u>In 2024, Assemble Photos for a Captivating Storyboard Experience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-transforming-mundane-footage-into-spectaculair-slow-mo-instareel/"><u>2024 Approved  Transforming Mundane Footage Into Spectaculair Slow Mo InstaReel</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-thankful-tailings-templates-for-every-dollar-plan-for-2024/"><u>[Updated] Thankful Tailings  Templates for Every Dollar Plan for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-iphone-x-identity-verification-restoring-biometric-lock-for-2024/"><u>[Updated] Mastering iPhone X Identity Verification  Restoring Biometric Lock for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/watermarking-masters-the-leading-tools-reviewed/"><u>Watermarking Masters  The Leading Tools Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-sharp-4k-top-10-mirrorless-cameras/"><u>[Updated] In 2024, Mastering Sharp 4K  Top 10 Mirrorless Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-innovating-education-with-virtual-immersion/"><u>[Updated] In 2024, Innovating Education with Virtual Immersion</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/crafting-your-legacy-the-ultimate-list-of-20-iconic-tiktok-captions-for-2024/"><u>Crafting Your Legacy  The Ultimate List of 20 Iconic TikTok Captions for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-navigating-twitters-video-content-aspect-ratios-included/"><u>[New] 2024 Approved  Navigating Twitter’s Video Content  Aspect Ratios Included</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-5-best-title-makers-online/"><u>[New] 2024 Approved  5 Best Title Makers Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unraveling-sierras-icloud-full-access-guide/"><u>[Updated] In 2024, Unraveling Sierra's iCloud  Full Access Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-eternal-display-documentation-for-2024/"><u>[Updated] Eternal Display Documentation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-leading-edge-cards-for-sharp-4k-gaming/"><u>[Updated] In 2024, Leading Edge Cards for Sharp 4K Gaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-greatest-hits-of-iphone-movie-streaming/"><u>[Updated] In 2024, The Greatest Hits of iPhone Movie Streaming</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-upgrading-your-quicktime-videos-integrating-high-quality-soundtracks/"><u>New In 2024, Upgrading Your QuickTime Videos Integrating High-Quality Soundtracks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-professional-techniques-for-superior-audacity-sessions/"><u>[Updated] Professional Techniques for Superior Audacity Sessions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-cross-promotion-partnerships-with-brands-on-youtube/"><u>[Updated] In 2024, Cross-Promotion Partnerships with Brands on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unlocking-the-simplicity-of-monitoring-and-viewing-loved-youtube-remarks/"><u>[Updated] Unlocking the Simplicity of Monitoring and Viewing Loved YouTube Remarks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-retro-cinema-a-look-at-the-goofy-adventure/"><u>[Updated] In 2024, Retro Cinema  A Look at 'The Goofy Adventure'</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-cutting-through-the-clutter-how-to-pick-a-premium-4k-monitor/"><u>[New] 2024 Approved  Cutting Through the Clutter  How to Pick a Premium 4K Monitor</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-sfx-seekers-companion-navigating-to-8-exceptional-online-locations-for-accessing-premium-quality-no-cost-audio-assets-for-2024/"><u>New The SFX Seekers Companion Navigating to 8 Exceptional Online Locations for Accessing Premium-Quality, No-Cost Audio Assets for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Sculpting Stories with Specialty Fonts in After Effects"
-date: 2024-06-25T18:40:19.732Z
-updated: 2024-06-26T18:40:19.732Z
+date: 2024-07-13T17:36:25.762Z
+updated: 2024-07-14T17:36:25.762Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,9 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -61,6 +64,9 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -71,6 +77,9 @@ If for some reason you don't want to use After Effects on your device to edit yo
 
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
@@ -96,6 +105,9 @@ These features also include adding texts and changing the fonts of those texts o
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -132,3 +144,41 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-prime-cloud-storage-options/"><u>[Updated] Unveiling Prime Cloud Storage Options</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-poco-x6-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Poco X6 Pro Devices</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-microvid-viewer-analysis-and-comparison-tools/"><u>[New] MicroVid Viewer Analysis & Comparison Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-goofy-bliss-classic-film-revisited-for-2024/"><u>[Updated] Goofy Bliss  Classic Film Revisited for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-beginners-guide-top-10-easy-to-fly-drones/"><u>2024 Approved  Beginner's Guide  Top 10 Easy-to-Fly Drones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-free-nba-action-at-home-the-best-15-ways-to-watch-games-online-for-2024/"><u>[Updated] Free NBA Action at Home  The Best 15 Ways to Watch Games Online for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-tips-to-share-pre-recorded-videos-live-on-facebook/"><u>In 2024, Tips to Share Pre-Recorded Videos Live on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exploring-how-mixed-reality-transforms-experience/"><u>Exploring How Mixed Reality Transforms Experience</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-whatsapp-status-video-makers-free-paid-and-everything-in-between-for-2024/"><u>Updated WhatsApp Status Video Makers Free, Paid, and Everything in Between for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-perfecting-soundscapes-removing-ambient-noise-in-audacity/"><u>[New] In 2024, Perfecting Soundscapes  Removing Ambient Noise in Audacity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tranquil-sleep-soundtrack-expertly-selected-voices-for-2024/"><u>[Updated] Tranquil Sleep Soundtrack  Expertly Selected Voices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-first-row-fun-beyond-the-game-top-alternatives-for-2024/"><u>[Updated] First Row Fun Beyond the Game  Top Alternatives for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-voice-change-mastery-for-sony-game-systems/"><u>2024 Approved  Voice Change Mastery for Sony Game Systems</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/why-does-itools-virtual-location-not-work-for-apple-iphone-12-pro-maxipad-solved-drfone-by-drfone-virtual-ios/"><u>Why Does iTools Virtual Location Not Work For Apple iPhone 12 Pro Max/iPad? Solved | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capturing-clarity-iphone-low-light-techniques-for-2024/"><u>Capturing Clarity  IPhone Low Light Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-imagery-capturing-drones-in-10-selection/"><u>2024 Approved  Best Imagery-Capturing Drones in #10 Selection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-insiders-guide-to-slow-motion-with-photos-and-web-tools-for-2024/"><u>[Updated] The Insider's Guide to Slow Motion with Photos & Web Tools for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-from-beginner-to-pro-a-step-by-step-guide-to-choosing-an-aiff-converter-for-2024/"><u>New From Beginner to Pro A Step-by-Step Guide to Choosing an AIFF Converter for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-tecno-pop-8-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Tecno Pop 8 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-comprehensive-directory-for-got-ringtones-download/"><u>In 2024, The Comprehensive Directory for GoT Ringtones Download</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/perfecting-video-cuts-the-role-of-visual-callouts-in-edits-for-2024/"><u>Perfecting Video Cuts  The Role of Visual Callouts in Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-cumulative-community-capture-for-2024/"><u>[New] Cumulative Community Capture for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-invisible-smile-vanished-eyes-in-picsart/"><u>[Updated] In 2024, Invisible Smile, Vanished Eyes in Picsart</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-utilizing-zoom-to-upgrade-tiktok-video-aesthetics/"><u>[New] Utilizing Zoom to Upgrade TikTok Video Aesthetics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-complete-vivacut-overview-editors-deep-dive/"><u>2024 Approved  The Complete VivaCut Overview  Editor's Deep Dive</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-masterclasses-on-obtaining-visual-elements/"><u>[Updated] Masterclasses on Obtaining Visual Elements</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unlocking-powerdirector-a-compreran-review-and-tutorial/"><u>2024 Approved  Unlocking PowerDirector  A Compreran Review & Tutorial</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-skyline-pixel-boost-pro-windowsmac-suite/"><u>2024 Approved  Skyline Pixel Boost Pro  Windows/Mac Suite</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-uncovering-whatsapp-written-off-tricks-and-tips/"><u>2024 Approved  Uncovering WhatsApp' Written Off Tricks and Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-highlight-harmony-the-top-business-tactics-for-insta/"><u>[Updated] In 2024, Highlight Harmony  The Top Business Tactics for Insta</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-inshot-on-pcs-and-laptops/"><u>[Updated] In 2024, The Ultimate Guide to Inshot on PCs and Laptops</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-behind-the-headset-todays-vr-tomorrows-trials/"><u>[Updated] In 2024, Behind the Headset  Today's VR, Tomorrow's Trials</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/enhance-editing-unlimited-free-audio-samples-in-2024/"><u>Enhance Editing  Unlimited Free Audio Samples, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-delving-into-the-world-of-mukbang-videos/"><u>[New] In 2024, Delving Into the World of Mukbang Videos</u></a></li>
+</ul></div>

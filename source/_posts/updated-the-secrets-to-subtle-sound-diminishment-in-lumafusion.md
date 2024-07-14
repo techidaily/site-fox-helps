@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Secrets to Subtle Sound Diminishment in Lumafusion"
-date: 2024-06-25T18:41:24.666Z
-updated: 2024-06-26T18:41:24.666Z
+date: 2024-07-13T17:37:41.317Z
+updated: 2024-07-14T17:37:41.317Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,9 @@ There are several capabilities in Luma Fusion that make precise editing possible
 
 Step1 LumaFusion's default structure is comparable to that of many desktops editing programs: a multitrack timeline along the bottom, a media browser in the upper left, and a preview monitor that, depending on what you last chose, either displays a source clip or your timeline edit.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![lumafusion timeline](https://images.wondershare.com/filmora/article-images/2022/07/lumafusion-timeline.jpg)
 
 Step2 LumaFusion allows for the automated synchronization of up to 12 camera sources and several audio tracks. When a clip is loaded into LumaFusion, touch on it to open it in the viewer and then adjust the start and finish points.
@@ -40,6 +43,18 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
 A multi-track video editor made specifically for mobile devices is called LumaFusion. Journalists, filmmakers, and expert video producers often utilize it to create engrossing video narratives. But if you have a toolkit with everything you need already built in so you can use it as needed, fading is unexpectedly made simple. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) does this task faster than ever because to its user-friendly interface, which makes audio editing in Filmora a breeze.
@@ -84,6 +99,9 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -100,6 +118,9 @@ Now that you've downloaded the software's executable file, the next step is to i
 
 Drag and drop your sound recordings from the media library to the timeline at the bottom of the program when they have been successfully imported. You may now see your audio files inside the timeline, where you can easily crop the video or reduce the audio of the relevant audio file. You may utilize basic to sophisticated editing techniques inside the program. To choose the basic editor, just click on the video file within the timeline as shown below:
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 ##### Step3 Apply Fade Effects
@@ -151,3 +172,37 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/fix-low-quality-footage-on-different-devices/"><u>Fix Low-Quality Footage on Different Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlock-professional-editing-techniques-in-fcp-for-2024/"><u>Unlock Professional Editing Techniques in FCP for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unleash-the-potential-of-pip-in-microsoft-edge-browser/"><u>[Updated] In 2024, Unleash the Potential of PIP in Microsoft Edge Browser</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-content-discovery-leveraging-youtubes-featured-channel-guide/"><u>2024 Approved  Streamline Content Discovery  Leveraging Youtube's Featured Channel Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/transforming-visuals-10-must-try-text-upgrades-in-videos/"><u>Transforming Visuals  10 Must-Try Text Upgrades in Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-essential-tablets-for-enhancing-photos-move-past-filmora/"><u>[Updated] Essential Tablets for Enhancing Photos  Move Past Filmora</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-techniques-to-soften-volume-peaks-in-lumafusion/"><u>[Updated] In 2024, Techniques to Soften Volume Peaks in Lumafusion</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/transform-snaps-into-anime-adventures-with-snapchat-filters/"><u>Transform Snaps Into Anime Adventures with Snapchat Filters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-live-yt-sessions-on-phone-for-newbies-without-a-million-viewers-for-2024/"><u>[Updated] Live YT Sessions on Phone for Newbies without a Million Viewers for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-look-at-djis-quadcopter-standard-flight-for-2024/"><u>A Comprehensive Look at DJI's Quadcopter Standard Flight for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-next-gen-clarity-in-depth-review-of-best-8k-monitors-for-2024/"><u>[Updated] Next-Gen Clarity  In-Depth Review of Best 8K Monitors for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-how-to-edit-drone-videos-for-2024/"><u>[Updated] How to Edit Drone Videos for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-snap-share-repeat-the-ultimate-ps4-screenshot-sharing-guide/"><u>New Snap, Share, Repeat The Ultimate PS4 Screenshot Sharing Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-detailed-guide-on-voice-memos-best-practices/"><u>2024 Approved  Detailed Guide on Voice Memos Best Practices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-master-multitask-media-with-ease-expertly-using-netflixs-picture-in-picture-feature/"><u>[Updated] In 2024, Master Multitask Media with Ease  Expertly Using Netflix’s Picture-In-Picture Feature</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elevate-android-video-quality-step-by-step-approach/"><u>[Updated] In 2024, Elevate Android Video Quality  Step by Step Approach</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-essential-tips-to-create-impressive-auditory-openers/"><u>[Updated] 2024 Approved  Essential Tips to Create Impressive Auditory Openers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-picks-essential-voice-transformers-for-vtuber-success-for-2024/"><u>Top Picks  Essential Voice Transformers for VTuber Success for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-the-art-of-crafting-engaging-spotify-promos/"><u>[New] Mastering the Art of Crafting Engaging Spotify Promos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-swift-transfer-methods-getting-files-onto-computers/"><u>[Updated] 2024 Approved  Swift Transfer Methods  Getting Files Onto Computers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-scale-up-visuals-without-diminishing-clarity/"><u>[Updated] Scale Up Visuals Without Diminishing Clarity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-shaping-snapshots-transitioning-from-auto-to-smart-hdr-shooting-for-2024/"><u>[Updated] Shaping Snapshots  Transitioning From Auto to Smart HDR Shooting for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-vivo-s18-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Vivo S18 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-bending-images-photoshops-simplest-alterations/"><u>[Updated] Bending Images  Photoshop's Simplest Alterations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/posting-a-youtube-video-via-insta-stories-a-step-by-step-guide-for-2024/"><u>Posting a YouTube Video via Insta Stories  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-crafting-subtle-audio-declines-using-audacity/"><u>[Updated] 2024 Approved  Crafting Subtle Audio Declines Using Audacity</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-oppo-find-x6-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Oppo Find X6 Pro FRP Locks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-a-symphony-for-screens-music-in-instagram-visuals/"><u>[Updated] 2024 Approved  A Symphony for Screens  Music in Instagram Visuals</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-oneplus-ace-2v-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked OnePlus Ace 2V Phone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elite-list-8k-resolution-cameras-rated-high/"><u>[Updated] 2024 Approved  Elite List  8K Resolution Cameras Rated High</u></a></li>
+</ul></div>

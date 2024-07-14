@@ -1,7 +1,7 @@
 ---
 title: "How Long Is a Video at 20 Megabits, In 2024"
-date: 2024-06-25T19:34:47.170Z
-updated: 2024-06-26T19:34:47.170Z
+date: 2024-07-13T18:40:15.602Z
+updated: 2024-07-14T18:40:15.602Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,9 @@ Filmora can be used to change the bitrate of video files. It has a user-friendly
 
 * **Import Video -Bring the video files in.**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
 
 Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
@@ -80,6 +83,84 @@ Run Video Editor after installing it. Then, on your computer, click the "Import"
 
 * **Choose a video to watch.**
 
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
+
+Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
+
+* **Change the video or audio file's bitrate.**
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-3.jpg)
+
+After that, select SETTINGS. You can modify audio settings like encoder, sample rate, channel, and bitrate, as well as video parameters like encoder, frame rate, resolution, and bitrate, in the new window that appears. Simply select the needed value from the bitrate list to change the bitrate.
+
+Take note that Lowering the bitrate can help you compress your media files. The quality will differ. As a result, it is important to get a difference between size and quality .
+
+**Three Tools to edit video and make it longer or shorter (desktop, phone, online)**
+
+* Magisto (Supports IOS, Android, Online)
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-4.jpg)
+
+Magisto, which is owned by Vimeo, allows you to create amazing videos in three simple steps: You'll start by selecting your video editing style (the type of story you want to tell), then the photos and video clips you want to include, and finally, music from Magisto's built-in library.
+
+This user-friendly app uses artificial intelligence (AI) to organize your footage into a video that best conveys your message.
+
+* ActivePresenter (Supports Windows, Mac)
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-5.jpg)
+
+ActivePresenter is a watermark-free screen recorder and video editor. Screencast movies, manuals, presentations, documentation, and interactive training demonstrations are all possible with it. The software's full-featured editor allows you to edit audio and video, change the look and feel of content, and choose branched situations simply and effectively. Because ActivePresenter supports HTML5 and can interact with Learning Management Systems, the content developed with it may be sent to any device and platform.
+
+* Openshot (Supports Windows, Mac)
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
+
+OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
+
+OpenShot comes with a slew of amazing capabilities, like video sorting and trimming, transition effects between video files, audio level adjustments, chroma key or green-screen effects, and more. The most prevalent codecs and formats are also supported by the software.
+
+OpenShot has a clean, easy-to-use interface that makes video creation and editing a breeze. The program also allows you to build 3D animated title sequences that will wow your audience.
+
+FAQs
+
+* How long of a video is 25 MB?
+
+200 megabits equal 25 MB. 1800 seconds equals 30 minutes; as a result, the video file must be under 200 megabits / 1800 seconds = 111 kbps, or less than half the bitrate of YouTube's 144p video.
+
+* The best way to send a video that is more than 25 megabytes?
+
+A minute of mpeg1 video is about 1 megabyte. Thus, 10 minutes would be 10 megabytes; better videos have fewer minutes.
+
+* What is the size of a one-minute video in megabytes?
+
+A minute of mpeg1 video is about 1 megabyte. Therefore 10 minutes is 10 megabytes; better videos have fewer minutes.
+
+* What is the size of a 1-minute video in GB?
+
+How many video minutes are there per gigabyte? One GB of digital storage may hold between 1.8 and 3.6 minutes of video. This is based on 2.7K to 4K video resolution. 24-
+
+* How long does 25MB last?
+
+200 megabits equals 25 megabytes. 1800 seconds equals 30 minutes.
+
+* How long does 100MB of video last?
+
+How many minutes of video is 100 megabytes of data used? A YouTube video that lasts 20 minutes uses about 100MB.
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
+
+Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
+
+.
+
+* **Choose a video to watch.**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
 
 Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
@@ -254,78 +335,9 @@ ActivePresenter is a watermark-free screen recorder and video editor. Screencast
 
 * Openshot (Supports Windows, Mac)
 
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
-
-OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
-
-OpenShot comes with a slew of amazing capabilities, like video sorting and trimming, transition effects between video files, audio level adjustments, chroma key or green-screen effects, and more. The most prevalent codecs and formats are also supported by the software.
-
-OpenShot has a clean, easy-to-use interface that makes video creation and editing a breeze. The program also allows you to build 3D animated title sequences that will wow your audience.
-
-FAQs
-
-* How long of a video is 25 MB?
-
-200 megabits equal 25 MB. 1800 seconds equals 30 minutes; as a result, the video file must be under 200 megabits / 1800 seconds = 111 kbps, or less than half the bitrate of YouTube's 144p video.
-
-* The best way to send a video that is more than 25 megabytes?
-
-A minute of mpeg1 video is about 1 megabyte. Thus, 10 minutes would be 10 megabytes; better videos have fewer minutes.
-
-* What is the size of a one-minute video in megabytes?
-
-A minute of mpeg1 video is about 1 megabyte. Therefore 10 minutes is 10 megabytes; better videos have fewer minutes.
-
-* What is the size of a 1-minute video in GB?
-
-How many video minutes are there per gigabyte? One GB of digital storage may hold between 1.8 and 3.6 minutes of video. This is based on 2.7K to 4K video resolution. 24-
-
-* How long does 25MB last?
-
-200 megabits equals 25 megabytes. 1800 seconds equals 30 minutes.
-
-* How long does 100MB of video last?
-
-How many minutes of video is 100 megabytes of data used? A YouTube video that lasts 20 minutes uses about 100MB.
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
-
-Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
-
-.
-
-* **Choose a video to watch.**
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
-
-Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
-
-* **Change the video or audio file's bitrate.**
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-3.jpg)
-
-After that, select SETTINGS. You can modify audio settings like encoder, sample rate, channel, and bitrate, as well as video parameters like encoder, frame rate, resolution, and bitrate, in the new window that appears. Simply select the needed value from the bitrate list to change the bitrate.
-
-Take note that Lowering the bitrate can help you compress your media files. The quality will differ. As a result, it is important to get a difference between size and quality .
-
-**Three Tools to edit video and make it longer or shorter (desktop, phone, online)**
-
-* Magisto (Supports IOS, Android, Online)
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-4.jpg)
-
-Magisto, which is owned by Vimeo, allows you to create amazing videos in three simple steps: You'll start by selecting your video editing style (the type of story you want to tell), then the photos and video clips you want to include, and finally, music from Magisto's built-in library.
-
-This user-friendly app uses artificial intelligence (AI) to organize your footage into a video that best conveys your message.
-
-* ActivePresenter (Supports Windows, Mac)
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-5.jpg)
-
-ActivePresenter is a watermark-free screen recorder and video editor. Screencast movies, manuals, presentations, documentation, and interactive training demonstrations are all possible with it. The software's full-featured editor allows you to edit audio and video, change the look and feel of content, and choose branched situations simply and effectively. Because ActivePresenter supports HTML5 and can interact with Learning Management Systems, the content developed with it may be sent to any device and platform.
-
-* Openshot (Supports Windows, Mac)
-
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
 
 OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
@@ -383,3 +395,44 @@ How many minutes of video is 100 megabytes of data used? A YouTube video that la
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-apple-iphone-6s-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From Apple iPhone 6s? Heres the Best Fixes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-visionenhance-pro-high-fidelity-video-upgrade-for-2024/"><u>[Updated] VisionEnhance Pro - High Fidelity Video Upgrade for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-design-freedom-no-cost-logos-crafted-with-user-friendly-templates/"><u>In 2024, Design Freedom  No-Cost Logos Crafted with User-Friendly Templates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-penning-podcasts-to-perfection-a-compreomed-writers-guide/"><u>[New] 2024 Approved  Penning Podcasts to Perfection  A Compreomed Writer’s Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/10-best-screenshot-enhancers-iphoneandroid-sticker-magic-for-2024/"><u>10 Best Screenshot Enhancers  IPhone/Android Sticker Magic for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pivotal-8-image-packs-for-elevated-mac-aesthetics-for-2024/"><u>[Updated] Pivotal 8 Image Packs for Elevated Mac Aesthetics for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-macs-best-capture-exploring-leading-screen-recording-software-for-2024/"><u>[New] Mac's Best Capture  Exploring Leading Screen Recording Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/audience-allure-identifying-the-top-6-video-types-for-2024/"><u>Audience Allure  Identifying the Top 6 Video Types for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/faster-film-fun-time-lapse-techniques-for-iphones/"><u>Faster Film Fun  Time-Lapse Techniques for iPhones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-text-transformation-tactics-avoiding-3d-missteps/"><u>[Updated] Text Transformation Tactics  Avoiding 3D Missteps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-master-windows-11-revolutionary-techniques-for-efficient-video-trimming/"><u>[Updated] Master Window's 11  Revolutionary Techniques for Efficient Video Trimming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-galaxy-visionhub-premium-integrated-4k-all-in-one-panels/"><u>[New] 2024 Approved  Galaxy VisionHub  Premium Integrated 4K All-in-One Panels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-savvy-soccer-snatching-how-to-record-and-cut-cheap-for-2024/"><u>[Updated] Savvy Soccer Snatching  How to Record and Cut Cheap for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-potential-of-aurora-hdr-tech/"><u>[Updated] Unraveling the Potential of Aurora HDR Tech</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/leveraging-android-for-immersive-virtual-and-360-videos/"><u>Leveraging Android for Immersive Virtual and 360 Videos</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/primes-favorites-highest-tweets-and-view-counts-analysis/"><u>Prime's Favorites  Highest Tweets & View Counts Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-tailoring-audio-alerts-setting-custom-ringtones-and-sounds-on-android-devices/"><u>2024 Approved  Tailoring Audio Alerts  Setting Custom Ringtones & Sounds on Android Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pleasurable-stream-capture-evaluation/"><u>2024 Approved  Pleasurable Stream Capture Evaluation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-subscriber-sequence-strategizing-success-on-youtube-for-2024/"><u>[Updated] The Subscriber Sequence  Strategizing Success on YouTube for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/crucial-top-5-compact-action-recorder-recommendations-for-2024/"><u>Crucial Top 5 Compact Action Recorder Recommendations for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-instant-title-insertion-for-your-videos-on-windows-photos/"><u>In 2024, Instant Title Insertion for Your Videos on Windows Photos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-pathways-of-file-formats-navigating-from-srt-to-others/"><u>2024 Approved  Pathways of File Formats  Navigating From SRT to Others</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-beginners-guide-to-professional-gif-creation/"><u>[New] 2024 Approved  A Beginner's Guide to Professional GIF Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-iphone-playlist-podcast-tips/"><u>In 2024, The Ultimate iPhone Playlist  Podcast Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-efficiently-isolate-key-moments-in-youtube-footage/"><u>[Updated] 2024 Approved  Efficiently Isolate Key Moments in YouTube Footage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-photo-perfection-highest-rated-phone-tripods/"><u>In 2024, Photo Perfection  Highest Rated Phone Tripods</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-complete-tiktok-termination-protocol-unveiled/"><u>[Updated] In 2024, Complete TikTok Termination Protocol Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-ultimate-guide-to-bandicam-navigating-its-full-potential/"><u>In 2024, The Ultimate Guide to Bandicam  Navigating Its Full Potential</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-budgeting-for-effective-youtube-marketing/"><u>2024 Approved  Budgeting for Effective YouTube Marketing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-grow-to-1k-per-month-master-the-art-of-ig-popularity/"><u>[New] Grow to 1K Per Month  Master the Art of IG Popularity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-merge-movies-on-youtube-compilation/"><u>[New] 2024 Approved  Merge Movies on YouTube Compilation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-8-criteria-when-expanding-your-4k-setup/"><u>2024 Approved  Top 8 Criteria When Expanding Your 4K Setup</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pioneering-the-digital-universe-the-present-and-future-landscape/"><u>2024 Approved  Pioneering the Digital Universe  The Present & Future Landscape</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-top-10-techniques-for-youtube-to-mpeg-conversion/"><u>In 2024, Top 10 Techniques for YouTube-to-MPEG Conversion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-syncing-soundtracks-the-apple-way/"><u>[Updated] Syncing Soundtracks  The Apple Way</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-transfergenius-gurus-viewpoint/"><u>2024 Approved  TransferGenius Gurus' Viewpoint</u></a></li>
+</ul></div>

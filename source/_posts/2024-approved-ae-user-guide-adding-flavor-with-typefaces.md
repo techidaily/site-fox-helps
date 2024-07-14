@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  AE User Guide  Adding Flavor with Typefaces\""
-date: 2024-06-25T19:55:00.309Z
-updated: 2024-06-26T19:55:00.309Z
+date: 2024-07-13T19:04:04.298Z
+updated: 2024-07-14T19:04:04.298Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,9 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 * For adding the Adobe Fonts to After Effects, you will first need to enable them by signing in to the Creative Cloud application on your desktop. To do that, first, open the Creative Cloud, navigate to Assets, and click on Fonts.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
 
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
@@ -43,12 +46,18 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -96,6 +105,9 @@ These features also include adding texts and changing the fonts of those texts o
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -132,3 +144,41 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-itel-p40-lock-screen-password-by-drfone-android/"><u>How to Reset your Itel P40 Lock Screen Password</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-boost-camera-output-retain-excellent-clarity/"><u>[Updated] 2024 Approved  Boost Camera Output, Retain Excellent Clarity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-beginners-primer-on-virtual-reality-concepts/"><u>2024 Approved  A Beginner's Primer on Virtual Reality Concepts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-best-10-shopping-sites-to-customize-your-gift-boxes/"><u>[Updated] 2024 Approved  Best 10 Shopping Sites to Customize Your Gift Boxes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-by-step-assistance-how-to-add-and-customize-ringtones-and-sounds-in-android-for-2024/"><u>[Updated] Step-by-Step Assistance  How To Add and Customize Ringtones & Sounds in Android for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-xiaomi-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Xiaomi FRP</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/vives-discomfort-follow-these-motion-sickness-fixes-for-2024/"><u>Vive's Discomfort? Follow These Motion Sickness Fixes for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-oneplus-nord-ce-3-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide OnePlus Nord CE 3 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-discovering-easy-music-arrangement-in-magix-maker-for-2024/"><u>[Updated] Discovering Easy Music Arrangement in Magix Maker for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/augmented-reality-aesthetics-tapping-into-free-lut-resources-for-ar/"><u>Augmented Reality Aesthetics  Tapping Into Free LUT Resources for AR</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-oneplus-ace-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-premium-selection-top-15-cameras-for-action/"><u>[Updated] Premium Selection  Top 15 Cameras for Action</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-drone-purchasing-made-easy-a-step-by-step-buyers-guide/"><u>[Updated] 2024 Approved  Drone Purchasing Made Easy  A Step-by-Step Buyer’s Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-depth-tutorial-enhancing-meeting-experience-in-zoom-win10/"><u>[Updated] In-Depth Tutorial  Enhancing Meeting Experience in Zoom (Win10)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-beyond-illusion-vr-timeline-explored-for-2024/"><u>[Updated] Beyond Illusion  VR Timeline Explored for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-laughing-moments-crafting-with-adobe/"><u>[Updated] In 2024, Laughing Moments  Crafting with Adobe</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-revolutionizing-your-visuals-with-expert-color-techniques/"><u>[Updated] In 2024, Revolutionizing Your Visuals with Expert Color Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expertise-acquiring-the-best-unboxing-tunes-and-melodies-for-2024/"><u>[Updated] Expertise  Acquiring the Best Unboxing Tunes and Melodies for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-zte-nubia-flip-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost ZTE Nubia Flip 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-facebook-hashtags-for-strategic-marketing/"><u>2024 Approved  Mastering Facebook Hashtags for Strategic Marketing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-melodic-alerts-downloading-and-altering-tamil-tunes/"><u>[Updated] 2024 Approved  Melodic Alerts  Downloading and Altering Tamil Tunes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-financial-investment-for-youtube-ads-success/"><u>[Updated] Financial Investment for Youtube Ads Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-secrets-of-iphone-hdr-for-2024/"><u>[Updated] Unraveling the Secrets of iPhone HDR for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gigglegif-builder/"><u>2024 Approved  GiggleGif Builder</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-funimate-decoded-a-step-by-step-journey-for-2024/"><u>[Updated] Funimate Decoded  A Step-by-Step Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-masterclass-in-image-detail-removing-obscuring-elements-with-photopea/"><u>[Updated] In 2024, Masterclass in Image Detail  Removing Obscuring Elements with Photopea</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-become-a-video-quality-guru-with-vce-22-knowledge/"><u>[Updated] 2024 Approved  Become a Video Quality Guru with VCE 2.2 Knowledge</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-av1-decoding-for-newcomers/"><u>[Updated] In 2024, AV1 Decoding for Newcomers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-10-text-tools-elevating-creative-compositions/"><u>Top 10 Text Tools Elevating Creative Compositions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-lava-yuva-2-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Lava Yuva 2</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-ultimatesoundedit-pro-professional-pc-film-crafting/"><u>In 2024, UltimateSoundEdit Pro  Professional PC Film Crafting</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-iphone-11-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On iPhone 11 without Password?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-boost-production-with-final-cut-pros-top-10-tools-for-2024/"><u>[Updated] Boost Production with Final Cut Pro's Top 10 Tools for 2024</u></a></li>
+</ul></div>

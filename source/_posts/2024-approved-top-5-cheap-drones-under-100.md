@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Top 5 Cheap Drones Under $100\""
-date: 2024-06-25T19:05:59.523Z
-updated: 2024-06-26T19:05:59.523Z
+date: 2024-07-13T18:06:23.673Z
+updated: 2024-07-14T18:06:23.673Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,11 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 ## Under a Hundred Bucks? Here's Your Top 5 Drones
 
-# Top 5 Cheap Drones Under $100 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 5 Cheap Drones Under $100
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -36,7 +40,11 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 ## Top 5 Cheap Drones Under $100
 
-#### 1\. Hubsan X4: $30.00 ![hubsan x4](https://images.wondershare.com/filmora/article-images/hubsan-x4.jpg)
+#### 1\. Hubsan X4: $30.00
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![hubsan x4](https://images.wondershare.com/filmora/article-images/hubsan-x4.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00IZC6C8E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00IZC6C8E&linkId=6e947c2969fe9c7c476e5c5356605e8b)
 
@@ -49,7 +57,8 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 **Recommendation:** If we consider the price point as major factor then you will never get such an impressive collection of features with such a lower price tag. It is lighter in weight and can spend 5 to 7 minutes in air. The best part is that it takes only 15 minutes to get fully charged. Precision 6 axis type gyro stabilization is added and it works with 4 channel type 2.4 GHz control, that means you will be able to enjoy disturbance free flights. The additional LED lights can help users to enjoy impressive night hour flights.
 
-#### 2\. Syma X8C: $69.75 ![syma x8c](https://images.wondershare.com/filmora/article-images/syma-x8c.jpg)
+#### 2\. Syma X8C: $69.75
+![syma x8c](https://images.wondershare.com/filmora/article-images/syma-x8c.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00VQVO6W0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00VQVO6W0&linkId=b8805debdd93341af90869c79312aa11)
 
@@ -61,7 +70,11 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 **Recommendation:** Syma is well known for its series of stunning drone devices. Syma X8C is designed with appearance very close to DJI phantom but it comes under the category of heavy quadcopters as its maximum weight can go up to 601 grams along with battery and camera. The supported flight duration is 12 minutes and maximum distance coverage can go up to 200 meters. You will be able to access 2MP FPV type Wi-Fi camera support with this drone; one can expect great image quality as well as acceptable footage from this unit. As it is designed with advanced wind resistant material so it can stay stable during flights taken at tough weather points.
 
-#### 3\. MJX X400: $89.99 ![mjx x400](https://images.wondershare.com/filmora/article-images/mjx-x400.jpg)
+#### 3\. MJX X400: $89.99
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![mjx x400](https://images.wondershare.com/filmora/article-images/mjx-x400.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01AWBEGJ2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01AWBEGJ2&linkId=21b26bd746a43597f4921aa39f7159f8)
 
@@ -74,7 +87,11 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 **Recommendation:** MJX X400 device is designed with 6 axis type Gyro flying control mechanism that leads to stable and improved picture quality. This drone can spend 8 to 9 minutes in air and can go up to 100 meters distance. FPV mode allows users to make direct connection between their phones so that complete view of drone camera can be obtained on smartphone screen on real time basis. It will take 120 minutes to get completely charged. Most of people love to use this camera for capturing memories at family events, parties and during adventure sports activities.
 
-#### 4\. UDI U818A-HD: $54.48 ![udi u818a-hd](https://images.wondershare.com/filmora/article-images/udi-u81a.jpg)
+#### 4\. UDI U818A-HD: $54.48
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![udi u818a-hd](https://images.wondershare.com/filmora/article-images/udi-u81a.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B0108UXWK6/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0108UXWK6&linkId=a82a0c95031a1feeb0d157b675f10c8e)
 
@@ -87,7 +104,8 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
 **Recommendation:** This device supports maximum flight duration of 7 to 9 minutes whereas average charging time is 90 to 120 minutes only. Users will love to explore it’s in flight type trim controls such as yaw, roll and pitch. The forward facing camera makes it easier and simple to use. You will be able to buy this drone with essential accessories that includes 2 batteries, chargers and MicroSD card.
 
-#### 5\. Cheerson CX -10W: $36.50 ![cheerson cx](https://images.wondershare.com/filmora/article-images/cheerson-cx.jpg)
+#### 5\. Cheerson CX -10W: $36.50
+![cheerson cx](https://images.wondershare.com/filmora/article-images/cheerson-cx.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00KXZC762/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00KXZC762&linkId=625321c8d08a4d384e95a6d35b24159a)
 
@@ -129,3 +147,45 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/ios-device-integration-with-android-images-for-2024/"><u>IOS Device Integration with Android Images for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-how-to-use-microsoft-azure-speech-to-text-service/"><u>[New] 2024 Approved  How to Use Microsoft Azure Speech to Text Service</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-action-reel-extravaganza-7-premium-4k-cameras/"><u>[New] Action Reel Extravaganza  7 Premium 4K Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-face-fluidity-masterclass-perfecting-the-art-of-motion-blur-via-picsart/"><u>2024 Approved  Face Fluidity Masterclass  Perfecting the Art of Motion Blur via Picsart</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-blueprint-for-successful-biographies-top-tips-and-techniques-from-experts/"><u>The Blueprint for Successful Biographies  Top Tips & Techniques From Experts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-investment-guidelines-for-effective-youtube-campaigns/"><u>2024 Approved  Investment Guidelines for Effective YouTube Campaigns</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-elite-choices-in-total-sweep-cinematography/"><u>In 2024, Elite Choices in Total Sweep Cinematography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-efficiently-redistributing-your-creative-works/"><u>[Updated] Efficiently Redistributing Your Creative Works</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-gamers-guide-to-boosting-pc-speed-controls/"><u>[Updated] In 2024, The Gamer's Guide to Boosting PC Speed Controls</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-creativity-on-chrome-os-top-10-digital-pencil-stores/"><u>In 2024, Enhance Creativity on Chrome OS  Top 10 Digital Pencil Stores</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-master-the-art-of-choosing-high-end-hdr-cameras/"><u>In 2024, Master the Art of Choosing High-End HDR Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-in-depth-look-at-auditory-cutting-techniques/"><u>In 2024, In-Depth Look at Auditory Cutting Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-craft-professional-edits-with-story-remix-in-windows-photos-app/"><u>[New] 2024 Approved  Craft Professional Edits with Story Remix in Windows Photos App</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-from-apple-iphone-xs-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password From Apple iPhone XS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-streamline-audio-podcasts-made-easy-for-iphones/"><u>[Updated] In 2024, Streamline Audio  Podcasts Made Easy for iPhones</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-the-most-efficient-techniques-for-you-to-make-3d-animation-character-for-2024/"><u>New The Most Efficient Techniques for You to Make 3D Animation Character for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-ultimate-guide-to-cinematography-on-youtube/"><u>The Ultimate Guide to Cinematography on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-recommendation-best-websites-to-download-classical-ringtones/"><u>[Updated] Recommendation  Best Websites to Download Classical Ringtones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-sifting-through-time-a-guide-to-twitter-archives/"><u>[Updated] 2024 Approved  Sifting Through Time  A Guide to Twitter Archives</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/creating-convincing-news-final-buzzes-for-2024/"><u>Creating Convincing News Final Buzzes for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-how-to-create-custom-titles-in-final-cut-pro-x-2023-update/"><u>Updated How to Create Custom Titles in Final Cut Pro X 2023 Update</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-easy-path-to-engaging-animation-in-your-videos/"><u>[Updated] The Easy Path to Engaging Animation in Your Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-m1-computation-face-off-lightweight-vs-robust-designs/"><u>In 2024, M1 Computation Face-Off  Lightweight vs Robust Designs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-quintessential-5-photo-background-changer-apps-iphone-xplus/"><u>[Updated] In 2024, Quintessential 5 Photo Background Changer Apps (iPhone X+)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/googles-ar-stickers-usage-and-options-beyond/"><u>Google's AR Stickers  Usage & Options Beyond</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-tricks-to-faster-periscope-live-feeds/"><u>In 2024, Tricks to Faster Periscope Live Feeds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-direct-upload-photos-and-videos-from-pc-to-iphone/"><u>[New] 2024 Approved  Direct Upload  Photos & Videos From PC to iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exploring-asmrs-role-in-better-sleep-cycles/"><u>Exploring ASMR's Role in Better Sleep Cycles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leading-stock-tutorials-channel-roundup/"><u>[Updated] Leading Stock Tutorials  Channel Roundup</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expedient-techniques-to-spot-and-expel-deceptive-insta-connections/"><u>[New] Expedient Techniques to Spot and Expel Deceptive Insta Connections</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-evaluating-magix-multimedia-software/"><u>In 2024, Evaluating MAGIX Multimedia Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-assemble-movies-into-efficient-watchlists/"><u>In 2024, Assemble Movies Into Efficient Watchlists</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-shimmer-shots-the-art-of-setting-the-scene-with-light/"><u>[Updated] Shimmer Shots  The Art of Setting the Scene with Light</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-tastebudstribe-leading-foodie-influencers/"><u>[Updated] TasteBudsTribe  Leading Foodie Influencers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-streamline-your-creative-process-with-instagrams-audio-features/"><u>In 2024, Streamline Your Creative Process with Instagram's Audio Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ideal-programs-for-vector-drawing-and-design-mastery/"><u>In 2024, Ideal Programs for Vector Drawing and Design Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/extreme-sports-gopro-vs-star-sj7-comparison/"><u>Extreme Sports  GoPro Vs Star SJ7 Comparison</u></a></li>
+</ul></div>

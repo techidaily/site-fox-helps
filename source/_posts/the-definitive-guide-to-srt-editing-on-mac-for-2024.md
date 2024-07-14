@@ -1,7 +1,7 @@
 ---
 title: "The Definitive Guide to SRT Editing on Mac for 2024"
-date: 2024-06-25T19:35:12.692Z
-updated: 2024-06-26T19:35:12.692Z
+date: 2024-07-13T18:40:45.621Z
+updated: 2024-07-14T18:40:45.621Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,9 @@ The SRT file is typically a plain text-based file with time markers, sequence nu
 
 However, the QuickTime player on Mac does not always support SRT in videos. You have to convert them to a format the QuickTime Player supports or utilize a third-party **SRT editor Mac** allows.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: What Programs can open SRT Files on Mac, and How to do it?
 
 Indeed, you have to install specific types of software on your Mac device if you want to **SRT edit Mac-**based videos. Specific programs support the SRT file in media files on Mac devices. You must use these tools separately to open and edit the SRT file.
@@ -78,6 +81,9 @@ Continue the same steps for the next few caption sequences.
 
 Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + Command + T keys on the keyboard.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click the format tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-2.jpg)
 
 Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
@@ -367,6 +373,9 @@ Step1 Open HappyScribe through your preferred browser. Press the Upload a File o
 
 Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
 
 Step3 Make changes to the text color, caption, position, and font, as needed.
@@ -421,6 +430,9 @@ The software comes with various standard-level and advanced editing functions, i
 
 Step1 Launch Filmora on Mac and click on New Project. Add the video file and drag it to the timeline for editing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
 
 Step2 Click on the Media tab and import the SRT file.
@@ -474,3 +486,50 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/from-pixels-to-power-the-ultra-hd-world-of-samsung-ue590/"><u>From Pixels to Power  The Ultra HD World of Samsung UE590</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-inaugural-zooid-creations-ranked/"><u>2024 Approved  Inaugural Zooid Creations Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimizing-large-scale-video-migrations-from-iphone-to-mac-systems/"><u>2024 Approved  Optimizing Large-Scale Video Migrations From iPhone to Mac Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-learn-how-to-obtain-fee-free-pictorial-entertainment/"><u>2024 Approved  Learn How To Obtain Fee-Free Pictorial Entertainment</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-vivo-y55s-5g-2023-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Vivo Y55s 5G (2023)?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-motion-blur-in-ps-a-step-by-step-guide/"><u>2024 Approved  Mastering Motion Blur in PS  A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>2024 Approved  Hero5 Black Vs. Yi 4K  Which Takes the Crown in Action Cam War?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-choice-5-sound-devices-for-streamers/"><u>Ultimate Choice 5 Sound Devices for Streamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-picture-in-picture-pro-optimizing-your-viewing-with-netflixs-floating-window-feature/"><u>2024 Approved  Picture-in-Picture Pro  Optimizing Your Viewing with Netflix's Floating Window Feature</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-vimeo-record-features/"><u>[Updated] 2024 Approved  The Ultimate Guide to Vimeo Record Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-introduction-to-av1-encoding-techniques/"><u>2024 Approved  Introduction to AV1 Encoding Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-exemplary-melodies-set-for-visual-narratives/"><u>2024 Approved  Exemplary Melodies Set for Visual Narratives</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elevate-your-media-projects-utilizing-story-remix-in-windows-photos/"><u>2024 Approved  Elevate Your Media Projects  Utilizing Story Remix in Windows Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-boosting-yi-4k-action-recording-accessory-musts/"><u>2024 Approved  Boosting YI 4K Action Recording  Accessory Musts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-capture-and-keep-your-linkedin-content-with-these-6-powerful-apps/"><u>2024 Approved  Capture & Keep Your LinkedIn Content with These 6 Powerful Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-balancing-iphone-hd-video-with-premiere-pros-exposure-control/"><u>2024 Approved  Balancing iPhone HD Video with Premiere Pro’s Exposure Control</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-open-source-gaming-soundtracks-library/"><u>2024 Approved  Open Source Gaming Soundtracks Library</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-maximize-your-snapshots-on-android/"><u>2024 Approved  Maximize Your Snapshots on Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-perfect-photo-placement-on-windows-machines/"><u>2024 Approved  Perfect Photo Placement on Windows Machines</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-assortment-professional-webcam-platforms/"><u>2024 Approved  Best Assortment  Professional Webcam Platforms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-instagram-the-8-best-timers-for-iphoneandroid-users-for-2024/"><u>[Updated] Mastering Instagram  The 8 Best Timers for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovating-messaging-sounds-a-guide-to-downloading-and-personalizing-whatsapp-ringtones/"><u>2024 Approved  Innovating Messaging Sounds  A Guide to Downloading & Personalizing WhatsApp Ringtones</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-strategies-to-maintain-synchronization-between-cameras-and-streaming-software/"><u>2024 Approved  Strategies to Maintain Synchronization Between Cameras and Streaming Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cinema-kings-and-queens-iphones-leading-8-freepluspaid-watching-options/"><u>2024 Approved  Cinema Kings & Queens  IPhone's Leading 8 FREE+Paid Watching Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-essential-strategies-for-acquiring-photo-and-video-backdrops/"><u>2024 Approved  Essential Strategies for Acquiring Photo & Video Backdrops</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-windows-10-features-for-seamless-video-editing/"><u>2024 Approved  Navigating Windows 10 Features for Seamless Video Editing</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-honor-magic-5-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Honor Magic 5 Pro FRP Without Computer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-ideal-approaches-to-correct-iphone-hdr-overexposure-in-adobe-premiere/"><u>2024 Approved  [Expert] Ideal Approaches to Correct iPhone HDR Overexposure in Adobe Premiere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-character-choreography-compendiums/"><u>2024 Approved  Character Choreography Compendiums</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-high-speed-sd-accessory-for-sony-a7c-model/"><u>2024 Approved  High-Speed SD Accessory for Sony A7C Model</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-intimate-game-viewing-a-closer-look-at-roblox-worlds/"><u>2024 Approved  Intimate Game Viewing  A Closer Look at Roblox Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-3d-text-a-step-by-step-guide-to-adobe-illustrator/"><u>2024 Approved  Crafting 3D Text  A Step-by-Step Guide to Adobe Illustrator</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-step-by-step-guide-to-instagram-image-uploads/"><u>[New] In 2024, Step-by-Step Guide to Instagram Image Uploads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhancing-your-interview-impact-and-credibility/"><u>2024 Approved  Enhancing Your Interview Impact and Credibility</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-comical-creations-no-cost-memes-available/"><u>2024 Approved  Comical Creations  No Cost Memes Available</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-sustainable-filmmaking-aids-at-no-charge/"><u>In 2024, Sustainable Filmmaking Aids at No Charge</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-key-steps-in-manipulating-song-pace-in-spotify-app/"><u>2024 Approved  Key Steps in Manipulating Song Pace in Spotify App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-easy-to-follow-action-cam-buyers-blueprint-23/"><u>2024 Approved  Easy-to-Follow Action Cam Buyers’ Blueprint '23</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-shopping-spree-to-stardom-editing-your-haul-video/"><u>2024 Approved  From Shopping Spree to Stardom  Editing Your Haul Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-master-organization-with-mematics-toolkit/"><u>2024 Approved  Master Organization with Mematic's Toolkit</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/shining-a-light-top-photo-illumination-hacks/"><u>Shining a Light  Top Photo Illumination Hacks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pazera-unchained-master-your-music-extraction-techniques/"><u>2024 Approved  Pazera Unchained  Master Your Music Extraction Techniques</u></a></li>
+</ul></div>

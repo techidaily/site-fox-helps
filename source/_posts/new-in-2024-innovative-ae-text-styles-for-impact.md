@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Innovative AE Text Styles for Impact"
-date: 2024-06-25T18:45:44.584Z
-updated: 2024-06-26T18:45:44.584Z
+date: 2024-07-13T17:42:44.603Z
+updated: 2024-07-14T17:42:44.603Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,9 @@ There are unlimited text presets available on After Effects and for a beginner, 
 
 The glitch text effects are extremely common in today's videos as they instantly draw the attention of the viewers and offer a retro feel. In this text presents, you get 30 different glitch text effect animations that you can use for titles as well as in-body texts. You get to choose from 32 glitch maps for creative and refreshing text effects for your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![glitch text effects preset](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effects-preset.jpg)
 
 ### 2\. Motion Type Text Animation Preset
@@ -138,6 +141,9 @@ Step3Go to Titles and you will see different categories of text effects on the l
 
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
 ## Conclusion
@@ -150,10 +156,25 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 * [Part 3\. Alternative Way to Create Text Effects for Video](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. Best 10 Text Presets for After Effects
 
 There are unlimited text presets available on After Effects and for a beginner, it can be quite time-consuming to go through all of them and get confused about which one to pick. To make things easier for beginners, we are listing down the best 10 text presets After Effects free and paid for instant selection for their video projects.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Glitch Text Effects
 
 The glitch text effects are extremely common in today's videos as they instantly draw the attention of the viewers and offer a retro feel. In this text presents, you get 30 different glitch text effect animations that you can use for titles as well as in-body texts. You get to choose from 32 glitch maps for creative and refreshing text effects for your videos.
@@ -285,3 +306,60 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/in-2024-gain-1000-followers-on-youtube-with-agile-strategies/"><u>In 2024, Gain 1,000 Followers on YouTube with Agile Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-nikon-z6i-vs-d7500-in-depth-comparison/"><u>2024 Approved  Nikon Z6I vs D7500 In-Depth Comparison</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-asus-rog-phone-7-by-drfone-android/"><u>In 2024, How to Bypass FRP on Asus ROG Phone 7?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-healthcare-marketing-mastering-fb-ad-strategies/"><u>2024 Approved  Healthcare Marketing  Mastering FB Ad Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-bring-pics-into-action-blur-technique/"><u>2024 Approved  Bring Pics Into Action  Blur Technique</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-perfect-slideshow-software-for-iphone-fi-and-pro-max/"><u>2024 Approved  Perfect Slideshow Software For iPhone Fi & Pro Max</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pro-slow-motion-selecting-the-best-mobile-camera-apps/"><u>2024 Approved  Pro Slow Motion  Selecting the Best Mobile Camera Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-breaking-down-the-science-behind-green-screen-filmmaking-for-starters/"><u>2024 Approved  Breaking Down the Science Behind Green Screen Filmmaking for Starters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-auditory-ambiance-within-visual-mediums/"><u>2024 Approved  Auditory Ambiance Within Visual Mediums</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-explore-uncharted-territories-with-these-iphone-vr-apps/"><u>2024 Approved  Explore Uncharted Territories with These iPhone VR Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-analog-to-digital-srt-conversion-into-modern-audio-standards/"><u>2024 Approved  From Analog to Digital  SRT Conversion Into Modern Audio Standards</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-eliminating-nausea-in-virtual-worlds/"><u>2024 Approved  Eliminating Nausea in Virtual Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-how-long-does-a-20mb-video-last/"><u>2024 Approved  How Long Does a 20MB Video Last?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-constructing-the-ideal-home-computer-for-advanced-video-editing/"><u>2024 Approved  Constructing the Ideal Home Computer for Advanced Video Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ignite-interest-with-your-own-solo-podcast-series/"><u>2024 Approved  Ignite Interest with Your Own Solo Podcast Series</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dive-deep-into-the-latest-upgrades-in-lgs-visionary-360-series/"><u>2024 Approved  Dive Deep Into the Latest Upgrades in LG's Visionary 360 Series</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/audio-alchemy-instagram-video-to-mp3-a-compreayers-guide-for-2024/"><u>Audio Alchemy  Instagram Video to Mp3 - A Compreayer's Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-clearer-views-the-top-10-online-photo-fixes/"><u>2024 Approved  Clearer Views  The Top 10 Online Photo Fixes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-beyond-mainstream-a-list-of-6-exclusive-icon-and-logo-providers/"><u>[New] Beyond Mainstream  A List of 6 Exclusive Icon & Logo Providers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-future-of-cloud-storages-top-picks-to-consider-for-2024/"><u>The Future of Cloud Storages  Top Picks to Consider for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-strategies-for-safe-and-significant-view-increase-for-2024/"><u>[Updated] Strategies for Safe and Significant View Increase for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-subtitle-manipulators-the-top-10-list-online/"><u>2024 Approved  Best Subtitle Manipulators - The Top 10 List (Online)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-breaking-barriers-on-frozen-grounds-olympic-snowboard-speed-showdown/"><u>2024 Approved  Breaking Barriers on Frozen Grounds - Olympic Snowboard Speed Showdown</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-making-photographs-larger-without-losing-quality/"><u>2024 Approved  Making Photographs Larger Without Losing Quality</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-discovering-the-best-voice-altering-software-for-google-meet-as-for-2024/"><u>Updated Discovering the Best Voice-Altering Software for Google Meet As for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-iphone-picture-perfection-mastering-resolution-shifts/"><u>2024 Approved  IPhone Picture Perfection  Mastering Resolution Shifts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-acclaimed-pioneers-premier-instragram-highlight-makers/"><u>[Updated] In 2024, Acclaimed Pioneers  Premier Instragram Highlight Makers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-decoding-the-mystery-of-smooth-iphone-images-four-ways/"><u>2024 Approved  Decoding the Mystery of Smooth iPhone Images (Four Ways)</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-oppo-find-x6-pro-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enthusiastic-welcome-to-loginlogout/"><u>2024 Approved  Enthusiastic Welcome to Login/Logout</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-guide-to-elevating-your-chat-pin-messages-in-discord/"><u>2024 Approved  Guide to Elevating Your Chat  Pin Messages in Discord</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-economical-dslrs-and-camcorders-4k-edition/"><u>2024 Approved  Economical DSLRs & Camcorders, 4K Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-harnessing-external-light-for-cozy-interior-spaces/"><u>2024 Approved  Harnessing External Light for Cozy Interior Spaces</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elite-gear-high-performance-unmatched-style/"><u>2024 Approved  Elite Gear  High Performance, Unmatched Style</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elevate-your-artistry-unveiling-timelapse-magic-with-gopro/"><u>2024 Approved  Elevate Your Artistry  Unveiling Timelapse Magic with GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-fine-tuning-the-small-scenes-of-minecraft/"><u>2024 Approved  Fine-Tuning the Small Scenes of Minecraft</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-how-to-for-clearer-youtube-footage/"><u>The Ultimate How-To for Clearer YouTube Footage</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-bite-the-dessert-bullet-tiktoks-sweetest-treats/"><u>2024 Approved  Bite the Dessert Bullet  TikTok's Sweetest Treats</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-top-20-effortless-trending-tiktok-dance-moves/"><u>[Updated] 2024 Approved  Top 20 Effortless Trending TikTok Dance Moves</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-journey-through-windows-11s-latest-software/"><u>In 2024, Journey Through Windows 11'S Latest Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-capturing-excellence-a-full-breakdown-of-sj-cam-s6/"><u>2024 Approved  Capturing Excellence  A Full Breakdown of SJ-CAM S6</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-how-much-does-pewdiepie-make/"><u>2024 Approved  How Much Does PewDiePie Make</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2023-top-6-facebook-lite-video-downloaders-for-2024/"><u>[New] 2023 | Top 6 Facebook Lite Video Downloaders for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-effortless-passport-photo-creation-get-10-free-images-instantly/"><u>2024 Approved  Effortless Passport Photo Creation – Get 10 FREE Images Instantly</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-10-best-free-video-upload-sites-for-online-presence-and-visibility/"><u>Updated 2024 Approved 10 Best Free Video Upload Sites for Online Presence and Visibility</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gopro-shootout-max-360-vs-hero-11-performance-analysis/"><u>2024 Approved  GoPro Shootout  Max 360 vs Hero 11 Performance Analysis</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-free-video-stabilizer-roundup-the-best-options-for-2024/"><u>New Free Video Stabilizer Roundup The Best Options for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-behind-the-scenes-of-eco-friendly-visual-tricks-in-media/"><u>2024 Approved  Behind the Scenes of Eco-Friendly Visual Tricks in Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-soundscape-dilution-via-audacity-tools/"><u>2024 Approved  Navigating Soundscape Dilution via Audacity Tools</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enhancing-your-nba-viewing-with-smart-techniques/"><u>Enhancing Your NBA Viewing with Smart Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-perfect-picture-pro-the-best-phones-for-uncompromised-4k-video-quality/"><u>2024 Approved  Perfect Picture Pro  The Best Phones for Uncompromised 4K Video Quality</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-fine-tuning-zoom-visuals-top-techniques/"><u>2024 Approved  Fine-Tuning Zoom Visuals  Top Techniques</u></a></li>
+</ul></div>

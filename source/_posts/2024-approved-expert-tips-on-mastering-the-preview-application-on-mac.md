@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Expert Tips on Mastering the Preview Application on Mac\""
-date: 2024-07-03T13:07:35.331Z
-updated: 2024-07-04T13:07:35.332Z
+date: 2024-07-13T18:31:03.237Z
+updated: 2024-07-14T18:31:03.237Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,9 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -79,6 +82,9 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -91,6 +97,9 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -123,6 +132,9 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -207,3 +219,52 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/the-perfect-blend-combining-6-effective-video-genres/"><u>The Perfect Blend  Combining 6 Effective Video Genres</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/the-best-youtube-to-mp3-converters-in-depth-reviews-and-comparisons-for-2024/"><u>The Best YouTube to MP3 Converters In-Depth Reviews and Comparisons for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlocking-whatsapp-wizardry-your-essential-guide/"><u>[New] In 2024, Unlocking WhatsApp Wizardry  Your Essential Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-quintessential-stop-motion-films-a-top-15-list/"><u>[Updated] 2024 Approved  Quintessential Stop-Motion Films  A Top 15 List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-penning-perfectly-captivating-podcast-descriptions/"><u>[New] 2024 Approved  Penning Perfectly Captivating Podcast Descriptions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-expert-insights-streamlining-filters-integration-in-media-production/"><u>[New] In 2024, Expert Insights  Streamlining Filters Integration in Media Production</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/debunking-myths-5-little-known-truths-about-the-16x9-ratio-calculator/"><u>Debunking Myths 5 Little-Known Truths About the 16X9 Ratio Calculator</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-huawei-by-drfone-android/"><u>How to Bypass FRP on Huawei?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-pinnacle-guide-to-uncomplicated-online-live-streams/"><u>[Updated] In 2024, The Pinnacle Guide to Uncomplicated Online Live Streams</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/engineering-a-memorable-trailer-narrative/"><u>Engineering a Memorable Trailer Narrative</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-shoot-with-clarity-capture-immersive-experiences-9-essentials/"><u>[Updated] In 2024, Shoot with Clarity, Capture Immersive Experiences (9 Essentials)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/stability-secrets-for-dynamic-photo-shoots-for-2024/"><u>Stability Secrets for Dynamic Photo Shoots for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-narrative-nexus-cutting-edge-storytelling-channels-of-the-year/"><u>[Updated] In 2024, Narrative Nexus  Cutting-Edge Storytelling Channels of the Year</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-swiftly-secure-your-favorite-tiktoks/"><u>[New] 2024 Approved  Swiftly Secure Your Favorite TikToks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-achieving-effortless-seams-in-inshot-videos-for-2024/"><u>[Updated] Achieving Effortless Seams in Inshot Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-comparative-look-at-samsung-photo-tools-for-2024/"><u>[New] A Comparative Look at Samsung Photo Tools for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/no-budget-no-problem-here-are-the-best-vfx-pages/"><u>No Budget? No Problem! Here Are the Best VFX Pages</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-heard-words-spoken-ideas-no-price-for-2024/"><u>[Updated] Heard Words, Spoken Ideas – No Price for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unlocking-your-creative-potential-with-picsart-2024-edition/"><u>[New] Unlocking Your Creative Potential with PicsArt 2024 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/panasonics-hx-a1-the-wearable-action-camera-revealed/"><u>Panasonic’s HX-A1 - The Wearable Action Camera Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exploring-androids-lightroom-app-an-in-depth-analysis/"><u>[New] Exploring Android's Lightroom App  An In-Depth Analysis</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-ultimate-twitter-video-sizing-cheat-sheet-aspect-ratio-included/"><u>Updated 2024 Approved The Ultimate Twitter Video Sizing Cheat Sheet Aspect Ratio Included</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafting-captivating-podcasts-a-step-by-step-writing-guide/"><u>[New] Crafting Captivating Podcasts  A Step-by-Step Writing Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-quick-quality-edits-the-ultimate-guide-to-pixlr/"><u>[New] 2024 Approved  Quick, Quality Edits  The Ultimate Guide to Pixlr</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-androids-latest-advancements-for-immersive-video-viewing/"><u>[Updated] In 2024, Android's Latest Advancements for Immersive Video Viewing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-quieting-audio-tracks-for-serenity/"><u>[New] 2024 Approved  Quieting Audio Tracks for Serenity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-branding-mastery-securing-a-loyal-youtube-subscriber-base/"><u>[New] 2024 Approved  Channel Branding Mastery  Securing a Loyal YouTube Subscriber Base</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-revolutionize-your-visual-experience-top-10-4k-mac-displays-for-2024/"><u>[New] Revolutionize Your Visual Experience - Top 10 4K Mac Displays for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-vivo-y77t-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Vivo Y77t to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-superior-satire-and-smile-mixer-for-2024/"><u>[New] Superior Satire & Smile Mixer for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-quick-and-easy-the-top-ten-for-youtube-mpeg-transformation-for-2024/"><u>[New] Quick and Easy  The Top Ten for YouTube MPEG Transformation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-enhancing-iphones-in-night-mode-silhouettes/"><u>[Updated] 2024 Approved  Enhancing iPhones in Night Mode  Silhouettes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-skype-recording-top-10-picks-for-optimal-audio/"><u>[Updated] 2024 Approved  Skype Recording  Top 10 Picks for Optimal Audio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-expert-recommendations-top-8-free-srt-apps-reviewed-for-2024/"><u>[New] Expert Recommendations  Top 8 Free SRT Apps Reviewed for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-art-of-duality-mastering-image-turnover-on-social-media-giants-for-2024/"><u>The Art of Duality  Mastering Image Turnover on Social Media Giants for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-iphone-hacks-filming-and-modifying-lengthy-video-sequences/"><u>[New] IPhone Hacks  Filming & Modifying Lengthy Video Sequences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-360-degree-cams-face-off-the-ultimate-test/"><u>[New] In 2024, 360 Degree Cams Face-Off  The Ultimate Test</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-shooting-in-the-dark-elevating-iphone-photos-with-shadows/"><u>[Updated] 2024 Approved  Shooting in the Dark  Elevating iPhone Photos with Shadows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-lure-inducing-title-engineer-for-2024/"><u>[New] Lure-Inducing Title Engineer for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/premier-select-mac-dvd-editors/"><u>Premier Select Mac DVD Editors</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-honor-magic-6-lite-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor Magic 6 Lite FRP Without Computer</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mind-mavens-top-10-educational-youtube-hubs/"><u>2024 Approved  Mind Mavens  Top 10 Educational YouTube Hubs</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-effortless-webm-to-mp3-conversion-top-10-solutions/"><u>Updated 2024 Approved Effortless WebM to MP3 Conversion Top 10 Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-optimal-room-decorations-for-livestreams/"><u>[Updated] In 2024, Optimal Room Decorations for Livestreams</u></a></li>
+</ul></div>

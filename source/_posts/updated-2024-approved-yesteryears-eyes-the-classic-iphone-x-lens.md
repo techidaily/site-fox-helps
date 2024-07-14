@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Yesteryear's Eyes  The Classic iPhone X Lens\""
-date: 2024-06-25T19:40:47.907Z
-updated: 2024-06-26T19:40:47.907Z
+date: 2024-07-13T18:47:19.407Z
+updated: 2024-07-14T18:47:19.407Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 ## Yesteryear's Eyes: The Classic iPhone X Lens
 
-# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -65,6 +66,9 @@ If there is not enough light or if you are too far away from the camera, the app
 
 **Price:** $3.99
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Compatible with:** iOS 8.0 or later ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
@@ -73,6 +77,9 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 
 **Price:** $3.99
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Compatible with:** iOS 8.0 or later ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
@@ -89,10 +96,16 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 **Price:** $1.99
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Compatible with:** iOS 8.0 or later ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -119,3 +132,45 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-picks-top-10-rated-gopro-cases-revisited/"><u>[Updated] 2024 Approved  Expert Picks - Top 10 Rated GoPro Cases Revisited</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-tracing-the-evolutionary-path-of-windows-movie-maker/"><u>[Updated] 2024 Approved  Tracing the Evolutionary Path of Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-illuminating-your-content-youtube-video-lighting-secrets/"><u>2024 Approved  Illuminating Your Content  YouTube Video Lighting Secrets</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-itel-p55-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Itel P55 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-delving-into-backward-image-analysis-techniques-for-fb-users/"><u>2024 Approved  Delving Into Backward Image Analysis Techniques for FB Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-secret-sauce-for-clearer-more-informative-youtube-videos-for-2024/"><u>The Secret Sauce for Clearer, More Informative YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-precision-and-power-top-5-text-plugins-for-after-effects-creativity-for-2024/"><u>[Updated] Precision and Power  Top 5 Text Plugins for After Effects Creativity for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-innovation-unveiled-5-cutting-edge-webcams-with-sound-tech-for-2024/"><u>[New] Innovation Unveiled  5 Cutting-Edge Webcams With Sound Tech for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-action-recorder-the-thievery-t5-edition/"><u>The Ultimate Action Recorder – The Thievery T5 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-tips-and-tricks-how-to-choose-a-winner-amongst-360-degree-cameras/"><u>[New] Tips & Tricks  How to Choose a Winner Amongst 360-Degree Cameras</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-stills-to-movement-examining-the-action-potential-of-camplus/"><u>2024 Approved  From Stills to Movement  Examining the Action Potential of Cam+</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-zoom-incorporating-video-effects-step-by-step-for-2024/"><u>[New] Mastering Zoom  Incorporating Video Effects Step by Step for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-the-moment-best-drone-footage-editing-tools-ranked/"><u>[Updated] In 2024, Mastering the Moment  Best Drone Footage Editing Tools Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-comprehensive-techniques-to-download-thousands-of-tiktok-videos/"><u>[Updated] 2024 Approved  Comprehensive Techniques to Download Thousands of TikTok Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/pixels-to-populations-best-windowsmac-software-conversion-for-2024/"><u>Pixels to Populations  Best Windows/Mac Software Conversion for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-soundtracking-dreams-an-overview-of-magix-fx/"><u>2024 Approved  Soundtracking Dreams  An Overview of Magix FX</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-comprehensive-review-of-9-iphone-photo-watermark-apps/"><u>[Updated] 2024 Approved  A Comprehensive Review of 9 iPhone Photo Watermark Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-stabilizing-high-flying-camera-work-a-guide/"><u>[New] Stabilizing High-Flying Camera Work  A Guide</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-searching-for-free-sports-streaming-sites-look-no-further/"><u>Updated 2024 Approved Searching for Free Sports Streaming Sites? Look No Further</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/reach-peaks-lead-lines-strategies-to-elevate-telegram-marketing-for-2024/"><u>Reach Peaks, Lead Lines  Strategies to Elevate Telegram Marketing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastermind-mind-games-trivia-channel-hunt-for-24/"><u>[New] Mastermind Mind Games - Trivia Channel Hunt for '24</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/launching-a-lucrative-channel-youtubes-most-accessible-biz-setups/"><u>Launching a Lucrative Channel  YouTube's Most Accessible Biz Setups</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-smoothshot-stabilizing-technology-on-the-move/"><u>[Updated] 2024 Approved  SmoothShot Stabilizing Technology on the Move</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transforming-song-words-into-visual-storytelling-with-lyric-video-maker/"><u>[New] Transforming Song Words Into Visual Storytelling with Lyric Video Maker</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-picks-user-friendly-software-for-new-game-recorders-and-editors/"><u>[Updated] Top Picks  User-Friendly Software for New Game Recorders & Editors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-listing-top-15-platforms-for-gopro-optimal-use/"><u>[Updated] Exclusive Listing  Top 15 Platforms for GoPro Optimal Use</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-steps-to-enhance-your-ability-as-an-effective-interviewer/"><u>[New] Steps to Enhance Your Ability as an Effective Interviewer</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-elite-identifying-top-15-global-tiktok-pioneers/"><u>The Elite  Identifying Top 15 Global TikTok Pioneers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/superior-extra-memory-solution-for-sony-a7c-for-2024/"><u>Superior Extra Memory Solution for Sony A7C for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-social-medias-food-scene-tiktoks-top-trends-for-2024/"><u>[New] Social Media's Food Scene  TikTok's Top Trends for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-greatest-11-child-safe-cameras-for-first-timer-kids/"><u>[New] The Greatest 11 Child-Safe Cameras for First-Timer Kids</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-how-to-create-your-own-subscribe-channel-graphics/"><u>In 2024, How to Create Your Own Subscribe Channel Graphics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-uncomplicated-process-altering-clown-fish-voices-in-winos/"><u>[Updated] Uncomplicated Process  Altering Clown Fish Voices in WinOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transforming-your-shots-with-ease-in-photoshop-for-2024/"><u>[New] Transforming Your Shots with Ease in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/title-transformations-beyond-standard-styles/"><u>Title Transformations  Beyond Standard Styles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-supercharge-your-youtube-videos-best-mac-mp4-tools/"><u>[Updated] Supercharge Your YouTube Videos  Best Mac MP4 Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-comparative-analysis-of-hero5-sessions-for-2024/"><u>[Updated] Comparative Analysis of Hero5 Sessions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-tips-for-erasing-backgrounds-in-figma-design/"><u>2024 Approved  Ultimate Tips for Erasing Backgrounds in Figma Design</u></a></li>
+</ul></div>

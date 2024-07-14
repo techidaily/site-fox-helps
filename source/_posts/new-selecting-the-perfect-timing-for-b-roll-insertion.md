@@ -1,7 +1,7 @@
 ---
 title: "[New] Selecting the Perfect Timing for B Roll Insertion"
-date: 2024-06-25T19:52:12.448Z
-updated: 2024-06-26T19:52:12.448Z
+date: 2024-07-13T19:00:47.322Z
+updated: 2024-07-14T19:00:47.322Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,9 @@ B roll is a phrase used to describe supplemental video, which is frequently used
 
 Now that we know that, let's dive in!
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. B roll In TV And Movies
 
 Broll is an acronym for "background" or "behind," respectively. It usually refers to extra footage captured with a movie camera while keeping the lighting consistent between scenes in the movie industry. When the filmmaker doesn't want to show any dialogue or action on screen but needs some movement within the frame, it might be utilized as filler.
@@ -32,6 +35,9 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -40,6 +46,9 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
@@ -56,6 +65,9 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
@@ -109,3 +121,38 @@ We sincerely hope that this post will be of use to you in making your films more
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-smart-shopping-strategy-top-7-affordable-4k-mirrorless/"><u>[Updated] Smart Shopping Strategy  Top 7 Affordable 4K Mirrorless</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-revolutionary-tools-elevating-vr-games-for-2024/"><u>[Updated] Revolutionary Tools Elevating VR Games for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-scraps-to-stunning-a-photomontage-journey-for-2024/"><u>From Scraps to Stunning  A Photomontage Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-thriving-livestreams-strategies-for-beginners-with-low-followers/"><u>[Updated] In 2024, Thriving Livestreams  Strategies for Beginners with Low Followers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/curriculum-videos-top-tips-for-classroom-edits/"><u>Curriculum Videos  Top Tips for Classroom Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-6-best-gopro-helmet-mounts-and-how-to-use-them/"><u>2024 Approved  6 Best GoPro Helmet Mounts and How to Use Them</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-s23-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy S23 Pattern Lock Screen</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-pro-video-enhancement-ranking-the-superior-15-gopro-lut-tools/"><u>In 2024, Pro Video Enhancement  Ranking the Superior 15 GoPro LUT Tools</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/best-photo-video-soundtrack-creators/"><u>Best Photo Video Soundtrack Creators</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-infinix-hot-30i-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Infinix Hot 30i</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-light-manipulation-for-captivating-gopro-time-lapse-scenes/"><u>[Updated] In 2024, Mastering Light Manipulation for Captivating GoPro Time Lapse Scenes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-sound-clarity-for-youtube-audiences/"><u>[New] Mastering Sound Clarity for YouTube Audiences</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-from-standard-to-spectacomed-adding-fonts-to-after-effects-workflow/"><u>[Updated] From Standard to Spectacomed  Adding Fonts to After Effects Workflow</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-free-options-10-leading-mac-artists-preferences/"><u>Explore Free Options  10 Leading Mac Artists' Preferences</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/ios-snapshot-spectrum-your-quick-reference/"><u>IO's Snapshot Spectrum  Your Quick Reference</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-itel-p55-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Itel P55 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-professional-panoramas-and-cinematography-with-hero5-black/"><u>[Updated] In 2024, Professional Panoramas & Cinematography with Hero5 Black</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-a18-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo A18 Phones with/without a PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-from-tweeted-videos-to-downloadable-mp3-files/"><u>In 2024, From Tweeted Videos to Downloadable MP3 Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-10-cameras-to-document-the-rhythm-of-2024s-music-world/"><u>[Updated] Top 10 Cameras to Document the Rhythm of 2024'S Music World</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/why-trust-matters-more-than-just-numbers-on-feeds/"><u>Why Trust Matters More Than Just Numbers on Feeds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/what-sets-360-and-vr-media-apart-in-2024/"><u>What Sets 360° and VR Media Apart, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-visual-snipping-strategy-in-windows-11s-photos-app-for-2024/"><u>[Updated] Visual Snipping Strategy in Windows 11'S Photos App for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-realms-intersecting-delving-into-vr-augmented-and-mixed-immersion-for-2024/"><u>[Updated] Realms Intersecting  Delving Into VR, Augmented & Mixed Immersion for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-stealth-in-social-media-going-unseen-with-live-feeds/"><u>[Updated] Stealth in Social Media  Going Unseen with Live Feeds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/avoid-download-hassle-top-5-online-converters-for-gif-to-video/"><u>Avoid Download Hassle  Top 5 Online Converters for GIF to Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/cutting-edge-captures-delving-into-iphone-xs-camera/"><u>Cutting Edge Captures  Delving Into iPhone X's Camera</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers/"><u>[Updated] In 2024, Transform Your Tactics  Exclusive Free Voice Change Tool for Valorant Gamers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-ultimate-guide-to-boosting-sale-traffic-top-15-fb-analysis-tools-reviewed/"><u>2024 Approved  The Ultimate Guide to Boosting Sale Traffic  Top 15 FB Analysis Tools Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-photobooth-lags-steadying-the-playback-journey/"><u>[Updated] Photobooth Lags  Steadying the Playback Journey</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-secrets-of-youtubes-shorts-revenue-sharing/"><u>[Updated] Unlocking the Secrets of YouTube’s Shorts Revenue Sharing</u></a></li>
+</ul></div>

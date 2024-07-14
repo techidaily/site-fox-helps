@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cutting-Edge Creativity  High-Quality AE Samples Without Fee\""
-date: 2024-07-03T13:11:46.060Z
-updated: 2024-07-04T13:11:46.060Z
+date: 2024-07-13T19:08:43.298Z
+updated: 2024-07-14T19:08:43.298Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,9 @@ Laser Titles template is the most ideal solution for retro-themed content. It is
 
 This is another minimalistic title template that can be useful for just any video project although it is primarily designed to create an abstract effect. If you want your audience to be captivated more by the content of the video than the title, the Black & White Template may be the best solution. But like most After Effects title templates, it is entirely customizable, meaning that you can choose to keep its minimalistic design while changing the overall color scheme.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![black white ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/black-white-ae-title-tempalte.jpg)
 
 ### 5\. Cyber Brush Titles After Effects Template
@@ -231,8 +234,14 @@ This is an After Effects title template bundle that comes with different types o
 
 This is another great title template that you can choose if you want animations to feature prominently in your title. The template has amazing 3D effects that can make your title stand out, making it an ideal solution for creative or entertainment projects. It is fully customizable in After Effects.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cinematic ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/cinematic-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\. Abstract Titles After Effects Text Animations
 
 If you are looking for a wide variety of choices when it comes to animations, this is a good template bundle to consider. The templates in this bundle have some of the best text effects that we have seen anywhere and there are multiple styles of title scenes to choose from. Each one of the titles is fully customizable and they are ideal for business or professional videos.
@@ -281,6 +290,9 @@ You can then close the animation loop by designing an exit animation. Here’s h
 
 Step1 Select all the layers that you have created so far and then go to “Layers > Pre-compose.”
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create on exit animation ae](https://images.wondershare.com/filmora/article-images/2022/07/create-on-exit-animation-ae.jpg)
 
 Step2 Move the playhead to about 3 seconds and then click on “Edit” and select “Split Layer.” Delete the top Split Layer.”
@@ -338,3 +350,37 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-capture-and-share-your-win10-gaming-life/"><u>[New] 2024 Approved  Capture and Share Your Win10 Gaming Life</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-future-of-android-time-lapses-innovations-in-video-capture/"><u>[Updated] The Future of Android Time-Lapses  Innovations in Video Capture</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/enhancing-tiktok-video-viewership-through-zoom-for-2024/"><u>Enhancing TikTok Video Viewership Through Zoom for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-storing-your-stories-and-snaps-safely-on-ios-devices-for-2024/"><u>[Updated] Storing Your Stories and Snaps Safely on iOS Devices for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-efficient-editing-for-quick-youtube-content/"><u>[New] 2024 Approved  Efficient Editing for Quick YouTube Content</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-adjust-macs-screenshot-stash-location/"><u>2024 Approved  Adjust Mac's Screenshot Stash Location</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-iphone-recording-apps-for-2024/"><u>Essential iPhone Recording Apps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-breakthrough-techniques-for-quick-srt-to-text-file-alteration/"><u>[New] Breakthrough Techniques for Quick SRT to Text File Alteration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-vegaspro-2019-update-changes-and-impacts/"><u>[New] 2024 Approved  VegasPro 2019 Update  Changes & Impacts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-dialing-in-the-ideal-fb-video-ratio-for-every-post-for-2024/"><u>[Updated] Dialing in the Ideal FB Video Ratio for Every Post for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-ways-to-transcribe-twitter-videos-into-high-fidelity-mp3s/"><u>[New] Best Ways to Transcribe Twitter Videos Into High-Fidelity MP3s</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-heritage-on-display-post-copyright-masterpieces/"><u>2024 Approved  Heritage on Display  Post-Copyright Masterpieces</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-enhance-your-tiktok-viewing-experience/"><u>[New] Enhance Your TikTok Viewing Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-auditory-ambience-finder-for-film-and-video-sets/"><u>2024 Approved  Auditory Ambience Finder  For Film and Video Sets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-enthralling-audiences-a-compilation-of-top-video-ideas/"><u>[New] 2024 Approved  Enthralling Audiences  A Compilation of Top Video Ideas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expertise-in-audio-file-transformation-from-srt-to-xmlssattml/"><u>2024 Approved  Expertise in Audio File Transformation  From SRT to XML/SSA/TTML</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-xiaomis-aerial-camera-test-in-full-hd/"><u>[Updated] Xiaomi's Aerial Camera Test in Full HD</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/est-youtube-mp3-downloader-compilation-top-10-for-2024/"><u>[New] Best YouTube Mp3 Downloader Compilation (Top 10) for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-s-best-video-merging-and-collage-apps-for-iphone-and-ipad-users/"><u>Updated 2024 Approved S Best Video Merging and Collage Apps for iPhone and iPad Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-navigating-the-maze-of-selecting-film-teasers-music/"><u>[New] 2024 Approved  Navigating the Maze of Selecting Film Teasers' Music</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-whats-your-take-home-pay-in-podcasting/"><u>[New] 2024 Approved  What’s Your Take-Home Pay in Podcasting?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transform-into-a-hdr-photography-wizard-via-photoshop/"><u>In 2024, Transform Into a HDR Photography Wizard via Photoshop</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-hidden-gems-essential-tricks-for-win11/"><u>Unveiling Hidden Gems  Essential Tricks for Win11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/viral-visionaries-top-ten-meme-templates-exposed-for-2024/"><u>Viral Visionaries  Top Ten Meme Templates Exposed for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-instagram-video-orientation-whats-the-flip/"><u>[New] 2024 Approved  Instagram Video Orientation - What's the Flip?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhancing-facial-realism-applying-motion-blur-effects-via-picsart/"><u>In 2024, Enhancing Facial Realism  Applying Motion Blur Effects via Picsart</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-which-iphone-video-editor-stands-tall-cameo-vs-filmorago/"><u>[Updated] 2024 Approved  Which iPhone Video Editor Stands Tall? Cameo Vs. FilmoraGo</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-top-20-engaging-tiktok-captions-for-viral-success/"><u>[New] 2024 Approved  Top 20 Engaging TikTok Captions for Viral Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-dynamic-photovideo-gimbal-unmatched-stabilization/"><u>In 2024, Dynamic Photo/Video Gimbal  Unmatched Stabilization</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-value-in-4k-cameras-for-under-1000-for-2024/"><u>Best Value in 4K Cameras for Under $1,000 for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Gratitude Unboxed  Free & Paid Creative OTUs\""
-date: 2024-07-03T13:17:48.868Z
-updated: 2024-07-04T13:17:48.868Z
+date: 2024-07-13T19:15:03.332Z
+updated: 2024-07-14T19:15:03.332Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,9 @@ However, the templates are not editable, and you will need software like Filmora
 
 ![pinterest thanks for watching templates](https://images.wondershare.com/filmora/article-images/2022/11/pinterest-thanks-for-watching-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Vecteezy
 
 As you create more and more videos, you'll want to find ways to make them stand out from the rest of them out there.
@@ -94,6 +97,9 @@ A Quick Guide:
 
 You can purchase a template for **$0.22–$9.90/image or $14.90/video** and can integrate it into your videos using some other video editing software programs.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![istock thanks for watching templates](https://images.wondershare.com/filmora/article-images/2022/11/istock-thanks-for-watching-templates.jpg)
 
 ### Videezy
@@ -104,6 +110,9 @@ The subscription pricing starts at **$19/file**, and it's definitely worth it fo
 
 ![videezy thanks for watching templates](https://images.wondershare.com/filmora/article-images/2022/11/videezy-thanks-for-watching-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Placeit
 
 [Placeit](https://placeit.net/c/design-templates?search=thank+you+for+watching) is a premium video editor where you can choose the required templates from the stock library, all of which are easy to customize to fit your specific needs.
@@ -124,6 +133,9 @@ Filmora is a powerful and easy-to-use video editor that has everything you need 
 
 And to use Filmora making your outro without hassle, please watch this tutorial video below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Video Tutorial - How to Make a YouTube Outro
 
 ## Conclusion
@@ -167,3 +179,60 @@ We hope you found this guide helpful in finding the right **Thanks for Watching 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-essential-list-of-premium-4k-blu-ray-gamers-choice/"><u>[Updated] Essential List of Premium 4K Blu-Ray Gamers' Choice</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-apex-guide-to-selecting-premium-3ds-pc-experiences/"><u>[New] Apex Guide to Selecting Premium 3Ds PC Experiences</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-off-facebook-activity-analysis-and-secure-browsing-practices/"><u>2024 Approved  Off-Facebook Activity Analysis & Secure Browsing Practices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-exploring-new-horizons-with-iphone-xs-camera-tech/"><u>In 2024, Exploring New Horizons with iPhone X's Camera Tech</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-highpoint-design-suite-examination/"><u>[New] Highpoint Design Suite Examination</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-viewer-insights-understanding-subscriber-feedback/"><u>2024 Approved  Unveiling Viewer Insights  Understanding Subscriber Feedback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-techniques-to-soften-sound-in-fl-studio/"><u>[New] 2024 Approved  Essential Techniques to Soften Sound in FL Studio</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-instagram-videos-on-pc-and-mac-with-free-conversion-software-for-2024/"><u>[Updated] Unlock Instagram Videos on PC & Mac with Free Conversion Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-beginners-blueprint-progressive-sound-intensity-rise/"><u>[Updated] In 2024, Beginner’s Blueprint  Progressive Sound Intensity Rise</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/streamline-your-virtual-adventure-with-kinemaster-tips-and-competitor-analysis/"><u>Streamline Your Virtual Adventure with KineMaster Tips & Competitor Analysis</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-avidemux-audio-not-playing-fix-it-now/"><u>In 2024, Avidemux Audio Not Playing? Fix It Now</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovating-image-vision-mastering-hdr-in-photoshop/"><u>2024 Approved  Innovating Image Vision  Mastering HDR in Photoshop</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-a-step-by-step-breakdown-for-ending-your-linkedin-presence-for-2024/"><u>[Updated] A Step-by-Step Breakdown for Ending Your LinkedIn Presence for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/crafting-visual-narratives-with-premium-text-tools-in-ae-for-2024/"><u>Crafting Visual Narratives with Premium Text Tools in AE for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/compelling-beginnings-scriptwriting-tips-for-intros/"><u>Compelling Beginnings  Scriptwriting Tips for Intros</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-vivo-y17s-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Vivo Y17s</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ideal-accessories-for-optimal-gopro-photography/"><u>2024 Approved  Ideal Accessories for Optimal GoPro Photography</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-full-breakdown-dji-inspire-2-analysis/"><u>2024 Approved  Full Breakdown  DJI Inspire 2 Analysis</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-prime-racing-thrills-quintet-of-choice/"><u>2024 Approved  Prime Racing Thrills  Quintet of Choice</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-8-srt-conversion-websites-without-a-cost/"><u>[New] Top 8 SRT Conversion Websites Without a Cost</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-progopro-tips-for-cinematic-results/"><u>[New] 2024 Approved  ProGoPro Tips for Cinematic Results</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/groove-gatherers-try-our-cost-free-beats-scanners/"><u>Groove Gatherers  Try Our Cost-Free Beats Scanners</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimizing-playback-speed-with-professional-tactics-for-2024/"><u>[Updated] Optimizing Playback Speed with Professional Tactics for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/unleash-your-editing-skills-changing-backdrops-in-3-ways-on-tiktok/"><u>Unleash Your Editing Skills  Changing Backdrops in 3 Ways on TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-exclusive-list-top-10-live-streaming-networks-ranked/"><u>[New] 2024 Approved  Exclusive List  Top 10 Live Streaming Networks Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-kinetic-insight-study-for-2024/"><u>Comprehensive Kinetic Insight Study for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-fast-track-to-flawless-podcast-live-for-2024/"><u>[Updated] Fast Track to Flawless Podcast Live for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s24-ultra-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Samsung Galaxy S24 Ultra Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-superior-streaming-services-for-musicians/"><u>2024 Approved  Superior Streaming Services for Musicians</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/exclusive-list-top-5-advanced-webcams-for-remote-meetings/"><u>Exclusive List  Top 5 Advanced Webcams for Remote Meetings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/accelerated-windows-review-strategies/"><u>Accelerated Windows Review Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/enduring-seamlessness-direct-profile-url-insertion-guide-for-2024/"><u>Enduring Seamlessness  Direct Profile URL Insertion Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-hunt-for-heated-online-hearings/"><u>[New] 2024 Approved  Hunt for Heated Online Hearings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-capturing-content-with-confidence-winning-strategies-for-igtv-acquisition/"><u>[New] In 2024, Capturing Content with Confidence  Winning Strategies for IGTV Acquisition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/master-iphone-podcast-downloads-a-comprehensible-approach-for-2024/"><u>Master iPhone Podcast Downloads  A Comprehensible Approach for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-mastering-tiktoks-algorithm-for-increased-engagement/"><u>In 2024, Mastering TikTok's Algorithm for Increased Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-up-your-home-cinema-game-with-these-essential-tips/"><u>[Updated] Step Up Your Home Cinema Game with These Essential Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-missing-link-prime-free-speech-to-text-on-macos/"><u>[Updated] In 2024, Missing Link  Prime Free Speech to Text on macOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-structuring-stories-that-resonate-in-docu-cinema/"><u>[Updated] In 2024, Structuring Stories That Resonate in Docu-Cinema</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-list-of-alternatives-to-the-popular-gopro/"><u>[Updated] In 2024, The Ultimate List of Alternatives to the Popular GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expertly-assembled-windows-edition-tools-guide-for-2024/"><u>[Updated] Expertly Assembled Windows Edition Tools Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-adept-guide-to-youtube-shorts-transformation-to-mp4/"><u>[Updated] Adept Guide to YouTube Shorts Transformation to MP4</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-preventing-vr-sickness/"><u>[Updated] Mastering the Art of Preventing VR Sickness</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-online-methods-to-perfect-vhs-picture-editing-for-2024/"><u>Mastering Online Methods to Perfect VHS Picture Editing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pushing-limits-with-vr-which-console-and-controller-fits-best-in-2024/"><u>[Updated] Pushing Limits with VR  Which Console and Controller Fits Best, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-motion-review-full-scope-2023/"><u>2024 Approved  Motion Review  Full Scope 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-great-race-camera-battle-gopro-hero-4-vs-ghost-s/"><u>2024 Approved  The Great Race Camera Battle  GoPro Hero 4 VS Ghost-S</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-xiaomi-redmi-a2plus-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Xiaomi Redmi A2+ Activity | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-sophisticated-style-advanced-tiktok-filters/"><u>[Updated] In 2024, Sophisticated Style  Advanced TikTok Filters</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-all-inclusive-iptv-delivery-systems-for-2024/"><u>[Updated] All-Inclusive IPTV Delivery Systems for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-8-trusted-platforms-for-online-video-advancement/"><u>2024 Approved  Discover 8 Trusted Platforms for Online Video Advancement</u></a></li>
+</ul></div>

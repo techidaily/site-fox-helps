@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step Mastery  Windows 11 Media Import Simplified\""
-date: 2024-06-25T18:50:36.328Z
-updated: 2024-06-26T18:50:36.328Z
+date: 2024-07-13T17:48:25.460Z
+updated: 2024-07-14T17:48:25.460Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,9 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 
 ## Part 1: Import Photos and Video from a Phone
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
@@ -57,6 +60,9 @@ Your computer will tell you how many pictures and photos were found. You can eit
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Start Importing in Photos App
 
 Another option for you is the Photos app that is pre-installed in computers with Windows 10.
@@ -71,6 +77,9 @@ Within the app, it is easy to see your photos and videos as they are organized b
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Troubleshooting the Phone to PC Connection
 
 There are instances where you may have some problems connecting your phone to the computer, even if you have the USB cable connected on both ends.
@@ -81,6 +90,9 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Import Photos and Video from a Camera
 
 Those who are importing photos and videos from a camera rather than a smartphone can use the above options as well. Both Windows 10 File Explorer and the Photos app will be compatible with your camera, provided it can connect through a USB cable and a USB port on the computer.
@@ -119,3 +131,72 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-7-top-ranked-cameras-for-snowboarding-and-skiing-enthusiasts/"><u>2024 Approved  7 Top-Ranked Cameras for Snowboarding & Skiing Enthusiasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-capture-to-edit-elevating-your-immersive-video-experience-using-premiere-pro-for-2024/"><u>From Capture to Edit  Elevating Your Immersive Video Experience Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essence-of-youtubes-content-craft-room/"><u>[Updated] The Essence of YouTube's Content Craft Room</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-xiaomi-14-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-tales-of-trial-by-fire-vs-innovative-challenges-for-2024/"><u>[New] Tales of Trial by Fire Vs. Innovative Challenges for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-perfecting-hdr-photos-techniques-for-blending-in-lightroom/"><u>[New] 2024 Approved  Perfecting HDR Photos  Techniques for Blending in Lightroom</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/dive-into-digital-media-establishing-real-time-sharing-for-2024/"><u>Dive Into Digital Media  Establishing Real-Time Sharing for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-insiders-guide-to-maximizing-ez-grabber/"><u>[Updated] The Insider’s Guide to Maximizing EZ Grabber</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-identifying-ideal-pace-for-premium-slow-motion-cinematography/"><u>2024 Approved  Identifying Ideal Pace for Premium Slow Motion Cinematography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-concept-to-creation-top-10-podcast-design-principles/"><u>[New] From Concept to Creation  Top 10 Podcast Design Principles</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-movie-mastery-unlocked-easy-tips-and-tricks-for-filmmakers-for-2024/"><u>New Movie Mastery Unlocked Easy Tips and Tricks for Filmmakers for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-photos-ios-alignment-and-cloud-syncing/"><u>2024 Approved  Mastering Photos  IOS Alignment and Cloud Syncing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-premium-fourteen-high-res-full-frame-selection/"><u>2024 Approved  Premium Fourteen  High Res Full Frame Selection</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagrams-peak-moments-a-how-to-guide-for-2024/"><u>[Updated] Mastering Instagram's Peak Moments  A How-To Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-secret-ingredient-to-success-15-activities-that-enhance-learning-while-listening-to-talk-shows/"><u>2024 Approved  The Secret Ingredient to Success  15 Activities that Enhance Learning While Listening to Talk Shows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-crafting-an-aural-experience-for-previews/"><u>[New] In 2024, Crafting an Aural Experience for Previews</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-finding-your-ideal-viewing-experience-with-projection-or-television/"><u>[New] Finding Your Ideal Viewing Experience with Projection or Television</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-quick-recovery-of-twitch-broadcasts/"><u>[New] 2024 Approved  The Quick Recovery of Twitch Broadcasts</u></a></li>
+<li><a href="https://win11.techidaily.com/triumph-in-windows-pricing-acquiring-top-product-keys/"><u>Triumph in Windows Pricing: Acquiring Top Product Keys</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-streamlining-your-iphones-album-organization-and-icloud-connection/"><u>[New] 2024 Approved  Streamlining Your iPhone's Album Organization and iCloud Connection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-crafting-excellent-micro-photography-videos-step-by-step/"><u>[New] In 2024, Crafting Excellent Micro Photography Videos Step by Step</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-masterclasses-in-applying-online-vhs-filters-and-graphics/"><u>[New] In 2024, Masterclasses in Applying Online VHS Filters and Graphics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-launch-your-filmmaking-dreams-xp-edition-preparation/"><u>[New] Launch Your Filmmaking Dreams  XP Edition Preparation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/interpreting-distinctions-360-content-and-virtual-reality-for-2024/"><u>Interpreting Distinctions  360° Content & Virtual Reality for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-choices-twitter-video-conversion-software-for-2024/"><u>[New] Best Choices  Twitter Video Conversion Software for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-dialogue-engaging-your-youtube-fans/"><u>2024 Approved  Mastering Dialogue  Engaging Your YouTube Fans</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gain-more-followers-masterful-youtube-marketing-techniques/"><u>[New] 2024 Approved  Gain More Followers  Masterful YouTube Marketing Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-driving-engagement-from-few-followers-to-million-views-for-2024/"><u>[New] Driving Engagement  From Few Followers to Million Views for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Vivo X90S? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ps5xbox-x-visuals-the-top-5-game-tvs/"><u>2024 Approved  PS5/Xbox X Visuals  The Top 5 Game TVs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exploring-the-most-reliable-free-srt-translation-services-for-2024/"><u>[New] Exploring the Most Reliable Free SRT Translation Services for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-portable-cinematic-vibration-reliever-kit/"><u>[New] 2024 Approved  Portable Cinematic Vibration Reliever Kit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premier-vr-movies-for-immersive-viewing/"><u>[New] Premier VR Movies for Immersive Viewing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/wave-riders-picks-premium-action-cameras-2023/"><u>Wave Riders’ Picks  Premium Action Cameras 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-in-depth-guide-to-automatic-text-generation-with-google-docs-voice-recognition/"><u>2024 Approved  In-Depth Guide to Automatic Text Generation with Google Docs Voice Recognition</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-what-is-motion-blur-in-the-game-do-you-really-need-it/"><u>Updated What Is Motion Blur in the Game? Do You Really Need It?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/merging-technology-and-commerce-through-vr-innovation/"><u>Merging Technology & Commerce Through VR Innovation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-online-places-for-youtube-video-growth-for-2024/"><u>Best Online Places for YouTube Video Growth for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-iphone-14-plus-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From iPhone 14 Plus</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-invisible-time-recording-expertise/"><u>[New] In 2024, Invisible Time Recording Expertise</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-free-video-player-face-off-vlc-versus-mpc/"><u>[New] In 2024, Free Video Player Face-Off  VLC Versus MPC</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-tier-psd-artistry-tweaks/"><u>In 2024, Top-Tier PSD Artistry Tweaks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-expeditious-steps-for-reclaiming-deleted-reddit-content/"><u>[New] Expeditious Steps for Reclaiming Deleted Reddit Content</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-reinstate-lost-watch-icon-on-facebook-platform/"><u>[Updated] In 2024, Reinstate Lost Watch Icon on Facebook Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-vr-buying-guide-mobile-liberty-or-tethered-unity/"><u>[New] In 2024, The Ultimate VR Buying Guide  Mobile Liberty or Tethered Unity?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elite-selection-optimal-video-downloading-for-tiktok-no-watermark-for-2024/"><u>Elite Selection  Optimal Video Downloading for TikTok (No Watermark) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-aperture-authority-picking-the-top-10-camera-lenses/"><u>In 2024, Aperture Authority  Picking the Top 10 Camera Lenses</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-the-ultimate-list-7-video-mergers-with-no-watermark/"><u>New 2024 Approved The Ultimate List 7 Video Mergers with No Watermark</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-groundbreaking-no-cost-image-editors-unveiled/"><u>In 2024, Groundbreaking No-Cost Image Editors Unveiled</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-depth-3d-text-designs-in-illustrator/"><u>In 2024, Crafting Depth  3D Text Designs in Illustrator</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-rhythms-companion-finding-premium-club-vids/"><u>In 2024, Rhythm's Companion  Finding Premium Club Vids</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-a-comprehensive-guide-for-free-video-translator-downloading/"><u>updated In 2024, A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebooks-stance-on-personal-content-distribution-in-the-digital-age/"><u>2024 Approved  Facebook's Stance on Personal Content Distribution in the Digital Age</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-implementing-instagram-story-opinion-polls-effectively/"><u>[Updated] In 2024, Implementing Instagram Story Opinion Polls Effectively</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-enhancing-windows-photos-with-music-and-custom-filters/"><u>[New] Enhancing Windows Photos with Music and Custom Filters</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-innovative-text-treatments-elevating-ae-titles/"><u>[Updated] 2024 Approved  Innovative Text Treatments  Elevating AE Titles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-convincing-openers-stellar-podcast-entries-for-2024/"><u>[New] Convincing Openers  Stellar Podcast Entries for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-must-try-tiktok-video-ideas-drawing-from-anime-worlds-for-2024/"><u>[Updated] Must-Try TikTok Video Ideas Drawing From Anime Worlds for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-film-techniques-on-youtube-by-future-visionaries/"><u>2024 Approved  Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-color-perfection-in-final-cut-pro-2023-tips-and-techniques/"><u>2024 Approved Color Perfection in Final Cut Pro 2023 Tips and Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-fine-tuning-your-audacity-recordings/"><u>[New] Fine-Tuning Your Audacity Recordings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-jump-into-gaming-evolution-explore-lgs-27ud68-monitor/"><u>[New] 2024 Approved  Jump Into Gaming Evolution  Explore LG's 27UD68 Monitor</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-humor-image-creator/"><u>In 2024, Ultimate Humor Image Creator</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-full-picture-of-ustream-and-analogous-services/"><u>In 2024, The Full Picture of Ustream & Analogous Services</u></a></li>
+</ul></div>

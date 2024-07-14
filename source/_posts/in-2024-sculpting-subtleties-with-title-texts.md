@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Sculpting Subtleties with Title Texts"
-date: 2024-06-25T19:43:31.217Z
-updated: 2024-06-26T19:43:31.217Z
+date: 2024-07-13T18:50:31.991Z
+updated: 2024-07-14T18:50:31.991Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,9 @@ Along with After Effects source text effect types, we have illustrated how you c
 
 There are certain properties and parameters associated with text effects and animations in After Effects. You need to get a complete overview of these types so that you can adjust them and come up with stunning text animations in After Effects.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. 3D Text
 
 Generally, when you type a text in After Effects, by default, it comes out to be two-dimensional. All the associated properties have X and Y axis only. However, if you are planning to create 3D text and title, you need to have Z axis.
@@ -49,6 +52,9 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Scale and Position
 
 If you want to zoom in and zoom out animation for your text or title, you can use the Scale property in After Effects. You can use keyframes and for each keyframe, you can adjust the scale value and create an illustration of zooming in and out very easily.
@@ -69,6 +75,9 @@ Similarly, the stroke color can be changed and you can create an animation with 
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. Tracking
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
@@ -155,6 +164,9 @@ If you want to zoom in and zoom out animation for your text or title, you can us
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
@@ -258,3 +270,49 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-google-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Google FRP Without Computer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ranked-9-iphone-applications-to-add-watermarks-on-photos/"><u>Ranked 9 iPhone Applications to Add Watermarks on Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-steps-to-acquire-fcp-for-zero-dollars/"><u>[New] 2024 Approved  Steps to Acquire FCP for Zero Dollars</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-gionee-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Gionee</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-proposal-anthems-top-10-love-ballads-and-their-meanings/"><u>[New] In 2024, Proposal Anthems  Top 10 Love Ballads and Their Meanings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/leading-iphone-apps-the-ultimate-guide-to-removing-photo-clutter/"><u>Leading iPhone Apps  The Ultimate Guide to Removing Photo Clutter</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-question-in-cameras-can-a-dslr-surpass-a-hero-4-for-2024/"><u>[New] The Ultimate Question in Cameras  Can a DSLR Surpass a Hero 4 for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-lenovo-thinkphone-by-drfone-android/"><u>In 2024, How to Bypass FRP from Lenovo ThinkPhone?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-tier-hdr-camera-selection-made-easy-for-2024/"><u>[New] Top-Tier HDR Camera Selection Made Easy for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-10-ios-auditory-options-for-2024/"><u>Top 10 iOS Auditory Options for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-fast-fb-videos-innovative-techniques-and-software-roundup/"><u>[Updated] 2024 Approved  Mastering Fast FB Videos  Innovative Techniques and Software Roundup</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-guide-to-iphonedesktop-video-change-top-8-recommendations/"><u>[New] 2024 Approved  The Ultimate Guide to iPhone/Desktop Video Change  Top 8 Recommendations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/mastering-snap-ad-creation-essential-tips-for-impactful-promotion-for-2024/"><u>Mastering Snap Ad Creation  Essential Tips for Impactful Promotion for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-embark-on-a-virtual-journey-with-iphone-vr-videos-for-2024/"><u>[Updated] Embark on a Virtual Journey with iPhone VR Videos for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-gionee-f3-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Gionee F3 Pro to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-sky-battle-drone-racing-fundamentals-and-top-5-fpv-titans-for-2024/"><u>[New] The Ultimate Sky Battle  Drone Racing Fundamentals & Top 5 FPV Titans for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transform-images-top-5-android-tools/"><u>[New] Transform Images  Top 5 Android Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-achieving-steady-motion-video-and-photography-insights/"><u>[Updated] 2024 Approved  Achieving Steady Motion  Video & Photography Insights</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-save-your-favorite-tiktok-content-securely-on-devices/"><u>[New] Save Your Favorite TikTok Content - Securely on Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elevating-your-nba-experience-with-advanced-streaming/"><u>[New] Elevating Your NBA Experience with Advanced Streaming</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-copy-contacts-from-apple-iphone-6s-to-sim-drfone-by-drfone-transfer-from-ios/"><u>How to Copy Contacts from Apple iPhone 6s to SIM? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transform-your-devices-tone-swiftly-with-these-leading-chrome-apps-for-2024/"><u>[New] Transform Your Device's Tone Swiftly With These Leading Chrome Apps for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-nokia-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Nokia</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-digital-gallery-music-meets-images-for-2024/"><u>[Updated] Digital Gallery  Music Meets Images for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-sci-fis-new-realms-exploring-the-best-metaverse-adventures-on-screen/"><u>[New] In 2024, Sci-Fi's New Realms  Exploring the Best Metaverse Adventures on Screen</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-hunters-picks-best-video-recorders-reviewed-for-2024/"><u>[New] Hunters' Picks  Best Video Recorders Reviewed for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-top-20-hits-must-watch-tiktok-rappers-and-their-tracks/"><u>In 2024, Top 20 Hits  Must-Watch TikTok Rappers & Their Tracks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-posting-a-youtube-video-via-insta-stories-a-step-by-step-guide/"><u>[New] 2024 Approved  Posting a YouTube Video via Insta Stories  A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-essential-resource-compilation-30-top-websites-for-free-vectr-artists/"><u>[Updated] Essential Resource Compilation  30 Top Websites for Free Vectr Artists</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/swipe-to-enhance-turning-videos-upside-down/"><u>Swipe to Enhance  Turning Videos Upside Down</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-7-essential-secrets-for-delectable-cooking-clips-for-2024/"><u>[New] 7 Essential Secrets for Delectable Cooking Clips for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-conquer-snapchat-lens-design-two-easy-approaches/"><u>[Updated] In 2024, Conquer Snapchat Lens Design  Two Easy Approaches</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-effortless-time-lapse-videos-with-samsung-tech-for-2024/"><u>[New] Effortless Time-Lapse Videos with Samsung Tech for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-cut-through-the-chaos-advanced-strategies-for-editing-tiktok-saves/"><u>[Updated] Cut Through the Chaos  Advanced Strategies for Editing TikTok Saves</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-static-to-dynamic-hyperlapse-video-techniques/"><u>[New] In 2024, From Static to Dynamic  Hyperlapse Video Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-apple-music-for-dynamic-video-enhancement/"><u>[New] Apple Music for Dynamic Video Enhancement</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unfolding-wonders-your-practical-guide-to-travel-vlogging/"><u>In 2024, Unfolding Wonders  Your Practical Guide to Travel Vlogging</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-vivo-y27-4g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Vivo Y27 4G Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-media-creator-win8/"><u>[New] In 2024, Ultimate Media Creator Win8</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-revolutionizing-home-cinema-latest-on-samsungs-ubd-k850u-for-2024/"><u>[New] Revolutionizing Home Cinema  Latest on Samsung’s UBD-K850U for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-channel-transformation-from-zero-to-thousand-followers/"><u>[New] 2024 Approved  Channel Transformation  From Zero to Thousand Followers</u></a></li>
+</ul></div>

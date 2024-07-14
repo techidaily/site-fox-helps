@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Still to Story  The Art of Adding Text to Photos, OS Style\""
-date: 2024-06-25T19:40:50.682Z
-updated: 2024-06-26T19:40:50.682Z
+date: 2024-07-13T18:47:22.617Z
+updated: 2024-07-14T18:47:22.617Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,9 @@ Step1Firstly, open the MS Photos app and choose the image you want to edit.
 
 Step2Now click the Edit & Create button at the top right corner and click on the Edit with Paint 3D option.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click edit-create button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-5.jpg)
 
 Step3Now click on the text button at the top.
@@ -62,6 +65,9 @@ Step3Now click on the text button at the top.
 
 Step4To make the text box of your choice, you have to click and drag it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click and drag text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-7.jpg)
 
 Step5Now you can write whatever you want to on your photo.
@@ -457,6 +463,9 @@ Cons
 
 PhotoDirector is also photo editing software used to enhance the quality and creativity of the photos. It provides several great features with a simple organizing interface which is best for newbies. You can also add text to images using it. Since it was released, it has had a good number of users.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![photodirector](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-24.jpg)
 
 Pros
@@ -479,6 +488,9 @@ Cons
 
 If you still do not find any software to add text to your photos, you should also look at GIMP. It is also a good graphics editing program. Moreover, it is free and open source also. You can use it for both the editing and the manipulation of photos. Some people also still use WIMP for making their drawings, although it is not for such a purpose.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-25.jpg)
 
 Pros
@@ -563,3 +575,54 @@ The last words for today's topic here is that there are numerous solutions avail
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-next-gen-patient-rehabilitation-tools/"><u>[New] In 2024, Next-Gen Patient Rehabilitation Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-drones-leap-into-clarity-q500-reviewed/"><u>A Drone's Leap Into Clarity - Q500 Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhancing-chromebooks-zoom-functionality/"><u>[New] In 2024, Enhancing Chromebook's Zoom Functionality</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-guide-to-screen-capturing-on-hp-devices/"><u>Essential Guide to Screen Capturing on HP Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-step-by-step-audacity-crossfading-process-for-2024/"><u>[New] Step-by-Step Audacity Crossfading Process for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/cutting-edge-techniques-for-social-dominance-for-2024/"><u>Cutting-Edge Techniques for Social Dominance for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-path-to-powerdirector-proficiency-2024-edition/"><u>[New] The Ultimate Path to PowerDirector Proficiency - 2024 Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/obile-access-to-all-you-love-best-download-tools-for-android-and-ios/"><u>[New] Mobile Access to All You Love  Best Download Tools for Android and iOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-learning-the-ropes-of-telegram-promotion-for-beginners/"><u>[New] Learning the Ropes of Telegram Promotion for Beginners</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-free-easy-to-use-srt-translation-services-explored-for-2024/"><u>[New] Top Free, Easy-to-Use SRT Translation Services Explored for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximizing-color-grading-efficiency-with-obs-and-lut-techniques-for-2024/"><u>[New] Maximizing Color Grading Efficiency with OBS and LUT Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-asus-mg28uq-elevating-your-visual-experience-to-new-heights/"><u>In 2024, ASUS MG28UQ  Elevating Your Visual Experience to New Heights</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-compress-webm-videos-for-free-top-online-tools/"><u>Updated Compress WebM Videos for Free Top Online Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unleashing-iphones-potential-for-dynamic-shots/"><u>In 2024, Unleashing iPhone’s Potential for Dynamic Shots</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-zoom-recording-101-a-practical-approach/"><u>2024 Approved  Zoom Recording 101  A Practical Approach</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-do-you-want-to-be-aware-of-vhss-meaning-there-is-nothing-to-be-worried-about-because-we-will-guide-you-in-this-article-for-2024/"><u>New Do You Want to Be Aware of VHSs Meaning? There Is Nothing to Be Worried About because We Will Guide You in This Article for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-detailed-methods-for-seamless-wirecast-livestreams-on-youtube-for-2024/"><u>[New] Detailed Methods for Seamless WireCast Livestreams on YouTube for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-navigating-the-thin-line-of-vr-content-availability/"><u>[New] In 2024, Navigating the Thin Line of VR Content Availability</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-photographic-face-off-legend-sj6-vs-xiaomis-yi-kickstarter/"><u>[New] Ultimate Photographic Face-Off  Legend SJ6 Vs. Xiaomi's Yi Kickstarter</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-invent-iconic-image-jokes/"><u>[New] Invent Iconic Image Jokes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-visual-magic-grading-through-hue-manipulation/"><u>[New] In 2024, Visual Magic  Grading Through Hue Manipulation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-high-definition-mastery-best-hd-screen-recorder-selections/"><u>In 2024, High Definition Mastery  Best HD Screen Recorder Selections</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-huawei-nova-y71-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Huawei Nova Y71 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-comprehensive-guide-to-platform-choice-and-management/"><u>2024 Approved  Comprehensive Guide to Platform Choice and Management</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/make-a-living-with-reddit-even-for-novices-top-13-easy-strategies/"><u>Make a Living with Reddit (Even for Novices!)  Top 13 Easy Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-leveraging-patient-stories-a-guide-to-powerful-videography/"><u>In 2024, Leveraging Patient Stories  A Guide to Powerful Videography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-rotation-producer-series-for-2024/"><u>[New] Rotation Producer Series for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/auditory-aesthetics-guide-media-sound-choices/"><u>Auditory Aesthetics Guide  Media Sound Choices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visionary-chip-uninterrupted-editing-on-the-newest-tech-for-2024/"><u>[New] Visionary Chip  Uninterrupted Editing on the Newest Tech for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-15-pro-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 15 Pro Without a Passcode</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-innovative-thumbnail-techniques-to-boost-your-youtube-visibility/"><u>[New] Innovative Thumbnail Techniques to Boost Your YouTube Visibility</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-photos-ios-alignment-and-cloud-syncing/"><u>In 2024, Mastering Photos  IOS Alignment and Cloud Syncing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-tier-voice-to-text-applications/"><u>[New] 2024 Approved  Top Tier Voice to Text Applications</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-direct-playback-of-fb-videos-on-home-entertainment-systems/"><u>In 2024, Direct Playback of FB Videos on Home Entertainment Systems</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-how-to-cut-videos-on-mac-without-using-ffmpeg/"><u>Updated In 2024, How to Cut Videos on Mac without Using FFmpeg?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-photo-perfection-best-practices-for-integrating-frames-online/"><u>[New] Photo Perfection  Best Practices for Integrating Frames Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-initiating-zoom-conversations-from-your-android-device/"><u>[New] 2024 Approved  Initiating Zoom Conversations From Your Android Device</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-5-tools-for-enhancing-web-videos/"><u>[New] In 2024, Top 5 Tools for Enhancing Web Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-altitude-with-djis-new-gadget-for-2024/"><u>Mastering Altitude with DJI's New Gadget for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/egies-for-successful-youtube-monetization/"><u>Strategies for Successful YouTube Monetization</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/bridging-visual-and-auditory-elements-adding-music-to-premiere-projects/"><u>Bridging Visual and Auditory Elements  Adding Music to Premiere Projects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-efficient-techniques-for-editing-account-numbers-on-tiktok/"><u>[New] In 2024, Efficient Techniques for Editing Account Numbers on TikTok</u></a></li>
+</ul></div>

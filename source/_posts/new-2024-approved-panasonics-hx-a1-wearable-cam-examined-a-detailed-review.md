@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Panasonic’s HX-A1 Wearable Cam Examined - A Detailed Review\""
-date: 2024-06-25T19:35:42.790Z
-updated: 2024-06-26T19:35:42.790Z
+date: 2024-07-13T18:41:20.886Z
+updated: 2024-07-14T18:41:20.886Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ## Panasonic’s HX-A1 Wearable Cam Examined - A Detailed Review
 
-# Panasonic HX-A1 Wearable Action Camera Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Panasonic HX-A1 Wearable Action Camera Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -30,10 +31,17 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-## Design and Usability ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Design and Usability
+![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -59,6 +67,9 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -128,6 +139,9 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -154,3 +168,43 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/hp-envy-27-4k-usb-c-monitor-review/"><u>HP Envy 27 4K USB-C Monitor Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pushing-boundaries-together-leading-vr-accessories/"><u>2024 Approved  Pushing Boundaries Together  Leading VR Accessories</u></a></li>
+<li><a href="https://techidaily.com/is-your-realme-gt-5-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Realme GT 5 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-textual-transformation-enrich-your-images-with-words-pcmac-style-for-2024/"><u>[Updated] Textual Transformation  Enrich Your Images with Words, PC/Mac Style for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-nighttime-iphone-photography-secrets-revealed-for-2024/"><u>[Updated] Nighttime iPhone Photography Secrets Revealed for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovative-14-animated-text-display-cases/"><u>2024 Approved  Innovative 14 Animated Text Display Cases</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/your-ultimate-guide-to-budget-friendly-excellent-webm-viewers/"><u>Your Ultimate Guide to Budget-Friendly, Excellent WebM Viewers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-guide-to-swiftly-acquire-and-save-youtube-watch-lists-for-2024/"><u>[New] Guide to Swiftly Acquire and Save YouTube Watch Lists for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prime-virtual-marketplaces-ringtone-selections/"><u>[New] Prime Virtual Marketplaces  Ringtone Selections</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-limitless-video-snipping-program/"><u>[Updated] 2024 Approved  Limitless Video Snipping Program</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-photographers-guide-top-editing-and-writing-apps/"><u>In 2024, Photographer's Guide  Top Editing & Writing Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-leaders-of-head-worn-digital-realms-for-2024/"><u>[Updated] Leaders of Head-Worn Digital Realms for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-curating-faithful-chimes-a-how-to-guide/"><u>2024 Approved  Curating Faithful Chimes  A How-To Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-luts-role-in-image-color-alteration/"><u>[Updated] In 2024, Unveiling LUTs' Role in Image Color Alteration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elevating-your-gopro-vlogs-to-the-next-level/"><u>[Updated] In 2024, Elevating Your GoPro Vlogs to the Next Level</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-enable-vlcs-webcam-recording-for-high-quality-footage/"><u>[New] 2024 Approved  Enable VLC's Webcam Recording for High-Quality Footage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-discover-prime-sites-offering-free-got-soundtracks/"><u>[Updated] In 2024, Discover Prime Sites Offering Free GoT Soundtracks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-deciphering-concealed-views-on-video-content/"><u>[Updated] Deciphering Concealed Views on Video Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-anonymous-legacy-non-protected-creative-pieces/"><u>[Updated] In 2024, Anonymous Legacy  Non-Protected Creative Pieces</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-beyond-reality-reviewing-lgs-virtual-vision/"><u>[Updated] Step Beyond Reality  Reviewing LG's Virtual Vision</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-aspect-ratios-for-video-production/"><u>2024 Approved  Optimal Aspect Ratios for Video Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-vr-accessories-unleashed-in-depth-reviews/"><u>[Updated] In 2024, VR Accessories Unleashed  In-Depth Reviews</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-xiaomi-13t-pro-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Xiaomi 13T Pro FRP In 3 Different Ways</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/avoiding-auditory-peaks-control-volume-levels-in-logic-pro/"><u>Avoiding Auditory Peaks  Control Volume Levels in Logic Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-youtube-srt-extracts-a-triad-approach-for-2024/"><u>[Updated] Mastering YouTube SRT Extracts  A Triad Approach for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ascending-with-asmr-top-strategies-for-video-creation/"><u>[New] In 2024, Ascending with ASMR  Top Strategies for Video Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimize-customize-and-enhance-with-these-win11-tips/"><u>[Updated] Optimize, Customize & Enhance with These Win11 Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/calm-cadences-non-intrusive-audio-softening-techniques/"><u>Calm Cadences  Non-Intrusive Audio Softening Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-ultimate-guide-to-mp4-from-instagram-advanced-2-step-processes/"><u>[Updated] 2024 Approved  Ultimate Guide to MP4 From Instagram  Advanced 2-Step Processes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/androids-5-prime-photo-tools-ultimate-editing-companion/"><u>Android's 5 Prime Photo Tools  Ultimate Editing Companion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-past-moments-using-android-videos-for-2024/"><u>[Updated] Navigating Past Moments Using Android Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/cerebral-showcase-premier-trivia-video-hubs-of-2024/"><u>Cerebral Showcase  Premier Trivia Video Hubs of 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-tier-text-transitions-reels/"><u>[Updated] In 2024, Top-Tier Text Transitions Reels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-streamline-sound-integration-into-premiere-pro-edits/"><u>[Updated] In 2024, Streamline Sound Integration Into Premiere Pro Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-beyond-the-norm-a-review-of-the-4kcg318-display-by-eizo-for-2024/"><u>[Updated] Beyond the Norm  A Review of the 4KCG318 Display by EIZO for 2024</u></a></li>
+</ul></div>

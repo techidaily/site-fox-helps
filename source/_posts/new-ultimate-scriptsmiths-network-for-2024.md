@@ -1,7 +1,7 @@
 ---
 title: "[New] Ultimate Scriptsmiths Network for 2024"
-date: 2024-06-25T19:25:02.715Z
-updated: 2024-06-26T19:25:02.715Z
+date: 2024-07-13T18:28:47.279Z
+updated: 2024-07-14T18:28:47.279Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,9 @@ Logline This is the only scripting website we know of that is dedicated exclusiv
 
 ### 3\. Nicholl Winners' Scripts & Formatting Sample.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![nicholl winners' scripts and formatting sample](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-3.jpg)
 
 Want to see what a script good enough to win a Nicholl competition looks like? Here is a list of some of the past winners who will do so.
@@ -76,25 +79,36 @@ This is the first place I go for scripted stuff. They have an extensive catalog 
 
 ![imsdb](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-5.jpg)
 
-### 2\. Go Into the Story ![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-6.jpg)
+### 2\. Go Into the Story
+![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-6.jpg)
 
 I'm a huge fan of Scott Myers. He gives everything to the writer. Go Into the Story is the official blog for The **_Black List,_** the screenwriting community known for its annual list of the top ten unproduced screenplays in Hollywood. There is always a bank of scripts that you can filter.
 
-### 3\. Simply Scripts ![simply scripts](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-7.jpg)
+### 3\. Simply Scripts
+![simply scripts](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-7.jpg)
 
 Simply Scripts has a large and diverse library that includes Tennessee Williams' plays, classics, and even non-English screenplays. It's also constantly updated, so the most recent scripts are always available.
 
-### 4\. Screenplays For You ![screenplays for you](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-8.jpg)
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 4\. Screenplays For You
+![screenplays for you](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-8.jpg)
 
 Again, there is not much difference between these pages. You can search by genre here or alphabetically. They have it all.
 
-### 5\. The Screenplay Database ![the screenplay database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-9.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 5\. The Screenplay Database
+![the screenplay database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-9.jpg)
 
 The script database is another useful resource with a large selection of scripts to choose from. If you're interested in a certain type of movie, the site also lets you search its library by genre, allowing you to browse the window displays and find something you didn't even know you were looking for.
 
 ## Part 3\. Best 5 free websites to grace your scripts
 
-### 1\. Go Into The Story ![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-10.jpg)
+### 1\. Go Into The Story
+![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-10.jpg)
 
 Run by Scott Myers, the Go into The Story blog has been named “Best of the Best” by Writer's Digest magazine.
 
@@ -102,19 +116,25 @@ It covers business, art, and the everyday problems of a writer.
 
 In addition to being an award-winning blog, Scott's blog is also one that we visit almost every day. It's a one-stop shop for interviews, advice, and answers to any reader questions.
 
-### 2\. John August ![john august](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-11.jpg)
+### 2\. John August
+![john august](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-11.jpg)
 
 Everyone seems to have advice about Hollywood, but who can you trust? John August is one of Hollywood's best screenwriters. He was nominated for an Academy Award for Big Fish and continues to work on major studio films such as Aladdin, Charlie and the Chocolate Factory and Charlie's Angels.
 
 John August's blog has become the place people go for screenwriting news and advice from someone who does it every day.
 
-### 3\. StudioBinder ![studiobinder](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-12.jpg)
+### 3\. StudioBinder
+![studiobinder](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-12.jpg)
 
 Inspiration is half the battle in writing, but what if you hit writer's block and just can't move forward? The StudioBinder blog is dedicated to helping aspiring and experienced filmmakers achieve their dreams, but the StudioBinder platform is where you can shine.
 
 It can help you not only inspire your script but also help you with production. Once you've finished writing your masterpiece, you can upload the script to StudioBinder. You can check the formatting of your script and even help the production by connecting with an assistant director to mark each of the elements of your story.
 
-### 4\. Internet Movie Script Database ![internet movie script database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-13.jpg)
+### 4\. Internet Movie Script Database
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![internet movie script database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-13.jpg)
 
 If you're going to write screenplays for a career, you'd better get used to reading them. But professional scripts can be hard to find.
 
@@ -124,7 +144,8 @@ Life is an endless journey of learning. And the site's vast inventory of scripts
 
 You can learn about character development and how to create a solid story structure just by reading. New scripts are added every day, so chances are what you're looking for is inside.
 
-### 5\. The Black List ![the black list](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-14.jpg)
+### 5\. The Black List
+![the black list](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-14.jpg)
 
 From the website, Blacklist is "...a closed network that connects script buyers, agents and screenwriters in one place". You can upload your script for a fee and then have users and readers rate it on a scale of 1-10\. It is a way to enter the digital age.
 
@@ -179,3 +200,64 @@ To write a video script quickly, you should use templates, which are designed to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/how-to-insert-sign-in-xltx-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to insert sign in .xltx files</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-indie-filmmakers-online-youtube-tutorials-for-growth/"><u>[Updated] 2024 Approved  Indie Filmmakers Online  YouTube Tutorials for Growth</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-4k-gaming-pcs-top-ten-selection/"><u>2024 Approved  Leading 4K Gaming PCs - Top Ten Selection</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-master-your-setlist-top-dj-audio-repositories/"><u>Updated Master Your Setlist Top DJ Audio Repositories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-crafting-content-for-insta-clout-a-9-step-playbook-for-fame/"><u>2024 Approved  Crafting Content for Insta Clout  A 9-Step Playbook for Fame</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-camera-essentials-for-rookie-filmmakers/"><u>[Updated] 2024 Approved  Camera Essentials for Rookie Filmmakers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-clear-accessible-podcast-xml-files-for-listeners-for-2024/"><u>Crafting Clear, Accessible Podcast XML Files for Listeners for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-navigating-through-new-camera-settings-in-ios-11/"><u>[Updated] In 2024, Navigating Through New Camera Settings in iOS 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-m1-max-clips/"><u>[Updated] 2024 Approved  Unveiling the Secrets of M1 Max Clips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-reveling-in-4k-an-in-depth-look-at-yis-hero-series/"><u>In 2024, Reveling in 4K  An In-Depth Look at Yi’s HERO Series</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-oppo-f23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unlocking-chromebook-zoom-capabilities/"><u>In 2024, Unlocking Chromebook Zoom Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-novice-to-expert-a-compreenhensive-fcp-guide/"><u>2024 Approved  From Novice to Expert  A Compreenhensive FCP Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dji-quadcopters-tiers-basic-model-enhanced-version-high-definition-masterclass/"><u>[Updated] DJI Quadcopters Tiers  Basic Model, Enhanced Version, High Definition Masterclass</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-excellent-camcorders-with-facing-panel/"><u>[Updated] In 2024, Excellent Camcorders with Facing Panel</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-preserving-sound-integrity-with-ffmpeg-extract/"><u>In 2024, Preserving Sound Integrity with FFmpeg Extract</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-maximal-brightness-for-android-videos-explained/"><u>In 2024, Maximal Brightness for Android Videos Explained</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/7-fixes-to-no-gps-showing-approximate-location-on-apple-iphone-12-waze-drfone-by-drfone-virtual-ios/"><u>7 Fixes to No GPS - Showing Approximate Location on Apple iPhone 12 Waze | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-freeframe-finders-your-path-to-aesthetic-economical-backdrops-on-tiktok/"><u>[Updated] In 2024, FreeFrame Finders  Your Path to Aesthetic, Economical Backdrops on TikTok</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-best-celebrity-voice-generator-tools-you-cannot-miss/"><u>New In 2024, Best Celebrity Voice Generator Tools You Cannot Miss</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unlock-full-potential-advanced-tips-for-zooming-images-in-snapchat/"><u>2024 Approved  Unlock Full Potential  Advanced Tips for Zooming Images in Snapchat</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-strategies-for-producing-top-notch-professional-gopro-content/"><u>2024 Approved  Strategies for Producing Top-Notch, Professional Gopro Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-essential-steps-for-podcast-rss-feed-creation/"><u>[Updated] 2024 Approved  Essential Steps for Podcast RSS Feed Creation</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/the-key-to-mastering-tiktok-a-user-friendly-manual-for-applewindows-computers-for-2024/"><u>The Key to Mastering TikTok  A User-Friendly Manual for Apple/Windows Computers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-alarm-tone-collection-premier-websites/"><u>2024 Approved  Alarm Tone Collection  Premier Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-crafting-harmonious-photographic-mosaics-with-ease/"><u>[Updated] In 2024, Crafting Harmonious Photographic Mosaics with Ease</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-professional-drones-an-in-depth-pilots-list/"><u>[Updated] Best Professional Drones – An In-Depth Pilot’s List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-explore-premium-free-online-tools-for-professional-video-tweaks/"><u>In 2024, Explore Premium Free Online Tools for Professional Video Tweaks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-in-depth-video-studio-analysis-comprehensive-xreview-guide/"><u>[Updated] 2024 Approved  In-Depth Video Studio Analysis  Comprehensive XReview Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/harvesting-high-returns-ginger-valley-farming-tips-for-2024/"><u>Harvesting High Returns  Ginger Valley Farming Tips for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigate-and-binge-with-finesse-perfect-use-of-floating-window-in-netflix/"><u>[Updated] Navigate and Binge with Finesse  Perfect Use of Floating Window in Netflix</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-cutting-edge-filmmaking-the-essential-cinematic-tips-of-24/"><u>In 2024, Cutting Edge Filmmaking  The Essential Cinematic Tips of '24</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-innovative-image-transformation-hacks/"><u>[Updated] Innovative Image Transformation Hacks</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-splitting-video-in-vsdc-step-by-step/"><u>New Splitting Video in VSDC Step by Step</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/cutting-edge-techniques-for-enhanced-visuals-in-videoleap-for-2024/"><u>Cutting-Edge Techniques for Enhanced Visuals in Videoleap for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-generate-humor-picmagic-creation/"><u>[Updated] 2024 Approved  Generate Humor  PicMagic Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/a-study-of-silliness-the-goofy-narrative-unpacked/"><u>A Study of Silliness  The Goofy Narrative Unpacked</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/proven-pathways-for-cutting-edge-obs-studio-edits-for-2024/"><u>Proven Pathways for Cutting-Edge OBS Studio Edits for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-achieve-professional-grade-aesthetics-top-10-insta-grid-makers/"><u>[Updated] In 2024, Achieve Professional-Grade Aesthetics  Top 10 Insta Grid Makers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-elite-select-best-apps-for-watching-live-boxing-and-international-football/"><u>In 2024, Elite Select  Best Apps for Watching Live Boxing & International Football</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-beginners-guide-to-masterful-marketing-with-reddit-insights/"><u>[Updated] Beginner's Guide to Masterful Marketing with Reddit Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-miniature-marketers-guide-to-video-promos-infographic/"><u>[Updated] Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/dynamic-duo-photography-and-musical-composition-for-2024/"><u>Dynamic Duo  Photography & Musical Composition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-building-a-brand-in-the-metaverse-ecosystem/"><u>[Updated] Building a Brand in the Metaverse Ecosystem</u></a></li>
+<li><a href="https://howto.techidaily.com/rust/live-server/"><u>Live Server</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-art-of-auditory-alchemy-does-the-magic-voice-modifier-work-seek-alternates/"><u>In 2024, The Art of Auditory Alchemy  Does the Magic Voice Modifier Work? Seek Alternates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-analysis-of-top-6-hdmi-enabled-monitors-for-2024/"><u>Comprehensive Analysis of Top 6 HDMI-Enabled Monitors for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-key-audio-archives-to-enhance-your-quiet-space-with-gentle-melodies/"><u>New In 2024, Key Audio Archives to Enhance Your Quiet Space with Gentle Melodies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-iphonepcs-best-video-conversion-software-8/"><u>2024 Approved  Unveiling iPhone/PC's Best Video Conversion Software #8</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/game-on-with-updated-windows-11-gems-for-2024/"><u>Game On with Updated Windows 11 Gems for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-elevate-your-broadcast-game-4-innovative-methods-from-desktop-users-on-tiktok/"><u>[New] In 2024, Elevate Your Broadcast Game  4 Innovative Methods From Desktop Users on TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-decoding-instagrams-music-copyright-doctrine/"><u>2024 Approved  Decoding Instagram's Music Copyright Doctrine</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-canvas-of-colors-advanced-theory-and-use/"><u>[Updated] A Canvas of Colors  Advanced Theory & Use</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-top-picks-for-zero-cost-film-and-photography-resources/"><u>[Updated] Top Picks for Zero-Cost Film and Photography Resources</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/windows-edition-filmmaking-essentials-expert-editor-suggestions/"><u>Windows Edition Filmmaking Essentials  Expert Editor Suggestions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-appreciation-showcase-outro-themes-for-all-budgets/"><u>[Updated] In 2024, Appreciation Showcase  Outro Themes for All Budgets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-fundamental-definitions-in-virtual-narrative-art/"><u>In 2024, Fundamental Definitions in Virtual Narrative Art</u></a></li>
+</ul></div>

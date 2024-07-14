@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Vision and Craft  Best Cinematography Practices\""
-date: 2024-06-25T19:14:06.294Z
-updated: 2024-06-26T19:14:06.294Z
+date: 2024-07-13T18:15:52.421Z
+updated: 2024-07-14T18:15:52.421Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,9 @@ Still, if you are on a budget, you can use some everyday household objects to ge
 
 Step 1 Attach your phone to the side of a door using duct tape or any strong tape that can hold your phone and not let it fall.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
 Step 2 Now open and close the door to get smooth camera movement.
@@ -40,6 +43,9 @@ Step 2 Now open and close the door to get smooth camera movement.
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### DIY LED Panel
 
 You can create LED Panel at home to add light to a subject. Unfortunately, LED strips do not produce bright light when spread as a straight line. However, we can use cardboard and LED light strips to build a broader, more brilliant light. Follow the steps below to make DIY LED Panel.
@@ -56,6 +62,9 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 
 Alright! Let's check out how it looks in the video below.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
 ### DIY Light Flag
@@ -98,6 +107,18 @@ Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### DIY Light Reflector
 
 A reflector is a piece of glass or any reflective surface that can redirect light to a specific spot. For example, use aluminum foil to make a Light Reflector at your home.
@@ -233,3 +254,47 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-m1-explored-apples-leap-in-computational-innovation-for-2024/"><u>[New] M1 Explored  Apple's Leap in Computational Innovation for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-countering-harshness-maintaining-poise-online/"><u>[New] In 2024, Countering Harshness  Maintaining Poise Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-envisioned-worlds-await-equip-yourself-with-these-7-devices/"><u>[Updated] Envisioned Worlds Await  Equip Yourself with These 7 Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/launching-on-big-sur-key-system-specs-needed/"><u>Launching on Big Sur  Key System Specs Needed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-next-level-thrills-with-samsungs-leading-vr-games/"><u>[New] 2024 Approved  Next-Level Thrills with Samsung's Leading VR Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-cutest-drone-companions-for-little-ones/"><u>[New] In 2024, Cutest Drone Companions for Little Ones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/pen-to-pixel-best-photography-caption-apps-iosandroid-for-2024/"><u>Pen to Pixel  Best Photography Caption Apps (iOS/Android) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-decoding-the-vertical-video-enigma-on-insta-for-2024/"><u>[New] Decoding the Vertical Video Enigma on Insta for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-expert-picks-the-finest-photo-frame-software/"><u>[Updated] In 2024, Expert Picks  The Finest Photo Frame Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-best-app-selection-perfecting-your-windows-display-captures/"><u>[New] 2024 Approved  Best App Selection  Perfecting Your Windows Display Captures</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-from-recording-to-releasing-editing-in-garageband/"><u>[Updated] From Recording to Releasing  Editing in GarageBand</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comprehensive-review-slomo-video-app-2024-edition/"><u>[New] Comprehensive Review  SloMo Video App - 2024 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-10-speedy-gaming-apps-for-mobile-and-desktop-for-2024/"><u>Top 10 Speedy Gaming Apps for Mobile and Desktop for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/harness-the-power-of-hashtags-in-instagram-marketing-strategies/"><u>Harness the Power of Hashtags in Instagram Marketing Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-master-your-mac-with-ease-an-ultimate-guide-to-utilizing-preview-app/"><u>[New] In 2024, Master Your Mac with Ease  An Ultimate Guide to Utilizing Preview App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-perfect-palette-pro/"><u>[New] Perfect Palette Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-deciphering-the-variance-between-metaverse-and-multi-meva-environments/"><u>[Updated] Deciphering the Variance Between Metaverse and Multi-Meva Environments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elevating-vision-a-compre-written-by-jovita-lara-msn-student-arizona-state-university/"><u>[Updated] In 2024, Elevating Vision  A Compre Written By  Jovita Lara, MSN Student (Arizona State University)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-key-methods-to-customize-song-speed-on-spotify/"><u>[Updated] In 2024, Key Methods to Customize Song Speed on Spotify</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-sculpting-stories-with-specialty-fonts-in-after-effects/"><u>[New] In 2024, Sculpting Stories with Specialty Fonts in After Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/speech-to-text-magic-free-edition-for-2024/"><u>Speech-to-Text Magic  Free Edition for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-harmonious-beginnings-inclusive-vocal-modification-software-options-for-novices-and-pros/"><u>New Harmonious Beginnings Inclusive Vocal Modification Software Options for Novices & Pros</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-essential-list-the-10-leading-vimeo-downloaders-web/"><u>[Updated] 2024 Approved  Essential List  The 10 Leading Vimeo Downloaders Web</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/tricks-to-simulate-historical-alterations/"><u>Tricks to Simulate Historical Alterations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transform-your-images-proven-pixlr-strategies/"><u>[New] Transform Your Images  Proven Pixlr Strategies</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-build-your-personal-brand-on-youtube-for-2024/"><u>How to Build Your Personal Brand on YouTube for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-vivo-s17e-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Vivo S17e? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-lava-blaze-2-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Lava Blaze 2 Pro Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-essential-manual-for-srt-conversion-techniques/"><u>The Essential Manual for SRT Conversion Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafting-impressive-grids-the-top-apps/"><u>[New] Crafting Impressive Grids - The Top Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-accelerate-engagement-quick-instagram-likes-and-videos-strategy/"><u>[Updated] Accelerate Engagement  Quick Instagram Likes and Videos Strategy</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-iphone-video-editing-showdown-cameo-against-filmorago/"><u>[Updated] IPhone Video Editing Showdown  Cameo Against FilmoraGo</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-smooth-transitions-in-photography-mastering-face-focused-motion-blur-in-picsart/"><u>[New] In 2024, Smooth Transitions in Photography  Mastering Face-Focused Motion Blur in Picsart</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/transform-trivial-images-into-masterpieces-online-for-2024/"><u>Transform Trivial Images Into Masterpieces Online for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-realme-12-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Realme 12 Pro 5G Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-opinion-on-slomo-recording-softwares-latest-version/"><u>[Updated] 2024 Approved  Expert Opinion on SloMo Recording Software's Latest Version</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-sky-high-savings-the-least-expensive-drones-on-market/"><u>[New] Sky-High Savings  The Least Expensive Drones on Market</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-innovative-conversational-entities-discord/"><u>[New] Innovative Conversational Entities (Discord)</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/viral-video-vibes-essential-quotable-phrases-for-your-tiktok-journey-for-2024/"><u>Viral Video Vibes  Essential Quotable Phrases for Your TikTok Journey for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-10-2d3d-animation-tips-and-tricks-for-you-for-2024/"><u>Updated 10 2D/3D Animation Tips & Tricks for You for 2024</u></a></li>
+</ul></div>

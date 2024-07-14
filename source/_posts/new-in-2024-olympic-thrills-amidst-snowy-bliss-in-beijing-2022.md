@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Olympic Thrills Amidst Snowy Bliss in Beijing 2022"
-date: 2024-06-25T18:41:00.143Z
-updated: 2024-06-26T18:41:00.143Z
+date: 2024-07-13T17:37:12.791Z
+updated: 2024-07-14T17:37:12.791Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,9 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
@@ -60,6 +63,9 @@ Eileen Gu's father is American while her mother is Chinese and she belongs to Sa
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
@@ -88,10 +94,16 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
@@ -122,3 +134,68 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-productivity-playlist-podcast-inspired-tasks-for-2024/"><u>[New] The Ultimate Productivity Playlist  Podcast-Inspired Tasks for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beneath-the-surface-secrets-to-professional-underwater-videos-with-gopro/"><u>Beneath the Surface  Secrets to Professional Underwater Videos with GoPro</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-much-space-does-a-days-video-take-up/"><u>[Updated] How Much Space Does a Day's Video Take Up?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-detailed-exploration-lightroom-app-on-the-android-platform/"><u>2024 Approved  Detailed Exploration  Lightroom App on the Android Platform</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-best-sonic-selection-software-for-android-users/"><u>[Updated] Best Sonic Selection Software for Android Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-merging-melodies-the-art-of-crossfading-for-2024/"><u>[New] Merging Melodies  The Art of Crossfading for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-first-flight-fun-best-easy-to-use-drones/"><u>[New] 2024 Approved  First Flight Fun  Best Easy-to-Use Drones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-standout-settings-guide-for-online-events/"><u>[Updated] Standout Settings Guide for Online Events</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-10-spectacularly-free-luts-elevate-with-exclusive-purchase-options/"><u>In 2024, 10 Spectacularly Free LUTs; Elevate with Exclusive Purchase Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-achieving-youtube-success-increasing-followers-quickly-for-2024/"><u>[New] Achieving YouTube Success  Increasing Followers Quickly for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/master-the-art-of-vlogging-starting-kit-and-tools/"><u>Master the Art of Vlogging  Starting Kit & Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-crafting-professional-visual-narratives-with-lut-usage-in-premiere/"><u>In 2024, Crafting Professional Visual Narratives with LUT Usage in Premiere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-pip-activatedeactivate-in-safari-on-apple-devices/"><u>2024 Approved  Mastering PIP  Activate/Deactivate in Safari on Apple Devices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-honor-x7b-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Honor X7b</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-free-online-music-beat-detection-tools-for-2024/"><u>Explore Free Online Music Beat Detection Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-sony-unveils-excellence-the-4k-smartphone-breakthrough-with-xperia-xz/"><u>[New] 2024 Approved  Sony Unveils Excellence  The 4K Smartphone Breakthrough with Xperia XZ</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-development-and-application-of-vr-shopping/"><u>In 2024, The Development and Application of VR Shopping</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/creative-uses-for-unwanted-or-supplementary-shots/"><u>Creative Uses for Unwanted or Supplementary Shots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/professional-streaming-made-easy-your-guide-to-zoom-and-youtube-integration-for-2024/"><u>Professional Streaming Made Easy  Your Guide to Zoom and YouTube Integration for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-ultimate-iphone-and-ipad-video-player-guide/"><u>[New] 2024 Approved  Ultimate iPhone & iPad Video Player Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-sequential-visual-narratives-with-photos/"><u>[Updated] Crafting Sequential Visual Narratives with Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-10-text-tools-elevating-creative-compositions/"><u>Top 10 Text Tools Elevating Creative Compositions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-desktop-merging-images-seamlessly/"><u>In 2024, Mastering Desktop  Merging Images Seamlessly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-camera-roll-to-youtube-the-ultimate-uploading-guide/"><u>From Camera Roll to YouTube  The Ultimate Uploading Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/cutting-edge-vector-images-top-10-websites/"><u>Cutting-Edge Vector Images  Top 10 Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-chortle-calls-greatest-funny-ringtone-hubs/"><u>In 2024, Chortle Calls  Greatest Funny Ringtone Hubs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-evolution-from-rgb-to-srgb-in-graphic-media-for-2024/"><u>The Evolution From RGB to Srgb in Graphic Media for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pro-tips-iphone-in-the-dark-spotlight-for-2024/"><u>[New] Pro Tips  IPhone in the Dark Spotlight for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-techniques-for-reality-warp-imagery/"><u>[New] Techniques for Reality Warp Imagery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-deciphering-the-rights-based-language-of-instagrams-music-features/"><u>[New] Deciphering the Rights-Based Language of Instagram's Music Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-solutions-to-mitigate-vibrational-jello-in-uav-recordings/"><u>[New] In 2024, Solutions to Mitigate Vibrational Jello in UAV Recordings</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-6s-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 6s without Password?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-win-10-wisdom-key-tips-and-tricks-guide/"><u>[New] Win 10 Wisdom  Key Tips and Tricks Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pioneering-perspectives-on-first-moments-in-audio/"><u>2024 Approved  Pioneering Perspectives on First Moments in Audio</u></a></li>
+<li><a href="https://fox-info.techidaily.com/top-7-camcorders-for-extreme-weather-and-splashes-review/"><u>Top 7 Camcorders for Extreme Weather and Splashes Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-fixing-problematic-youtube-shorts-thumbnails-display-for-2024/"><u>[Updated] Fixing Problematic YouTube Shorts Thumbnails Display for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora/"><u>In 2024, Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-photo-mastery-top-8-web-based-creation-suite/"><u>[New] In 2024, Photo Mastery  Top 8 Web-Based Creation Suite</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-direct-pathway-iphone-media-to-pc-transfer/"><u>2024 Approved  Direct Pathway  IPhone Media to PC Transfer</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-best-full-screen-recorder-for-pc-and-mac/"><u>[Updated] 2024 Approved  Best Full Screen Recorder for PC and Mac</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-itel-p55plus-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Itel P55+ Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essential-components-of-podcast-scripting-guide-plus-free-examples-for-2024/"><u>The Essential Components of Podcast Scripting (Guide + Free Examples) for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-immediately-fix-non-responsive-dp-connections/"><u>How to Immediately Fix Non-Responsive DP Connections</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/deconstructing-trillers-distinct-identity-in-the-realm-of-social-media/"><u>Deconstructing Triller's Distinct Identity in the Realm of Social Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-dji-aerial-units-baseline-upgraded-ultrahd-experts/"><u>In 2024, DJI Aerial Units  Baseline, Upgraded, UltraHD Experts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/5-preferred-sites-to-download-dynamic-and-versatile-text-effects/"><u>5 Preferred Sites to Download Dynamic and Versatile Text Effects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-realme-c55-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Realme C55</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-future-proofing-filmmaking-with-green-tools/"><u>In 2024, Future-Proofing Filmmaking with Green Tools</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-mastering-video-ratio-changes-a-quick-and-painless-process/"><u>2024 Approved Mastering Video Ratio Changes A Quick and Painless Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-vs-removing-loved-ones-from-fb/"><u>Keeping Memories Alive Vs. Removing Loved Ones From FB</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-become-a-video-quality-guru-with-vce-22-knowledge/"><u>[Updated] 2024 Approved  Become a Video Quality Guru with VCE 2.2 Knowledge</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-vivo-v29e-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Vivo V29e Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-premier-choices-the-5-foremost-webcams-for-live-gamers-for-2024/"><u>[Updated] Premier Choices  The 5 Foremost Webcams for Live Gamers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-photography-fundamentals-tips-and-apps-for-android/"><u>[New] Photography Fundamentals  Tips & Apps for Android</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-perfecting-your-screen-recording-during-games/"><u>2024 Approved  Perfecting Your Screen Recording During Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-streamlining-multimedia-experiences-through-youtube-music-links/"><u>In 2024, Streamlining Multimedia Experiences Through YouTube Music Links</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-gopro-camera-rewind-selecting-superior-sd-cards-hero-7-8/"><u>[New] In 2024, GoPro Camera Rewind  Selecting Superior SD Cards (Hero 7, 8)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-revolutionize-your-workflow-with-these-top-10-mac-capture-tools/"><u>[New] 2024 Approved  Revolutionize Your Workflow with These Top 10 Mac Capture Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-best-practices-in-winning-tv-recording-with-software/"><u>[Updated] In 2024, Best Practices in Winning TV Recording with Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-10-apps-to-boost-audio-velocity/"><u>In 2024, Ultimate 10 Apps to Boost Audio Velocity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-combined-sound-and-sight-workstation/"><u>[New] Combined Sound & Sight Workstation</u></a></li>
+</ul></div>

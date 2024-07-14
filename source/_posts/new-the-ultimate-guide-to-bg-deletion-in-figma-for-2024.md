@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Guide to BG Deletion in Figma for 2024"
-date: 2024-06-25T18:54:26.595Z
-updated: 2024-06-26T18:54:26.595Z
+date: 2024-07-13T17:52:54.069Z
+updated: 2024-07-14T17:52:54.069Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,9 @@ This function lets you use brushstrokes to remove watermarks from your target pi
 
 With its Image Englargement feature, you can expand the size of your picture up to 400% without losing the quality.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to use PixCut to remove the background in Figma
 
 Here's how you can get the PixCut plugin in Figma and use it to remove the background in just three simple steps:
@@ -72,6 +75,9 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
@@ -83,6 +89,9 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -141,6 +150,9 @@ Another alternative is to use any tool that **removes the image background onlin
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
@@ -176,3 +188,42 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-proven-iphone-tips-effortless-video-length-and-size-control/"><u>[New] In 2024, Proven iPhone Tips  Effortless Video Length & Size Control</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-8-essential-video-metadata-editors-for-mac-users-updated-2023-for-2024/"><u>Updated 8 Essential Video Metadata Editors for Mac Users (Updated 2023) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-windows-11-photos-setup-guide-adding-aesthetic-overlays-and-music/"><u>[New] 2024 Approved  Windows 11 Photos Setup Guide  Adding Aesthetic Overlays & Music</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elegant-departures-from-zero-costs-to-paid-options-for-2024/"><u>[New] Elegant Departures  From Zero Costs to Paid Options for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ai-powered-name-ideas-for-standout-podcast-titles/"><u>[Updated] 2024 Approved  AI-Powered Name Ideas for Standout Podcast Titles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-integrating-whatsapp-into-your-twitter-video-sharing-routine/"><u>[Updated] 2024 Approved  Integrating WhatsApp Into Your Twitter Video Sharing Routine</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-asmr-explained-why-it-might-be-good-for-you/"><u>[New] In 2024, ASMR Explained  Why It Might Be Good For You</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-instant-video-mastery-editing-made-effortless-in-windows-11/"><u>[New] In 2024, Instant Video Mastery  Editing Made Effortless in Windows 11</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-se-2020-data-from-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone SE (2020) Data From iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-music-livestream-providers/"><u>[New] Top Music Livestream Providers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-full-picture-the-essence-of-google-podcasts-app-for-2024/"><u>[New] Full Picture  The Essence of Google Podcasts App for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlock-humor-potential-quickly-kapwings-app/"><u>[New] In 2024, Unlock Humor Potential Quickly - Kapwing's App</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-resolved-inaccessible-full-screen-obs/"><u>[Updated] In 2024, Resolved  Inaccessible Full Screen OBS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-podcast-basics-crafting-your-first-rss-feed/"><u>[Updated] Podcast Basics  Crafting Your First RSS Feed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-for-beginners-the-top-8-versatile-cameras-under-400/"><u>[New] For Beginners  The Top 8 Versatile Cameras Under $400</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vegas-pro-2021-unpacked-game-changer-or-just-another-tool-for-2024/"><u>[New] Vegas Pro 2021 Unpacked  Game Changer or Just Another Tool for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-clear-vision-in-gaming-captures-overcoming-obs-black-screens-for-2024/"><u>[Updated] Clear Vision in Gaming Captures  Overcoming OBS Black Screens for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-vimeo-chaptering-organizing-video-sections/"><u>[Updated] 2024 Approved  Vimeo Chaptering  Organizing Video Sections</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-script-to-screen-crafting-your-unique-youtube-tale-for-2024/"><u>[Updated] From Script to Screen  Crafting Your Unique YouTube Tale for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/strategic-use-of-slug-lines-in-blogging-for-2024/"><u>Strategic Use of Slug Lines in Blogging for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-best-iphone-selfie-devices-ranked-8/"><u>[New] The Best Iphone Selfie Devices Ranked (#8)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-laptoppc-video-editing-tools-apart-from-inshot/"><u>[New] Laptop/PC Video Editing Tools Apart From Inshot</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-audio-file-fusion-seamless-conversion-from-srt-to-other-formats/"><u>[Updated] 2024 Approved  Audio File Fusion  Seamless Conversion From SRT to Other Formats</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premium-camcorders-head-on-video-sharing-for-2024/"><u>[New] Premium Camcorders  Head-On Video Sharing for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-mastering-your-tiktok-identity-comprehensive-adjustment-instructions/"><u>[Updated] Mastering Your TikTok Identity  Comprehensive Adjustment Instructions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-augmenting-learning-with-vr/"><u>[Updated] 2024 Approved  Augmenting Learning with VR</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/overhaul-mistaken-persona-display-within-social-media-messages-for-2024/"><u>Overhaul Mistaken Persona Display Within Social Media Messages for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-backdrops-to-blending-understanding-green-screen-technology/"><u>[New] From Backdrops to Blending  Understanding Green Screen Technology</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-drone-racers-manual-fundamentals-to-high-scores-and-best-drones/"><u>[New] Drone Racer's Manual  Fundamentals to High Scores and Best Drones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-5-must-know-strategies-for-effective-team-video-calls-for-2024/"><u>[Updated] 5 Must-Know Strategies for Effective Team Video Calls for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/understanding-and-exploring-telegrams-online-features/"><u>Understanding and Exploring Telegram's Online Features</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-comprehensive-guide-best-10-free-file-type-changers-jpg-to-gif/"><u>[New] In 2024, Comprehensive Guide  Best 10 Free File Type Changers (JPG to GIF)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-quick-start-how-to-preserve-your-favorite-internet-streams-for-2024/"><u>[New] Quick Start  How To Preserve Your Favorite Internet Streams for 2024</u></a></li>
+</ul></div>

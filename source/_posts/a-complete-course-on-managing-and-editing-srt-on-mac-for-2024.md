@@ -1,7 +1,7 @@
 ---
 title: "A Complete Course on Managing and Editing SRT on Mac for 2024"
-date: 2024-06-25T19:06:40.119Z
-updated: 2024-06-26T19:06:40.119Z
+date: 2024-07-13T18:07:11.003Z
+updated: 2024-07-14T18:07:11.003Z
 tags: 
   - screen-recording
   - ai video
@@ -124,6 +124,9 @@ Step4 The video will begin playing. Go to the menu bar and click on the Subtitle
 
 Step5 Choose the SRT file from your device and then load it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
 
 For opening **SRT for Mac,** you can download the third-party software of [HappyScribe](https://www.happyscribe.com/). This software has automatic transcription features, with multilingual support, i.e., edit SRT files in different languages besides English, like Dutch and Hebrew.
@@ -156,6 +159,9 @@ Step1 Open HappyScribe through your preferred browser. Press the Upload a File o
 
 Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
 
 Step3 Make changes to the text color, caption, position, and font, as needed.
@@ -277,6 +283,9 @@ Step1 Go to the Mac homepage and access the TextEdit app.
 
 Step2 Open a new file and type 1 in the editor timeline to indicate the caption sequence you are starting with. Hit Enter.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![type in the editor timeline](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-1.jpg)
 
 Step3 Add the starting and ending time codes with the following command. Press Enter again.
@@ -323,6 +332,9 @@ Step2 Download a compatible SRT file, if not available.
 
 Keep both the video you are adding the SRT into and the downloaded SRT file in one folder on your Mac device.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![keep both video and srt file in one folder](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-3.jpg)
 
 Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
@@ -474,3 +486,49 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-video-editing.techidaily.com/updated-what-is-the-best-frame-rate-for-4k-videos-in-2024/"><u>Updated What Is the Best Frame Rate for 4K Videos, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-incredible-mobile-photography-and-videography-apps-for-iosandroid/"><u>[New] 2024 Approved  Incredible Mobile Photography & Videography Apps for iOS/Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-auditory-ambience-finder-for-film-and-video-sets/"><u>2024 Approved  Auditory Ambience Finder  For Film and Video Sets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-future-of-android-time-lapses-innovations-in-video-capture/"><u>[Updated] The Future of Android Time-Lapses  Innovations in Video Capture</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-xiaomis-aerial-camera-test-in-full-hd/"><u>[Updated] Xiaomi's Aerial Camera Test in Full HD</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-virtual-swordplay-showdown-find-your-match-in-these-games/"><u>[New] In 2024, Virtual Swordplay Showdown  Find Your Match in These Games</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-the-youtube-content-manager-toolkit/"><u>[Updated] Exploring the YouTube Content Manager Toolkit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-heritage-on-display-post-copyright-masterpieces/"><u>2024 Approved  Heritage on Display  Post-Copyright Masterpieces</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pro-photographers-choices-ranking-the-top-6-4k-dslrs-for-2024/"><u>[Updated] Pro Photographers’ Choices  Ranking the Top 6 4K DSLRs for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/iphone-13-mini-icloud-activation-lock-bypass-by-drfone-ios/"><u>iPhone 13 mini iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-building-dynamic-youtube-music-chains/"><u>2024 Approved  Building Dynamic YouTube Music Chains</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-peeling-back-the-curtain-on-youtubes-content-popularity-index/"><u>2024 Approved  Peeling Back the Curtain on YouTube's Content Popularity Index</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-navigating-the-maze-of-selecting-film-teasers-music/"><u>[New] 2024 Approved  Navigating the Maze of Selecting Film Teasers' Music</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-enthralling-audiences-a-compilation-of-top-video-ideas/"><u>[New] 2024 Approved  Enthralling Audiences  A Compilation of Top Video Ideas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhancing-facial-realism-applying-motion-blur-effects-via-picsart/"><u>In 2024, Enhancing Facial Realism  Applying Motion Blur Effects via Picsart</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-vegaspro-2019-update-changes-and-impacts/"><u>[New] 2024 Approved  VegasPro 2019 Update  Changes & Impacts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/amazons-trendy-treasures-the-must-have-tiktok-finds-of-2023-for-2024/"><u>Amazon's Trendy Treasures - The Must-Have TikTok Finds of 2023 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-dynamic-photovideo-gimbal-unmatched-stabilization/"><u>In 2024, Dynamic Photo/Video Gimbal  Unmatched Stabilization</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-infuse-projects-with-sounds-in-adobe-premiere-pro/"><u>[Updated] In 2024, Infuse Projects with Sounds in Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-iphone-recording-apps-for-2024/"><u>Essential iPhone Recording Apps for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transforming-srt-into-subc-top-3-actionable-steps/"><u>2024 Approved  Transforming SRT Into SUBC  Top 3 Actionable Steps</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-best-volume-normalizers-how-to-normalize-audio-in-videos/"><u>Updated 2024 Approved Best Volume Normalizers How to Normalize Audio in Videos?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transform-into-a-hdr-photography-wizard-via-photoshop/"><u>In 2024, Transform Into a HDR Photography Wizard via Photoshop</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-instagram-video-orientation-whats-the-flip/"><u>[New] 2024 Approved  Instagram Video Orientation - What's the Flip?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/enhancing-tiktok-video-viewership-through-zoom-for-2024/"><u>Enhancing TikTok Video Viewership Through Zoom for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-rgb-vs-srgb-color-representations-compared/"><u>[Updated] In 2024, RGB vs Srgb  Color Representations Compared</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-free-audio-magic-at-your-fingertips-the-essential-top-10-sound-blending-software/"><u>Updated Free Audio Magic at Your Fingertips The Essential Top 10 Sound Blending Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-revealing-successful-markets-for-2024/"><u>[Updated] Revealing Successful Markets for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-10-ultimate-simulators-for-androids-gb-games/"><u>[New] In 2024, 10 Ultimate Simulators for Android's GB Games</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-spark-creativity-with-costless-auditory-extras/"><u>2024 Approved  Spark Creativity with Costless Auditory Extras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/viral-visionaries-top-ten-meme-templates-exposed-for-2024/"><u>Viral Visionaries  Top Ten Meme Templates Exposed for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unravel-the-best-web-resources-for-perfecting-your-video-subtitles/"><u>Unravel the Best Web Resources for Perfecting Your Video Subtitles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-silent-symphonies-tranquil-audio-transitioning-tools/"><u>[Updated] In 2024, Silent Symphonies  Tranquil Audio Transitioning Tools</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-lava-agni-2-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Lava Agni 2 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expertise-in-audio-file-transformation-from-srt-to-xmlssattml/"><u>2024 Approved  Expertise in Audio File Transformation  From SRT to XML/SSA/TTML</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-budget-game-design-tools-and-software-for-aspiring-developers/"><u>2024 Approved  Budget Game Design Tools and Software for Aspiring Developers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-innovative-titles-to-lengthen-viewing-times-within-limit/"><u>[Updated] Innovative Titles to Lengthen Viewing Times (Within Limit)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instaloops-create-content-that-circulates-and-captivates/"><u>[Updated] In 2024, InstaLoops  Create Content That Circulates & Captivates</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-elevate-your-video-editing-game-top-5-final-cut-pro-tips-and-tricks/"><u>2024 Approved Elevate Your Video Editing Game Top 5 Final Cut Pro Tips and Tricks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-value-in-4k-cameras-for-under-1000-for-2024/"><u>Best Value in 4K Cameras for Under $1,000 for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-lightning-fast-method-for-double-exposure-filming/"><u>2024 Approved  Lightning-Fast Method for Double Exposure Filming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-4k-videography-with-prime-optics-for-2024/"><u>[Updated] Mastering the Art of 4K Videography with Prime Optics for 2024</u></a></li>
+</ul></div>

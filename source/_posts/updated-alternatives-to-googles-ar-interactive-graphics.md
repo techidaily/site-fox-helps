@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Alternatives to Google's AR Interactive Graphics"
-date: 2024-06-25T19:44:35.020Z
-updated: 2024-06-26T19:44:35.020Z
+date: 2024-07-13T18:51:46.788Z
+updated: 2024-07-14T18:51:46.788Z
 tags: 
   - screen-recording
   - ai video
@@ -104,6 +104,9 @@ Step6 You'll see the video you recorded on the left side of the screen. Tap the 
 
 Step7 Preview your video, edit as needed, and export it.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![exporting recorded video on filmora iphone](https://images.wondershare.com/filmorago/article-image/trim-the-animoji-video-you-record-on-filmorago.jpg)
 
 ### To Edit an AR Selfie Video on iPhone
@@ -158,6 +161,9 @@ Google AR Stickers are great for enhancing your photos and videos. Too bad it's 
 
 Are you an Android or iPhone user? Filmora AR Camera is also available on these platforms. So you can join in on the fun!
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Filmora AR Camera Features
 
 Filmora for Mobile's AR Camera feature has many things to offer. It lets you take photos and videos with virtual characters. Also, you can add digital content (a helmet on your head, for example) to your photo to enhance it. You also don't have to be in the frame to use Filmora for Mobile's AR stickers. There are so many sticker options you can use as the subject instead.
@@ -174,6 +180,9 @@ Step1 Install Filmora for Mobile from the App store.
 
 Step2 Tap the "Camera" button on the right panel.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ar camera option on filmora iphone](https://images.wondershare.com/filmorago/article-image/camera-icon-on-filmorago.jpg)
 
 Step3 Tap the "Frame" icon at the top right to adjust the video ratio. It's also how you switch between the front and rear cameras.
@@ -200,6 +209,9 @@ Step1 After recording an AR video, tap "Edit."
 
 Step2 Tap "Canvas" to adjust the video ratio size so it would be perfect for TikTok or Instagram. We also recommend using Filmora for Mobile's features to blur the background to enhance the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![canvas button on filmora for iphone](https://images.wondershare.com/filmorago/article-image/canvas-setting-for-video-on-filmorago.jpg)
 
 Step3 Tap "Filters" to add more magic to the video.
@@ -265,3 +277,64 @@ Google AR Stickers are great for enhancing your photos and videos. Too bad it's 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-joining-jpeg-worlds-with-ease-and-skill/"><u>2024 Approved  Joining JPEG Worlds with Ease and Skill</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-fine-tuning-fade-effects-in-music-software/"><u>2024 Approved  Fine-Tuning Fade Effects in Music Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-in-depth-analysis-ultimate-storage-choices/"><u>2024 Approved  In-Depth Analysis  Ultimate Storage Choices</u></a></li>
+<li><a href="https://driver-install.techidaily.com/resolve-lexmark-scanner-hangs-in-win11/"><u>Resolve Lexmark Scanner Hangs in Win11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-ae-text-preset-collection-the-best-of-both-worlds/"><u>[New] 2024 Approved  AE Text Preset Collection  The Best of Both Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cutting-edge-3d-animations-made-easy-by-leading-applications/"><u>2024 Approved  Cutting-Edge 3D Animations Made Easy by Leading Applications</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-chuckle-forge-mutant-comedy-creatures/"><u>[Updated] Chuckle Forge  Mutant Comedy Creatures</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-fix-stuck-instagram-story-pins/"><u>2024 Approved  Fix Stuck Instagram Story Pins</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-achieving-depth-in-indoor-vlogging-lighting/"><u>[New] In 2024, Achieving Depth in Indoor Vlogging Lighting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-intro-excellence-app-your-device-friendly-solution/"><u>2024 Approved  Intro Excellence App  Your Device-Friendly Solution</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/best-backgrounds-for-live-streaming-2023-for-2024/"><u>Best Backgrounds for Live Streaming 2023 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-book-trailers-reviewed-top-5-picks-revealed/"><u>2024 Approved  Book Trailers Reviewed  Top 5 Picks Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gratitude-unboxed-free-and-paid-creative-otus/"><u>2024 Approved  Gratitude Unboxed  Free & Paid Creative OTUs</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-top-rated-font-creation-tools-for-discord-on-devices/"><u>[New] 2024 Approved  Top-Rated Font Creation Tools for Discord on Devices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-top-video-reverse-tools/"><u>New In 2024, Top Video Reverse Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-decreasing-mix-intensity-step-by-step/"><u>2024 Approved  Decreasing Mix Intensity Step by Step</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-wisdom-a-compilation-of-inspiring-thoughts/"><u>2024 Approved  Metaverse Wisdom  A Compilation of Inspiring Thoughts</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-best-video-to-live-photos-apps-plushowtos-for-2024/"><u>Updated Best Video to Live Photos Apps +Howtos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-on-the-road-and-recorded-essential-helmet-cams-unveiled-for-bikers-gear/"><u>2024 Approved  On the Road & Recorded - Essential Helmet Cams Unveiled for Bikers' Gear</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-directory-where-to-download-youtube-ringtones/"><u>2024 Approved  Ultimate Directory  Where to Download YouTube Ringtones?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-10-essential-screen-recording-apps-for-mac-users/"><u>[New] In 2024, 10 Essential Screen Recording Apps for Mac Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-leveraging-chromes-picture-in-picture-for-multi-screen-browsing/"><u>2024 Approved  Leveraging Chrome's Picture-In-Picture for Multi-Screen Browsing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-practices-top-5-audio-recording-approaches-on-windows-11-platform/"><u>2024 Approved  Best Practices  Top 5 Audio Recording Approaches on Windows 11 Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-lowering-sound-gradually-a-logic-pro-method/"><u>2024 Approved  Lowering Sound Gradually  A Logic Pro Method</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-accelerate-content-consumption-tiktoks-fast-forward-tricks/"><u>In 2024, Accelerate Content Consumption  TikTok's Fast-Forward Tricks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-experts-choice-best-hdmi-21-display-models-evaluated/"><u>2024 Approved  Expert's Choice  Best HDMI 2.1 Display Models Evaluated</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-how-to-screenshot-on-mac-5-simple-ways/"><u>[New] How to Screenshot on Mac - 5 Simple Ways</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/enhancing-webcam-video-quality-on-macbook-for-2024/"><u>Enhancing Webcam Video Quality on MacBook for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-enhancing-televisual-engagement-through-fb-live/"><u>[Updated] 2024 Approved  Enhancing Televisual Engagement Through FB Live</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-windows-10-webcam-recording-made-easy-top-10-software-for-2024/"><u>Updated Windows 10 Webcam Recording Made Easy Top 10 Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-explore-chromes-full-screen-multitasking-capabilities/"><u>2024 Approved  Explore Chrome's Full-Screen Multitasking Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-integrating-microsofts-azure-transcription-service-in-code/"><u>2024 Approved  Integrating Microsoft's Azure Transcription Service in Code</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-infinix-zero-5g-2023-turbo-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Infinix Zero 5G 2023 Turbo Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-comprehensive-overview-the-top-12-free-user-friendly-video-players-and-apps-pcandroid/"><u>2024 Approved  Comprehensive Overview  The Top 12 Free, User-Friendly Video Players & Apps (PC/Android)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-framework-for-seamless-video-storytelling/"><u>The Framework for Seamless Video Storytelling</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-complete-insight-gopro-silver-hero4-detailed-assessment/"><u>2024 Approved  Complete Insight  GoPro Silver Hero4 Detailed Assessment</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-top-5-best-ps3-emulator-for-pc-2023/"><u>[Updated] 2024 Approved  Top 5 Best Ps3 Emulator For PC 2023</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-gain-more-followers-masterful-youtube-marketing-techniques/"><u>In 2024, Gain More Followers  Masterful YouTube Marketing Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-effective-streaming-strategies-facebook-crossposting/"><u>[Updated] Effective Streaming Strategies  Facebook Crossposting</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-how-to-ai-denoise/"><u>2024 Approved How to AI DeNoise</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-photography-made-easy-select-top-writing-apps/"><u>2024 Approved  Photography Made Easy  Select Top Writing Apps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-historical-insights-top-educational-yt-creators-for-2024/"><u>[New] Historical Insights  Top Educational YT Creators for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-image-jokes-laughgenix-hub/"><u>2024 Approved  Image Jokes  LaughGenix Hub</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-vs-multimetaverse-key-distinctions-and-comparison/"><u>2024 Approved  Metaverse Vs. Multimetaverse  Key Distinctions and Comparison</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-carve-custom-web-laughter-cutouts-today/"><u>2024 Approved  Carve Custom Web Laughter Cutouts Today</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-essential-websites-to-drive-youtube-engagement/"><u>2024 Approved  Essential Websites to Drive YouTube Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dialogues-that-drive-diversity-discussing-with-a-multicultural-audience/"><u>2024 Approved  Dialogues That Drive Diversity  Discussing with a Multicultural Audience</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-joining-the-zoom-community-with-ease-on-an-android-device/"><u>2024 Approved  Joining the Zoom Community with Ease on an Android Device</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimizing-your-online-presence-zooming-into-tiktok-videos/"><u>2024 Approved  Optimizing Your Online Presence  Zooming Into TikTok Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-snapchat-style-stories-with-10-hot-tweets/"><u>In 2024, Snapchat-Style Stories with 10 Hot Tweets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhancing-zoom-sessions-with-video-filters-a-guide/"><u>2024 Approved  Enhancing Zoom Sessions with Video Filters  A Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-kid-tested-wet-weather-videography-gear-for-newbies/"><u>2024 Approved  Kid-Tested Wet Weather Videography Gear for Newbies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-iphone-filmmakers-choice-top-8-free-and-paid-app-list/"><u>2024 Approved  IPhone Filmmakers' Choice  Top 8 Free & Paid App List</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-lava-yuva-2-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Lava Yuva 2</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-motion-mastery-top-free-afx-template-collection/"><u>2024 Approved  Motion Mastery  Top Free AFX Template Collection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-harmonizing-your-windows-photos-how-to-incorporate-audio-visual-features/"><u>2024 Approved  Harmonizing Your Windows Photos  How to Incorporate Audio-Visual Features</u></a></li>
+</ul></div>

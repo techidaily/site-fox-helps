@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Your Sound Story  Utilizing Audition's Fade In\""
-date: 2024-06-25T19:52:17.995Z
-updated: 2024-06-26T19:52:17.995Z
+date: 2024-07-13T19:00:53.827Z
+updated: 2024-07-14T19:00:53.827Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,9 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 * Now, if you choose Fade Envelope and of course, it is giving you the fade right the way through the audio. It will adjust for you and this is based on a Smooth Fade In.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![fade envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/fade-envelop-adobe-audition.jpg)
 
 * Now, go back to the Effects, Amplitude, and Compression and Click on Fade Envelope. Then, choose a Smooth Fade Out and there you will see after zooming a little bit more, a yellow line has been drawn to show what fade effect is going to be applied.
@@ -78,6 +81,9 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -113,6 +119,9 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -121,6 +130,9 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
@@ -156,3 +168,50 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-quick-collage-creation-a-step-by-step-guide-for-google-images/"><u>[New] In 2024, Quick Collage Creation  A Step-by-Step Guide for Google Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-picturing-laughter-building-memes-with-text-tool/"><u>In 2024, Picturing Laughter  Building Memes with Text Tool</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/sony-bdp-s6700-fresh-perspective-for-2024/"><u>Sony BDP-S6700 - Fresh Perspective for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlock-professional-editing-techniques-in-fcp-for-2024/"><u>Unlock Professional Editing Techniques in FCP for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essential-list-8-leading-tools-for-video-translation-mastery-for-2024/"><u>[New] Essential List  8 Leading Tools for Video Translation Mastery for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-picks-essential-voice-transformers-for-vtuber-success-for-2024/"><u>Top Picks  Essential Voice Transformers for VTuber Success for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-unveiling-the-hidden-potential-of-earnings-on-vimeo-platforms/"><u>[New] 2024 Approved  Unveiling the Hidden Potential of Earnings on Vimeo Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveil-the-potential-of-vfx-animated-text-for-free/"><u>[New] In 2024, Unveil the Potential of VFX  Animated Text for Free</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-straightforward-guide-to-photo-uploads-on-instagram/"><u>In 2024, The Straightforward Guide to Photo Uploads on Instagram</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-asymmetric-soothing-sound-the-best-asmr-gear-without-a-heavy-price-tag/"><u>2024 Approved  Asymmetric Soothing Sound  The Best ASMR Gear Without a Heavy Price Tag</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-oppo-a38-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Oppo A38 Phone that is Locked?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-audio-harmony-seekers-perfecting-video-moods/"><u>[New] Audio Harmony Seekers  Perfecting Video Moods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-xsplit-vs-obs-which-one-simplifies-live-broadcast/"><u>In 2024, XSplit Vs. OBS – Which One Simplifies Live Broadcast?</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-a-comparative-review-sns-hdr-pro-and-other-editors/"><u>2024 Approved  A Comparative Review  SNS HDR Pro and Other Editors</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-bridging-gaps-online-effective-techniques-for-screenshare-on-fb/"><u>[New] 2024 Approved  Bridging Gaps Online  Effective Techniques for Screenshare on FB</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pc-virtual-reality-hits-top-10-for-2024/"><u>[New] PC Virtual Reality Hits  Top 10 for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-go-beyond-screens-how-to-watch-360-videos-and-vr-via-android/"><u>[New] 2024 Approved  Go Beyond Screens  How to Watch 360 Videos & VR via Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-eclectic-videoland-rating/"><u>2024 Approved  Eclectic Videoland Rating</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-digital-magic-uncovering-premier-3d-animation-software-for-2024/"><u>[New] Digital Magic  Uncovering Premier 3D Animation Software for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-hacking-twitters-humor-for-personal-use-on-pc-for-2024/"><u>[New] Hacking Twitter's Humor for Personal Use on PC for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-ios-and-android-perfecting-your-chat-tone-with-whatsapp-ringtones/"><u>[New] 2024 Approved  IOS & Android  Perfecting Your Chat Tone with WhatsApp Ringtones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-real-time-stage-performances/"><u>[New] 2024 Approved  Best Real-Time Stage Performances</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-navigating-to-get-windows-movie-maker-6-installed/"><u>[New] In 2024, Navigating to Get Windows Movie Maker 6 Installed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-innovative-metaverse-gags-and-their-creators/"><u>[New] In 2024, Innovative Metaverse Gags & Their Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-monochrome-to-masterpiece-pro-photo-hue-harmony-for-2024/"><u>[New] From Monochrome to Masterpiece  Pro Photo Hue Harmony for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/synergistic-campaigns-brands-and-youtube-hand-in-hand/"><u>Synergistic Campaigns  Brands & YouTube Hand in Hand</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/the-ultimate-software-for-reviving-unavailable-disk-sectors-and-forgotten-drives/"><u>The Ultimate Software for Reviving Unavailable Disk Sectors & Forgotten Drives</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-focus-on-essentials-affinity-method/"><u>In 2024, Focus on Essentials - Affinity Method</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-beginners-pathway-to-custom-vocalization-expert-tips-on-modifying-sounds-free/"><u>[New] The Beginner's Pathway to Custom Vocalization  Expert Tips on Modifying Sounds (Free)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/transforming-visuals-10-must-try-text-upgrades-in-videos/"><u>Transforming Visuals  10 Must-Try Text Upgrades in Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-samsung-galaxy-f34-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Samsung Galaxy F34 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-immersion-and-interaction-the-high-definition-shift-of-hp-envy-27/"><u>In 2024, Immersion and Interaction  The High-Definition Shift of HP Envy 27</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-photoframe-prospectus-essential-list-of-software-sites-and-tools/"><u>In 2024, Photoframe Prospectus  Essential List of Software Sites & Tools</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-unlocking-the-art-of-slow-time-video-on-tiktok/"><u>[Updated] Unlocking the Art of Slow Time Video on TikTok</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treaming-your-way-to-animated-gifs-from-youtube-videos/"><u>[New] Streaming Your Way to Animated GIFs From YouTube Videos</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-zte-axon-40-lite-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/master-curves-transforming-photos-in-ps-for-2024/"><u>Master Curves  Transforming Photos in PS for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/perfect-cone-view-mounts-vr/"><u>Perfect Cone View Mounts VR</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-best-first-flight-drones-for-youngsters-and-new-pilots/"><u>[Updated] Best First Flight Drones for Youngsters & New Pilots</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-motorola-moto-g14-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Motorola Moto G14 Android SIM Unlock APK</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boost-visibility-with-a-bespoke-youtube-channel-url/"><u>[New] Boost Visibility with a Bespoke YouTube Channel URL</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-best-ai-naming-assistants-for-podcast-innovation/"><u>The Best AI Naming Assistants for Podcast Innovation</u></a></li>
+</ul></div>
