@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Secrets to Subtle Sound Diminishment in Lumafusion"
-date: 2024-07-13T17:37:41.317Z
-updated: 2024-07-14T17:37:41.317Z
+date: 2024-07-29T17:44:17.568Z
+updated: 2024-07-30T17:44:17.568Z
 tags: 
   - screen-recording
   - ai video
@@ -174,3 +174,58 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevating-vistas-mastering-vertical-mobile-photography/"><u>[New] 2024 Approved  Elevating Vistas  Mastering Vertical Mobile Photography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unmatched-visual-transformation-toolkit/"><u>[New] 2024 Approved  Unmatched Visual Transformation Toolkit</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-boosting-color-with-adobes-top-10-luts/"><u>[New] Boosting Color with Adobe’s Top 10 LUTs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-encompassing-insight-a-look-inside-the-google-podcasts-app/"><u>[New] Encompassing Insight  A Look Inside the Google Podcasts App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-chinas-low-cost-vr-solutions/"><u>[New] In 2024, China's Low-Cost VR Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-navigating-lut-integration-in-adobe-ae/"><u>[New] In 2024, Navigating LUT Integration in Adobe AE</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximizing-visuals-a-step-by-step-guide-for-buying-a-4k-monitor/"><u>[New] Maximizing Visuals  A Step-by-Step Guide for Buying a 4K Monitor</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-navigate-the-transfer-of-social-media-photos-to-hard-drive-for-2024/"><u>[New] Navigate the Transfer of Social Media Photos to Hard Drive for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-perfect-palette-playbook-mastering-the-art-of-grading/"><u>[New] Perfect Palette Playbook  Mastering the Art of Grading</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-guide-to-selecting-a-superior-camcorder-for-2024/"><u>[New] Ultimate Guide to Selecting a Superior Camcorder for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-your-design-how-to-eliminate-backgrounds-in-figma/"><u>[New] Unveiling Your Design  How To Eliminate Backgrounds in Figma</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-community-shared-music-collections-copyright-free/"><u>[Updated] 2024 Approved  Community-Shared Music Collections (Copyright-Free)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-picturing-laughter-building-memes-with-text-tool/"><u>[Updated] 2024 Approved  Picturing Laughter  Building Memes with Text Tool</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-podcast-cover-design-ten-essential-best-practices/"><u>[Updated] 2024 Approved  Podcast Cover Design  Ten Essential Best Practices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pro-hdr-image-creation-with-photoshop-secrets/"><u>[Updated] 2024 Approved  Pro HDR Image Creation with Photoshop Secrets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-7-superior-mac-video-applications-for-2024/"><u>[Updated] 7 Superior Mac Video Applications for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-a-step-by-step-breakdown-for-ending-your-linkedin-presence-for-2024/"><u>[Updated] A Step-by-Step Breakdown for Ending Your LinkedIn Presence for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-align-video-elements-in-your-playback-directory/"><u>[Updated] Align Video Elements in Your Playback Directory</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-conquer-kinemaster-rule-the-meme-world/"><u>[Updated] Conquer KineMaster, Rule the Meme World</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-coordinated-audio-visual-grouping-space-for-2024/"><u>[Updated] Coordinated Audio-Visual Grouping Space for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-essential-list-of-premium-4k-blu-ray-gamers-choice/"><u>[Updated] Essential List of Premium 4K Blu-Ray Gamers' Choice</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expertly-assembled-windows-edition-tools-guide-for-2024/"><u>[Updated] Expertly Assembled Windows Edition Tools Guide for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-guide-integrating-chapter-markers-in-youtube-videos/"><u>[Updated] Guide  Integrating Chapter Markers in YouTube Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-delving-into-the-world-of-hdr-tv-lg-27ud88-uhd/"><u>[Updated] In 2024, Delving Into the World of HDR TV - LG 27UD88-UHD</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-innovative-approaches-to-recording-and-editing-video-vo/"><u>[Updated] In 2024, Innovative Approaches to Recording and Editing Video VO</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-structuring-stories-that-resonate-in-docu-cinema/"><u>[Updated] In 2024, Structuring Stories That Resonate in Docu-Cinema</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-ions-innovation-showcased-action-camera-review-of-pro-3-model/"><u>[Updated] ION's Innovation Showcased  Action Camera Review of Pro 3 Model</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-maximizing-streaming-experience-with-two-screen-viewing-on-netflix-for-2024/"><u>[Updated] Maximizing Streaming Experience with Two-Screen Viewing on Netflix for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimizing-playback-speed-with-professional-tactics-for-2024/"><u>[Updated] Optimizing Playback Speed with Professional Tactics for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pushing-limits-with-vr-which-console-and-controller-fits-best-in-2024/"><u>[Updated] Pushing Limits with VR  Which Console and Controller Fits Best, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-radial-magic-transforming-ordinary-photos-into-art-for-2024/"><u>[Updated] Radial Magic  Transforming Ordinary Photos Into Art for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-six-super-simple-free-fb-downloader-tools-for-2024/"><u>[Updated] Six Super Simple Free FB Downloader Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-list-best-video-cameras-s-musical-cinematography/"><u>[Updated] Ultimate List  Best Video Cameras 'S Musical Cinematography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unleash-creativity-a-deep-dive-into-metaverse-meme-culture/"><u>[Updated] Unleash Creativity  A Deep Dive Into Metaverse Meme Culture</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-adding-pizzazz-to-your-footage-with-moving-text/"><u>2024 Approved  Adding Pizzazz to Your Footage with Moving Text</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-boost-image-impact-top-iphone-and-android-sticker-augmenting-tools/"><u>2024 Approved  Boost Image Impact  Top iPhone and Android Sticker Augmenting Tools</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-shine-a-light-on-your-content-creation/"><u>2024 Approved  Shine a Light on Your Content Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-great-race-camera-battle-gopro-hero-4-vs-ghost-s/"><u>2024 Approved  The Great Race Camera Battle  GoPro Hero 4 VS Ghost-S</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-video-studio-encyclopedia-xreviewers-edition/"><u>2024 Approved  The Video Studio Encyclopedia  XReviewer's Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beginners-overview-of-animation-trends/"><u>Beginner's Overview of Animation Trends</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/compelling-beginnings-scriptwriting-tips-for-intros/"><u>Compelling Beginnings  Scriptwriting Tips for Intros</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-kinetic-insight-study-for-2024/"><u>Comprehensive Kinetic Insight Study for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-infinix-smart-8-pro-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Infinix Smart 8 Pro FRP</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-a-comprehensible-guide-to-screen-recording-on-the-mi-11/"><u>In 2024, A Comprehensible Guide to Screen Recording on the Mi 11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-itel-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Itel Fingerprint Lock</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-from-novice-to-pro-transforming-zoom-into-a-youtube-live-staple/"><u>In 2024, From Novice to Pro  Transforming Zoom Into a YouTube Live Staple</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-xiaomi-redmi-a2plus-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Xiaomi Redmi A2+ with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/leading-12-free-video-trimming-apps-for-android-users/"><u>Leading 12 Free Video Trimming Apps for Android Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-the-art-of-motion-creating-engaging-profitable-fb-ads-for-2024/"><u>Mastering the Art of Motion  Creating Engaging, Profitable FB Ads for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/on-the-lookout-for-economical-vr-experience-china/"><u>On the Lookout for Economical VR Experience (China)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unravel-the-mystery-perfect-your-green-screen-skills-using-kinemaster/"><u>Unravel the Mystery  Perfect Your Green Screen Skills Using Kinemaster</u></a></li>
+</ul></div>

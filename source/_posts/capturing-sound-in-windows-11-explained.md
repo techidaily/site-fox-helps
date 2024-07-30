@@ -1,0 +1,266 @@
+---
+title: "Capturing Sound in Windows 11 Explained"
+date: 2024-07-29T17:47:31.909Z
+updated: 2024-07-30T17:47:31.909Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes Capturing Sound in Windows 11 Explained"
+excerpt: "This Article Describes Capturing Sound in Windows 11 Explained"
+keywords: "WindoSounds11Explain,WindowsSoundCaptureGuide,CaptureAudioWin11Tutorial,Win11SoundRecordingBasics,SoundCaptureWindows11StepByStep,AudioRecordingInWin11,LearningSoundW11Technology"
+thumbnail: https://thmb.techidaily.com/14ec252872982da41ad9f63f459b4e43e487f639283132cbb2c57561289fd670.jpg
+---
+
+## Capturing Sound in Windows 11 Explained
+
+Meta: Looking for an audio recorder software for Windows 10 to record any audio playing on the computer? Here is the list of the top 5 best audio recorders.
+
+There are times when we want to record our voice on our computer for future references. A voice recording could be a song, audio from a musical instrument, a narration, a dictation, a reminder, a podcast and much more. However, Windows does not have a ready-made and instant option to record your voice through the microphone. Therefore, you will need an audio recorder Windows 10 to record your voice and audio instantly.
+
+A versatile sound recorder Windows 10 can capture audio from external audio devices such as an external microphone. In fact, there are some audio recorders available that can record any audio playing on your computer such as recording from online audio and video streaming platforms. In this article, we are listing down the top 5 best audio recorder software Windows 10 that you can use for recording your voice.
+
+## 1\. Windows Voice Recorder
+
+Recording audio on Windows 10 is easy with Windows Voice Recorder app that comes preinstalled on Windows 10\. It is a simple and easy to use application to quickly record any audio playing on your computer.
+
+Even though there are limited features available in comparison to other audio recorder software Windows 10, many prefer it as it is instantly available and no need to brainstorm to operate it. Besides, there are basic editing options available to make the recording perfect from all perspectives. Here are the steps to record audio on Windows 10 with Windows Voice Recorder app.
+
+****Step 1:** On the Start menu, type “Voice Recorder” and click on Voice Recorder app or press Enter key. If it is not available already, you can go to Microsoft Store and download it on your computer.
+
+****Step 2:** Open Voice Recorder app opens, click on Record(microphone) button. Alternatively, you can press Ctrl + R together to start recording when you are ready.
+
+![record button](https://images.wondershare.com/filmora/article-images/record-button.jpg)
+
+****Step 3:** Click on Stop button to stop the recording. Alternatively, you can use Spacebar or Enter key to stop recording.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![stop button](https://images.wondershare.com/filmora/article-images/stop-button.jpg)
+
+The recorded audio will be saved automatically in Documents under Sound Recordings folder.
+
+## 2\. Audacity
+
+Audacity is a completely free audio recording software for Windows 10\. Audacity is used by professionals to record music and songs. You can record audio from microphone and mixer. You can edit the recording and crisp it proper so that you can share and publish it on different platforms. In fact, Audacity lets you save the recording in different file formats so that you can play and use it on different platforms. Here are the steps for Win 10 record audio with Audacity.
+
+****Step 1:** Download and install Audacity on your computer.
+
+****Step 2:** Launch Audacity and go to Edit > Preferences to set the parameters perfectly.
+
+****Step 3:** Click on Red Record button to start recording whatever you say on the microphone. You can check live audio spectrum analyzer to ensure that your voice is getting recorded.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
+
+****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
+
+## 3\. Quick Sound Recorder Free
+
+Quick Sound Recorder is a no non-sense Windows 10 audio record app. It is completely free and super simple to use. You can record and save the audio in MP3 file format. It organizes the recording in its library so that you can find them easily and play to listen to them any time. There is an option to share the recordings through email as well as upload them to SkyDrive. Here are the steps for recording sound Windows 10 with Quick Sound Recorder Free app.
+
+Step 1: Go to Microsoft Store and install Quick Sound Recorder Free app.
+
+Step 2: Open the app and click on Microphone icon to start recording instantly. You will see the timer showing the recording time.
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![the recording time](https://images.wondershare.com/filmora/article-images/the-recording-time.jpg)
+
+Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
+
+## 4\. Adobe Audition
+
+Adobe Audition is Windows 10 audio recording software for professionals. There are unlimited features and functionalities to record as well as edit and mix any audio as per requirements. It is a premium software designed for the audio industry and you can try out its free trial version. Here are the steps to record audio on Windows 10 with Adobe Audition.
+
+Step 1: Open Adobe Audition and go to File > New > Multi-track Session. A pop-up box will appear where you can change bit rate, sample rate, destination folder and others. Click on Ok button.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+![open adobe audition](https://images.wondershare.com/filmora/article-images/open-adobe-audition.jpg)
+
+Step 2: Click on R icon to arm all the tracks.
+
+![click on r icon](https://images.wondershare.com/filmora/article-images/click-on-r-icon.jpg)
+
+Step 3: and then click on Recording button on the Record panel to start recording.
+
+Step 4: To stop recording, click on Stop button on the Record panel.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
+## 5\. [Filmora Recorder](https://tools.techidaily.com/wondershare/filmora/download/)
+
+If you want to record audio with video on Widows 10, Wondershare Filmora is the audio recording software for Windows 10\. This is useful for those who want to record webcam video while recording through an external microphone. You can also record anything playing on your computer such as a music video. Here are the steps to record audio on Windows 10 with Filmora.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-backtrack-fabricator-set/"><u>[New] 2024 Approved  Backtrack Fabricator Set</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-earnings-exploration-how-much-does-pewdiepie-earn/"><u>[New] 2024 Approved  Earnings Exploration  How Much Does PewDiePie Earn?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-how-to-get-verified-on-instagram-6-tips-to-grow-followers/"><u>[New] 2024 Approved  How to Get Verified on Instagram  6 Tips to Grow Followers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-weaving-visual-narratives-with-words-on-paper/"><u>[New] 2024 Approved  Weaving Visual Narratives with Words on Paper</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-advanced-guide-to-online-image-sharpening-for-2024/"><u>[New] Advanced Guide to Online Image Sharpening for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked-for-2024/"><u>[New] Direct Streamline  The Most Efficient Flv-to-YouTube Tools Ranked for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-galactic-glitter-top-10-accessories-for-sj4000-stargazers/"><u>[New] In 2024, Galactic Glitter  Top 10 Accessories for SJ4000 Stargazers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-insiders-guide-to-dynamic-and-engaging-tiktok-edits/"><u>[New] In 2024, The Insider's Guide to Dynamic and Engaging TikTok Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-instant-impact-applying-motion-blur-to-ai-artwork-for-2024/"><u>[New] Instant Impact  Applying Motion Blur to AI Artwork for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-revolutionize-your-image-layouts-with-these-tools-for-2024/"><u>[New] Revolutionize Your Image Layouts with These Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-best-10-heavy-lift-drones/"><u>[Updated] 2024 Approved  Best 10 Heavy Lift Drones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-in-depth-look-at-videorecorderpros-features-and-review/"><u>[Updated] 2024 Approved  In-Depth Look at VideoRecorderPro's Features & Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-iphone-ringtone-updates/"><u>[Updated] 2024 Approved  Mastering iPhone Ringtone Updates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-windows-11-apps-and-games-to-explore-and-download/"><u>[Updated] 2024 Approved  Windows 11 Apps and Games to Explore and Download</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boosting-meeting-impact-with-simple-snap-camera-steps/"><u>[Updated] Boosting Meeting Impact with Simple Snap Camera Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-entering-the-metaverse-discovering-6-rich-examples-for-2024/"><u>[Updated] Entering the Metaverse  Discovering 6 Rich Examples for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-embellish-photographic-canvas-with-outer-glow-effect/"><u>[Updated] In 2024, Embellish Photographic Canvas With Outer Glow Effect</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-leading-the-way-in-efficient-meeting-recording-zooms-finest-tools-reviewed/"><u>[Updated] Leading the Way in Efficient Meeting Recording  Zoom’s Finest Tools Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-live-photo-complete-guide-how-to-use-it-on-iphone/"><u>[Updated] Live Photo Complete Guide  How to Use It on iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-ios-and-android-photo-blur-tools-for-2024/"><u>[Updated] Top iOS & Android Photo Blur Tools for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-converters-handbook-from-srt-to-multiple-formats/"><u>[Updated] Ultimate Converter's Handbook  From SRT to Multiple Formats</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultraview-app-functionality-survey-for-2024/"><u>[Updated] UltraView App Functionality Survey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-audio-amplification-for-powerpoint-presentations/"><u>2024 Approved  Audio Amplification for PowerPoint Presentations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-capturequality-assessor-network/"><u>2024 Approved  CaptureQuality Assessor Network</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-integrating-effective-annotations-for-dynamic-storytelling/"><u>2024 Approved  Integrating Effective Annotations for Dynamic Storytelling</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-storytellers-portal/"><u>2024 Approved  Ultimate Storytellers' Portal</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/avoiding-threats-while-grabbing-gratis-vlc-player-for-apple-machines-for-2024/"><u>Avoiding Threats While Grabbing Gratis VLC Player for Apple Machines for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-iphone-15-pro-maxipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on iPhone 15 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-tecno-phantom-v-flip-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Tecno Phantom V Flip</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-scraps-to-stunning-a-photomontage-journey-for-2024/"><u>From Scraps to Stunning  A Photomontage Journey for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-xs-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone XS Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-oppo-a58-4g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Oppo A58 4G FRP</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-engage-with-creativity-top-9-websites-catering-to-artistic-3d-typography-needs/"><u>In 2024, Engage with Creativity  Top 9 Websites Catering to Artistic 3D Typography Needs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-most-favored-5-iphones-podcast-apps/"><u>In 2024, Most Favored 5 iPhones Podcast Apps</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-youtubes-profit-maze/"><u>In 2024, Navigating YouTube's Profit Maze</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-pro-video-enhancement-ranking-the-superior-15-gopro-lut-tools/"><u>In 2024, Pro Video Enhancement  Ranking the Superior 15 GoPro LUT Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-stitching-photographs-into-an-eye-catching-canvas/"><u>In 2024, Stitching Photographs Into an Eye-Catching Canvas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-close-up-views-in-roblox-games-for-2024/"><u>Mastering Close-Up Views in Roblox Games for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-how-to-make-tutorial-video-with-filmora/"><u>New How to Make Tutorial Video with Filmora</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlock-humor-potential-with-kapwings-designer-for-2024/"><u>Unlock Humor Potential with Kapwing’s Designer for 2024</u></a></li>
+</ul></div>
