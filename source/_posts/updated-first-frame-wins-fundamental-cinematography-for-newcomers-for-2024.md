@@ -1,0 +1,281 @@
+---
+title: "\"[Updated] First Frame Wins  Fundamental Cinematography for Newcomers for 2024\""
+date: 2024-08-08T17:19:10.151Z
+updated: 2024-08-09T17:19:10.151Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] First Frame Wins: Fundamental Cinematography for Newcomers for 2024\""
+excerpt: "\"This Article Describes [Updated] First Frame Wins: Fundamental Cinematography for Newcomers for 2024\""
+keywords: "Film First Basics,Cinemagraphy Starter,Novice Filmmaking Tips,Beginner Camera Techniques,CineFrame Essentials,Basic Frame Workflow,Newcomer Film Guide"
+thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d831c81a6f2628b843ff494a.jpg
+---
+
+## First Frame Wins: Fundamental Cinematography for Newcomers
+
+# 15 Types of Camera Shots in Film Beginners Need to Know
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+No denying, a great video indeed needs to have great camera shots. And this could be considered as one of the universally acknowledged facts.
+
+If you are [stepping into this industry](https://www.filmmakingstuff.com/the-official-65-step-film-production-checklist/), you need to be on good terms with the types of camera shots used in a film.
+
+The nervousness for beginners is natural and completely understood when they decide to make a film if you don't know the [videography tips](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Therefore, through this article, we will cover what are the types of shots in film are used and what function they particularly have that you need to be aware of.
+
+We hope you read this article with all concentration so that your new project is no longer confusing to the viewers.
+
+* [**Part 1: 7 Types of Shots in film You Should Know**](#part1)
+* [**Part 2: Shots Angles for Camera**](#part2)
+
+## Part 1: 7 Types of Shots in film You Should Know
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 1\. Establishing Shot
+
+As the name hints itself, this type of camera shot basically establishes the scene the audience sees as the [first shot of your movie](https://en.wikipedia.org/wiki/Establishing%5Fshot).
+
+In other words, the establishing shot provides the viewers a maximum of the city or the whole building scene in one frame.
+
+This doesn’t help your audience guess what location is the scene is being shot but they can estimate the time when the scene is taking place.
+
+With this type of [shot in the film](https://tools.techidaily.com/wondershare/filmora/download/), you are typically showing and not telling the audience through narrative and it is completely enough to let the audience know the concept.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Establishing Shot](https://images.wondershare.com/filmora/filmorapro/establishing-shot.jpg)
+
+### 2\. Extreme Long Shot
+
+This type of camera shot is taken from a long distance. This brings the audience an idea where the character belongs to regarding the time and the place.
+
+You will also allow the audience to know the emotional relationship to the environment where there is no need to show the character.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Long Shot
+
+Long shot or often known as the wide shot uses characters in the shot. Each character is shown head to toe in relation to the surroundings, location or each other.
+
+Also, the chief character or say the protagonist should have a major presence in the frame.
+
+Moreover, while using this type of camera shot, you must take care that it should be dominated by the scenery.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 4\. Full Shot
+
+Here, the location can be ignored from keeping in the focus.
+
+The main focus should be on the character in such type of shot in the film. Also, the shot should highlight the action or the movement of the character from head to toe and not his/her [emotional condition](https://www.npr.org/sections/health-shots/2019/07/21/743408637/how-microexpressions-can-make-moods-contagious).
+
+For instance, the audience must get the idea whether your character is confident, weird or sophisticated with just his/her appearance, outfit and the action.
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Full Shot](https://images.wondershare.com/filmora/filmorapro/full-shot.jpg)
+
+### 5\. Medium Shot
+
+Medium shot basically stands between the full and the close-up shot.
+
+Putting differently, this type of camera shot shows an amalgamation of the body actions and the facial expressions.
+
+The purpose of this shot is to keep the character looking natural.
+
+![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
+
+### 6\. Close-Up shot
+
+The name brings a crystal clear image of the type of shot itself. With this shot, one brings out the character’s face thereby helping the audience to understand the emotional thoughts of the character.
+
+This shot basically provides what you miss in the [medium shot](https://tools.techidaily.com/wondershare/filmora/download/). Bringing the character’s shot more detailing, for instance tear or the frowning so that the audience can anticipate what the character is feeling in that particular shot.
+
+![Close-Up shot](https://images.wondershare.com/filmora/filmorapro/close-up-shot.jpg)
+
+### 7\. Extreme Close Up
+
+To make the audience visualize only some features of the character, the Extreme Close-up comes in handy.
+
+This type of shot in films aims to fit the single feature on the entire screen. For instance, only the mouth, lips or eyes of the character are revealed in the frame.
+
+**You may also like:** [10 Best Free Security Camera Software >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Shots Angles for Camera
+
+### 8\. Eye Shots
+
+These types of shots are taken keeping the camera exactly at the [human eye level](https://nofilmschool.com/eye-level-shot-camera-angle). Using these bring the neutral effect of the shot.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+![Eye Shots](https://images.wondershare.com/filmora/filmorapro/eye-shots.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+### 9\. High Shots
+
+High angled shots, unsurprisingly are recorded from the level above than the eye. Basically, this shot type is used to give the weak, unsafe or the terrified impact of the subject.
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
+### 10\. Low Shots
+
+Contrary to the above, this type of shot in the film is taken from the level below than the eye. And not to mention, low shots are used to give the heroic, risky or powerful impact to the subject.
+
+![Low Shots](https://images.wondershare.com/filmora/filmorapro/low-shots.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### 11\. Tilt shots
+
+To give an effect of uneasy psychological state to the audience, on should go for the tilt shots.
+
+These types of camera shots are taken by setting the camera at an angle on it roll axis to unlevel the horizon line.
+
+### 12\. Over-the-Shoulder Shot
+
+This is the types of camera shot that is photographed from the back, or shoulder to be precise of another person.
+
+The subject to be highlighted is kept at somewhere between medium to close-up shot. These types of camera shots are perfect when you want your audience to notice the reactions of the subject during a conversation.
+
+Also, the subject in these shots, faces the camera making their neck and shoulder viewable on the frame.
+
+![Over-the-Shoulder Shot](https://images.wondershare.com/filmora/filmorapro/over-the-shoulder-shot.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
+### 13\. Cut-In
+
+This shot typically cuts the screen into two or three or sometimes four parts.
+
+It is helpful when you have multiple things to be shown as important in one scene. It takes close-up of the thing that you want to show your viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 14\. Master Shot
+
+A shot that is recorded from a single angle and is an uninterrupted shot to bring all the characters in view is referred to as the [master shot](https://tools.techidaily.com/wondershare/filmora/download/).
+
+It is basically the complete dramatized shot and can be edited together with other additional shots.
+
+Also, this type of shot can be considered as the only shot to be used by a director for covering the scene. It can be a closer shot, full or long shot.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+### 15\. Point of View Shot
+
+POV or Point of View is a shot that focuses on what a character is trying to see in a scene.
+
+The beauty of this type of shot is that the audience gets the picture of what’s going on in the character’s head.
+
+For example, looking through the binoculars and shooting only where the character is seeing.
+
+![Point of View Shot](https://images.wondershare.com/filmora/filmorapro/point-of-view-shot.jpg)
+
+## Conclusion
+
+To enhance the visual appearance of a movie, one has to master the types of shots in film. We have described every possible thing that we felt you need to know regarding this.
+
+We hope you learnt well from this article and from now on will keep in mind all the types of camera shots while shooting your masterpiece.
+
+Please help us by sharing your views on this so that we will update you with more such information. Thanks!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-gear-choosing-cameras-for-live-dynamic-music-visuals-in-hd/"><u>[New] 2024 Approved  Best Gear  Choosing Cameras for Live, Dynamic Music Visuals in HD</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-boosting-business-top-10-highlight-optimization-hacks/"><u>[New] 2024 Approved  Boosting Business  Top 10 Highlight Optimization Hacks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unlock-your-pcs-potential-with-these-5-windows-11-recording-methods/"><u>[New] 2024 Approved  Unlock Your PC's Potential with These 5 Windows 11 Recording Methods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-avoid-distraction-with-firm-footage-capture-for-2024/"><u>[New] Avoid Distraction with Firm Footage Capture for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-cutting-edge-techniques-for-exceptional-srt-files/"><u>[New] Cutting-Edge Techniques for Exceptional SRT Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-freeing-up-your-screen-time-which-video-player-prevails-vlc-or-mpc-for-2024/"><u>[New] Freeing Up Your Screen Time  Which Video Player Prevails, VLC or MPC for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fusing-fun-and-functionality-top-6-engaging-video-formats/"><u>[New] Fusing Fun and Functionality  Top 6 Engaging Video Formats</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-xstudio-essentials-explored-detailed-reviews/"><u>[New] In 2024, XStudio Essentials Explored  Detailed Reviews</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-peak-performance-audio-organizer-android-for-2024/"><u>[New] Peak Performance Audio Organizer, Android for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-social-network-video-download-for-audio-conversion/"><u>[New] Social Network Video Download for Audio Conversion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-upgrade-iphone-photographyfilm-expertise-with-essential-gear-for-2024/"><u>[New] Upgrade iPhone Photography/Film Expertise With Essential Gear for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-8-best-film-cameras-for-beginners-from-35mm-to-point-and-shoot/"><u>[Updated] 2024 Approved  8 Best Film Cameras for Beginners (From 35Mm to Point-and-Shoot)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-sharpening-the-sight-on-minecraft-structures/"><u>[Updated] 2024 Approved  Sharpening the Sight on Minecraft Structures</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-conceal-dont-reveal-how-to-blur-faces-online/"><u>[Updated] Conceal, Don't Reveal  How to Blur Faces Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-decoding-your-home-theater-setup-projection-or-television-for-4k/"><u>[Updated] Decoding Your Home Theater Setup  Projection or Television for 4K?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-encompassing-insight-a-look-inside-the-google-podcasts-app/"><u>[Updated] Encompassing Insight  A Look Inside the Google Podcasts App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-foray-into-video-fidelity-an-initialists-perspective/"><u>[Updated] Foray Into Video Fidelity  An Initialist's Perspective</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-infallible-steps-to-tiktok-bio-link-integration-without-error/"><u>[Updated] In 2024, Infallible Steps to TikTok Bio-Link Integration Without Error</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-streamline-audio-podcasts-made-easy-for-iphones/"><u>[Updated] In 2024, Streamline Audio  Podcasts Made Easy for iPhones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-gamers-guide-to-boosting-pc-speed-controls/"><u>[Updated] In 2024, The Gamer's Guide to Boosting PC Speed Controls</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-secure-privacy-blur-out-details-efficiently-ps/"><u>[Updated] Secure Privacy  Blur Out Details Efficiently PS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-engineer-your-fofacebook-experience/"><u>2024 Approved  Engineer Your FOFacebook Experience</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-iphone-6s-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase iPhone 6s When Its Locked Within Seconds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ditch-dullness-boosting-speed-in-android-videos-for-2024/"><u>Ditch Dullness  Boosting Speed in Android Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/1716287834740-how-to-mass-download-tiktok-videos/"><u>How To Mass Download TikTok Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-100-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on 100 Pro</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-oneplus-nord-ce-3-lite-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked OnePlus Nord CE 3 Lite 5G in Minutes | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-augmented-reality-aesthetics-tapping-into-free-lut-resources-for-ar/"><u>In 2024, Augmented Reality Aesthetics  Tapping Into Free LUT Resources for AR</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-apple-iphone-se-in-3-ways-drfone-by-drfone-virtual-ios/"><u>In 2024, Edit and Send Fake Location on Telegram For your Apple iPhone SE in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-guide-to-intovas-action-realm/"><u>In 2024, The Ultimate Guide to Intova's Action Realm</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unmatched-story-design-arena/"><u>In 2024, Unmatched Story Design Arena</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastery-guide-to-flawless-srt-file-construction-for-2024/"><u>Mastery Guide to Flawless SRT File Construction for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/perfect-shots-with-ios-a-guide-to-iphone-cropping-features/"><u>Perfect Shots with iOS  A Guide to iPhone Cropping Features</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pros-5-virtual-helmets-a-drone-racers-choice/"><u>Pro's 5 Virtual Helmets  A Drone Racer's Choice</u></a></li>
+</ul></div>
