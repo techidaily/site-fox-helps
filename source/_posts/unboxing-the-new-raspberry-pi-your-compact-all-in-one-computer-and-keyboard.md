@@ -1,7 +1,7 @@
 ---
 title: "Unboxing the New Raspberry Pi 지판: Your Compact All-in-One Computer & Keyboard"
-date: 2024-09-02T06:16:56.850Z
-updated: 2024-09-03T06:16:56.850Z
+date: 2024-09-06T15:50:50.583Z
+updated: 2024-09-07T15:50:50.583Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing the New Raspberry Pi 지판: Your Compact All-in-One Computer & Keyboard"
@@ -13,6 +13,18 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Outer Worlds
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ilSMK7MdhAHIYF1KI5F6dWzNOnI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-HeroSquare-5886d4533ee146b18daef3a40898b264.jpg)
@@ -60,6 +72,12 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a single-player[action-adventure game](https://www.lifewire.com/game-play-and-streaming-4781449) full of guns, colonists, spaceships, and monsters. You’ll venture out into a sci-fi world and try to save your ship which has had a serious malfunction. The shooting in Outer Worlds is fun, but the game’s best feature is its choice-driven story. We played the game on PC for roughly 20 hours, thoroughly enjoying its dark humor and fun gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Story: Engaging dialogue and dark humor**
 
  The Outer Worlds is a science fiction game with a focus on dry, dark humor. You’ll start the game by waking up on a malfunctioning spaceship. A man has woken you from stasis and says he needs you to save the ship and all the people living in stasis upon it. His name is Phineas Welles, and he’ll give you a very brief rundown that you’re to meet a smuggler who will take you to someone who can save your ship and people. As you go through this short cutscene sequence, you’ll be prompted to make your character, select your aptitude, skills, and attributes, before Phineas will drop you in a pod down to a planet where you’re to meet the smuggler, Hawthorne.
@@ -80,13 +98,13 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/6e7gsLSJwKWV8-Gpw6vMnU6_ohk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-02-03e4afcdc62d4528a5e0b6e4e19ae03b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Gameplay: Shooting enemies for story progression**
 
@@ -102,8 +120,26 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ax345l2R5dAgwtloXADYi2mrtKE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-03-933e9037c06d4754b04cca743675f3e5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Graphics: Average, but solid**
 
  The Outer Worlds doesn’t attempt to do anything amazing with its graphics, which is totally fine. There’s no artistic flair like with Borderlands, nor is there an attempt at extremely realistic textures like with Monster Hunter: World, but the Outer Worlds does enough. The graphics are on par with other big name titles, and the landscapes of the various planets you’ll visit are interesting and different enough. This helps make exploration fun, but really, there isn’t anything amazing about the graphics. They are what they need to be. The only other thing also worth mentioning is the slightly humorous, constant propaganda that you’ll come across in various areas. In Emerald Vale, the starting area, you’ll start to see this theme and it will be carried through the rest of the game.
@@ -111,24 +147,22 @@ Lifewire / Kelsey Simon
 ![The Outer Worlds](https://www.lifewire.com/thmb/sJTEo9nCHPyxpxLeue9TFUvPEaI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-04-2e28a12a6aac4163a86a580d2dac979f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## **Price: Not bad if you enjoy story-driven games**
 
  The Outer Worlds costs $60 new, although you might be able to catch it on sale if you watch closely. Even at full cost, it’s a game worth buying if you enjoy science fiction inspired first-person shooters―or more specifically, single-player shooter games with a focus on storytelling. As someone who often doesn’t like spending loads of money on a new game, I will say that Outer Worlds was one I didn’t mind buying. The game is fun and well written. It’s an adventure to be had, and while it’s not the best game that’s ever been made, it’s a solid, well-made game that most will enjoy.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Competition: Sci-fi games with strong series**
 
@@ -140,9 +174,6 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a story-drive first-person shooter that has a great sense of humor. Each decision you make will impact how the game unfolds. The shooting, while basic, is fun and provides the perfect vehicle to propel you forward on your adventure. Overall, The Outer Worlds is a solid game if you’re looking for a fun, humorous single-player experience.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  The Outer Worlds
