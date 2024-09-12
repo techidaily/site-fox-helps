@@ -1,7 +1,7 @@
 ---
 title: "Expert Tips for Masterminding Memelore on 9GAG for 2024"
-date: 2024-09-06T16:03:30.138Z
-updated: 2024-09-07T16:03:30.138Z
+date: 2024-09-11T10:11:48.984Z
+updated: 2024-09-12T10:11:48.984Z
 tags: 
   - screen-recording
   - ai video
@@ -37,16 +37,30 @@ Start by opening 9gag and using the search bar to look for "Meme." Millions of s
 ![launch 9gag](https://images.wondershare.com/filmora/article-images/2022/07/open-9gag-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step2 Locate a template
 
 Browse the collection of meme templates available at 9gag. To focus your search, add terms that correspond to your chosen subject and aesthetic. To add a template to your page in the editor, just click on it.
 
 ![locate a template](https://images.wondershare.com/filmora/article-images/2022/07/locate-tempalte-9gag.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3 Customize your meme
 
@@ -54,12 +68,6 @@ Have a vision in mind already? You are welcome to add your own photographs, artw
 
 ![customize your meme](https://images.wondershare.com/filmora/article-images/2022/07/customize-meme-9gag.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4 Saving And Sharing 9gag Memes
 
 After you are satisfied with the outcome of 9gag top meme maker. Save as a PNG, JPG, or GIF after downloading. Directly from 9gag, share on Facebook, Instagram, and other social networking websites.
@@ -67,17 +75,25 @@ After you are satisfied with the outcome of 9gag top meme maker. Save as a PNG, 
 ![saving and sharing 9gag memes](https://images.wondershare.com/filmora/article-images/2022/07/save-share-9gag.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2\. Alternative Way to Create Video Meme On Computer
 
 You should have at least seen famous memes like Grumpy Cat, Doge, Overly Attached Girlfriend, Yes Kid, etc. at some time. What if, though, you wanted to create your own meme to go along with a current event in your life? Or maybe you simply want to tell your family and friends about it. Don't worry; we've uncovered some of the greatest programs for making memes for you, including [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) by Wondershare. With the application's rather straightforward user interface, you may quickly generate new memes.
@@ -98,23 +114,31 @@ Open the Filmora video meme maker and choose "New project" to begin a new meme p
 
 ![drag meme video filmora](https://images.wondershare.com/filmora/article-images/2022/07/drag-meme-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Add soundtracks and captions
 
 The timeline should then include the video file. Select the text style you want to use by clicking the "Title" tab. Enter the text, then change the font, color, and size of the caption. Playing well-known music in the background is an additional choice. You may accomplish this by dragging and dropping the music file into the timeline's audio track inside the program.
 
 ![add caption to meme video filmora](https://images.wondershare.com/filmora/article-images/2022/07/add-caption-to-meme-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4 Preview or Customize the Meme
 
 Use the features-list menu bar to add more text to your meme if you want to. Additionally, you can use the drop-down menu to change the caption's size and location by dragging and dropping the caption box.
 
 ![preview or customize the meme](https://images.wondershare.com/filmora/article-images/2022/07/preview-meme-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step5 Publish or Save Your Video Meme
 
@@ -123,11 +147,12 @@ Naturally, a meme has to be widely shared online in order to get views and, pres
 ![publish or save your video eme](https://images.wondershare.com/filmora/article-images/2022/07/publish-save-meme-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Memes are a fantastic way to communicate with friends, family, and colleagues. They're also really simple to create! No prior experience is necessary. Memes are often a terrific way to liven up your communication and have fun at work, yet you should be aware of the workplace culture in your firm. Go for it, we say! If you're unfamiliar with current Internet trends, a meme is simply an amusing picture, video, text, etc. that is quickly reproduced with minor alterations and circulated online. For the greatest results in this respect, use FIlmora to create 9gag memes handily.
@@ -157,23 +182,18 @@ Use the features-list menu bar to add more text to your meme if you want to. Add
 ![preview or customize the meme](https://images.wondershare.com/filmora/article-images/2022/07/preview-meme-video-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step5 Publish or Save Your Video Meme
 
 Naturally, a meme has to be widely shared online in order to get views and, presumably, likes. You should thus share it across all platforms. Your video meme will now be immediately posted to Vimeo or YouTube after you click the "Export" button. To share your finished meme with colleagues or friends, save it and post it immediately to your email, Facebook, Twitter, etc.
 
 ![publish or save your video eme](https://images.wondershare.com/filmora/article-images/2022/07/publish-save-meme-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Memes are a fantastic way to communicate with friends, family, and colleagues. They're also really simple to create! No prior experience is necessary. Memes are often a terrific way to liven up your communication and have fun at work, yet you should be aware of the workplace culture in your firm. Go for it, we say! If you're unfamiliar with current Internet trends, a meme is simply an amusing picture, video, text, etc. that is quickly reproduced with minor alterations and circulated online. For the greatest results in this respect, use FIlmora to create 9gag memes handily.
@@ -202,37 +222,17 @@ Memes are a fantastic way to communicate with friends, family, and colleagues. T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-chorus-of-commitment-best-ballads-for-marital-dreaming/"><u>[New] 2024 Approved Chorus of Commitment Best Ballads for Marital Dreaming</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-deciphering-slug-lines-in-scriptwriting/"><u>[New] 2024 Approved Deciphering Slug Lines in Scriptwriting</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-exploring-the-metaverse-meme-landscape/"><u>[New] 2024 Approved Exploring the Metaverse Meme Landscape</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-immediate-halt-of-auto-recording-on-qt/"><u>[New] 2024 Approved Immediate Halt of Auto-Recording on QT</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-professional-tips-for-perfecting-your-srt-files/"><u>[New] 2024 Approved Professional Tips for Perfecting Your SRT Files</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-quintet-at-the-pinnacle-youtube-subscribers/"><u>[New] 2024 Approved The Quintet at the Pinnacle YouTube Subscribers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-crafting-memes-via-adobe-software/"><u>[New] Crafting Memes via Adobe Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-cutting-edge-entertainment-with-wins11-apps-and-games/"><u>[New] Cutting-Edge Entertainment with Wins11 Apps & Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-questions-about-intermittent-video-playback-at-photobooth/"><u>[New] In 2024, Questions About Intermittent Video Playback at Photobooth</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unlock-the-power-of-free-screen-recording-in-win11-for-2024/"><u>[New] Unlock the Power of Free Screen Recording in Win11 for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unmatched-no-fee-mobile-and-web-picture-enhancement-for-2024/"><u>[New] Unmatched No-Fee Mobile & Web Picture Enhancement for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-accelerated-file-format-change-from-srt-to-simple-txt/"><u>[Updated] 2024 Approved Accelerated File Format Change From SRT to Simple TXT</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-freeframe-finder-unearthing-elite-tiktok-background-art/"><u>[Updated] 2024 Approved FreeFrame Finder Unearthing Elite TikTok Background Art</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-voice-that-captures-hearts-intro-artistry/"><u>[Updated] 2024 Approved Voice that Captures Hearts Intro Artistry</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-pro-equipment-list-for-adventure-documentaries/"><u>[Updated] In 2024, Pro Equipment List for Adventure Documentaries</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ultimate-list-the-5-most-excellent-slow-motion-cams/"><u>[Updated] In 2024, Ultimate List The 5 Most Excellent Slow-Motion Cams</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-image-quality-a-guide-without-watermarks-for-2024/"><u>[Updated] Mastering Image Quality A Guide Without Watermarks for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-virtual-reality-with-top-bike-simulators/"><u>[Updated] Mastering Virtual Reality with Top Bike Simulators</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-screensnap-2023-the-new-standard-in-recording/"><u>[Updated] ScreenSnap 2023 – The New Standard in Recording</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-tailor-your-devices-alerts-with-custom-android-sounds-for-2024/"><u>[Updated] Tailor Your Device's Alerts with Custom Android Sounds for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-a-to-z-guide-for-delivering-captivating-streams-using-zoom-and-youtube-for-2024/"><u>[Updated] The A-to-Z Guide for Delivering Captivating Streams Using Zoom & YouTube for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-savvy-scribblers-selection-the-top-compiler-of-twitter-animation/"><u>2024 Approved Savvy Scribbler's Selection - The Top Compiler of Twitter Animation</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-13-pro-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone 13 Pro? How to Fix it?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-xs-max-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone XS Max After Forgetting my PIN Code?</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-note-13-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi Note 13 5G in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-data-from-apple-iphone-13-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/imagememe-magic-instant-jokes-for-2024/"><u>ImageMeme Magic Instant Jokes for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-journey-through-time-a-comprehensive-guide-on-scanning-and-storing-old-prints/"><u>In 2024, Journey Through Time A Comprehensive Guide on Scanning and Storing Old Prints</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-xiaomi-redmi-note-12-pro-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Xiaomi Redmi Note 12 Pro 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-timelessly-taken-selfies-from-the-bygone-era/"><u>In 2024, Timelessly Taken Selfies From the Bygone Era</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/laminar-flow-occurs-at-low-velocities-with-a-smooth-orderly-movement-of-fluid-particles-in-layers/"><u>Laminar Flow Occurs at Low Velocities with a Smooth, Orderly Movement of Fluid Particles in Layers.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximize-productivity-with-fellowes-microban-best-budget-wired-keyboard-compared-and-reviewed/"><u>Maximize Productivity with Fellowes Microban - Best Budget Wired Keyboard Compared and Reviewed</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-your-contacts-app-on-ios-discover-3-effective-solutions/"><u>Struggling with Your Contacts App on iOS? Discover 3 Effective Solutions!</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/cuales-son-los-riesgos-de-copiar-un-dvd-directamente-a-disco-duro-sin-ripearlo-primero/"><u>¿Cuáles Son Los Riesgos De Copiar Un DVD Directamente a Disco Duro Sin Ripearlo Primero?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue/"><u>[New] Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-professional-camera-techniques-for-superior-igtv-videos/"><u>[Updated] 2024 Approved Mastering Professional Camera Techniques for Superior IGTV Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-video-avi-into-graphic-image-gif-filmoras-complete-guide/"><u>[Updated] 2024 Approved Mastering Video (AVI) Into Graphic Image (GIF) Filmora's Complete Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-methodical-decrescendo-techniques-for-logic-pro-mixers/"><u>[Updated] 2024 Approved Methodical Decrescendo Techniques for Logic Pro Mixers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-installing-tiktok-your-path-to-joyful-macbook-experience-for-2024/"><u>[Updated] Installing TikTok Your Path to Joyful MacBook Experience for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mini-stories-decoded-whats-inside/"><u>[Updated] Mini Stories Decoded What's Inside?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-orchestrating-peak-canon-temporal-scenes-for-2024/"><u>[Updated] Orchestrating Peak Canon Temporal Scenes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-10-apps-for-live-sports-and-football-streaming-for-2024/"><u>[Updated] Top 10 Apps for Live Sports & Football Streaming for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-samsung-galaxy-s24-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Samsung Galaxy S24 Without PUK Codes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-list-6-videos-that-grab-attention/"><u>In 2024, The Ultimate List 6 Videos That Grab Attention</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transform-ordinary-snaps-the-top-10-snapshot-enhancers-apps/"><u>In 2024, Transform Ordinary Snaps The Top 10 Snapshot Enhancers Apps</u></a></li>
 </ul></div>
+
