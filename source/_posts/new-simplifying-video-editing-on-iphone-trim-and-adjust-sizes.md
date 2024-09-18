@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Simplifying Video Editing on iPhone  Trim & Adjust Sizes\""
-date: 2024-09-11T10:31:11.145Z
-updated: 2024-09-12T10:31:11.145Z
+date: 2024-09-14T23:04:11.969Z
+updated: 2024-09-17T17:51:57.914Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,6 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to shorten a video on iPhone
 
 #### 1. [The Built-in Video Editor](https://support.apple.com/en-gb/HT207587)
@@ -57,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 
 ![iphone photo](https://images.wondershare.com/filmora/article-images/iPhone_video_edit_default.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. [iMovie](https://itunes.apple.com/us/app/imovie/id377298193?mt=8&ign-mpt=uo%3D8)
 
  iMovie is another simple application to use. Solid design, simple usage and intuitive multi-touch gesture makes this app an all time winner. Especially when you are answering " how to shorten a video on iPhone? Despite its editing capabilities, we will keep our focus on video resizing. It's a video size reducer, that can import file directly from iPhone. There are many options to trim, rotate, duplicate, split or delete clip. By default a photo in a timeline will be a clip for 6 to 12 seconds of onscreen time. Trimming photo will mean cutting the on-screen duration.
@@ -75,19 +61,6 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 ![imoive](https://images.wondershare.com/filmora/article-images/iMovie-shorten.jpeg)
 
  But, it can be, that you don't want to delete parts at all. Instead you want to make "large" size a little bit more manageable. For that sake, another way to trim video, iPhone camera roll has ,is, by resizing. But resizing and compressions are tricky. You need to consider video dimension (pixels), aspect ratio and resolution. Above all resizing doesn't mean sacrificing quality. One best way to do that is to use Desqueeze.
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to resize a video on iPhone
 
@@ -104,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 
 ![desqueeze](https://images.wondershare.com/filmora/article-images/desqueeze.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Video Compressor
 
  Video Compressor can also be used to shrink down the file size on iPhone. Especially when you want to share something right from your iDevice. The steps to follow include
@@ -123,26 +89,6 @@ thumbnail: https://thmb.techidaily.com/e82cf746d7129d54494e27c7a2ced91643ff65f2f
 * The compressed video will be saved in Camera roll
 
 ![video compressor](https://images.wondershare.com/filmora/article-images/video-compressor.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -177,16 +123,29 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-auditory-enhancement-unlocked-delve-into-freeware-audio-effect-software/"><u>[Updated] Auditory Enhancement Unlocked Delve Into Freeware Audio Effect Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-samsung-photography-essentials-a-detailed-review-2023/"><u>[Updated] In 2024, Samsung Photography Essentials – A Detailed Review, 2023</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-intersecting-experiences-dissecting-vr-augmented-and-mixed-reality-for-2024/"><u>[Updated] Intersecting Experiences Dissecting VR, Augmented & Mixed Reality for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-precision-cuts-in-kinemaster-transition-essentials-for-2024/"><u>[Updated] Precision Cuts in Kinemaster Transition Essentials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-leveraging-hashtags-in-twitter-advertising/"><u>2024 Approved Leveraging Hashtags in Twitter Advertising</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-lava-storm-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Lava Storm 5G Data? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-wipe-iphone-xs-max-data-permanently-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Wipe iPhone XS Max Data Permanently? | Stellar</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/hp-spectre-x360-troubleshooting-and-fixing-your-overheat-issues/"><u>HP Spectre X360: Troubleshooting & Fixing Your Overheat Issues</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-download-games-for-free-top-10plus-websites/"><u>New In 2024, Download Games for Free Top 10+ Websites</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/premiered-patterns-for-panzoid-creation-for-2024/"><u>Premiered Patterns for Panzoid Creation for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-the-definitive-guide-to-cutting-edge-gadgets-and-systems/"><u>Tom's Tech Insights: The Definitive Guide to Cutting-Edge Gadgets and Systems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-instagram-video-descriptions/"><u>[New] 2024 Approved The Ultimate Guide to Instagram Video Descriptions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-customize-twitter-video-image-for-2024/"><u>[Updated] Customize Twitter Video Image for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ideal-editing-tools-best-phones-options-for-gopro-videos/"><u>[Updated] Ideal Editing Tools Best Phones' Options for GoPro Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-rapid-techniques-for-quick-professional-quality-home-movies/"><u>[Updated] Rapid Techniques for Quick, Professional-Quality Home Movies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-refine-iphone-image-capture-specialized-filming-tools/"><u>[Updated] Refine iPhone Image Capture Specialized Filming Tools</u></a></li>
+<li><a href="https://techtrends.techidaily.com/before-you-buy-a-dash-cam-understanding-9-crucial-considerations-first/"><u>Before You Buy a Dash Cam: Understanding 9 Crucial Considerations First</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/complete-beginners-reference-to-final-cut-pro/"><u>Complete Beginner's Reference to Final Cut Pro</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decoding-chatgpts-shared-link-ecosystem/"><u>Decoding ChatGPT's Shared Link Ecosystem</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-oneplus-1-probing-into-pricing-forecasts-launch-dates-features-and-breaking-leaks/"><u>Discover OnePlus 1#: Probing Into Pricing Forecasts, Launch Dates, Features, and Breaking Leaks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-remove-the-ai-assistant-copilot-from-windows-11-easy-steps-inside/"><u>How to Remove the AI Assistant Copilot From Windows 11 - Easy Steps Inside!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-pivot-producer-system/"><u>In 2024, Pivot Producer System</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

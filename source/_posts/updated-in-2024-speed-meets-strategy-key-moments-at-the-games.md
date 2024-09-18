@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Speed Meets Strategy  Key Moments at the Games\""
-date: 2024-09-11T10:29:59.396Z
-updated: 2024-09-12T10:29:59.396Z
+date: 2024-09-16T21:40:37.508Z
+updated: 2024-09-17T18:19:32.607Z
 tags: 
   - screen-recording
   - ai video
@@ -27,21 +27,7 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
@@ -51,13 +37,6 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
@@ -66,13 +45,6 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
@@ -80,13 +52,6 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -99,13 +64,6 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -122,16 +80,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -162,6 +114,13 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -185,21 +144,16 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-5-efficient-ways-to-store-movies-and-videos-mov-in-windows/"><u>[New] 2024 Approved 5 Efficient Ways to Store Movies & Videos (.mov) in Windows</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-into-the-future-samsungs-new-k850-ultrablade-unveiled/"><u>[Updated] 2024 Approved Step Into the Future - Samsung's New K850 UltraBlade Unveiled</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-experience-the-magic-of-free-voice-change-for-valorant-gaming-for-2024/"><u>[Updated] Experience the Magic of Free Voice Change for Valorant Gaming for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-paper-trail-windows-1087-snapshot-techniques/"><u>[Updated] In 2024, Paper Trail Windows 10/8/7 Snapshot Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-secrets-to-choosing-movie-trailers-music/"><u>[Updated] In 2024, Unveiling the Secrets to Choosing Movie Trailers' Music</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-blueprint-for-memetic-virality/"><u>[Updated] The Ultimate Blueprint for Memetic Virality</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Tecno Spark 20C | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-get-the-latest-targus-displaylink-drivers-for-windows-11-8-and-7/"><u>How to Get the Latest Targus DisplayLink Drivers for Windows 11, 8 & 7</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-vivo-y36-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Vivo Y36? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-effortless-note-management-on-mematic-platform/"><u>In 2024, Effortless Note Management on Mematic Platform</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-seamless-sonic-connector-a-casters-companion/"><u>In 2024, Seamless Sonic Connector A Caster's Companion</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unlock-the-secrets-of-altering-voice-sounds-on-ps5ps4/"><u>In 2024, Unlock the Secrets of Altering Voice Sounds on PS5/PS4</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a54-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A54 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/streamlining-your-video-editing-process-for-green-issues-on-youtube/"><u>Streamlining Your Video Editing Process for Green Issues on YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/virtual-care-innovations-in-medicine-for-2024/"><u>Virtual Care Innovations in Medicine for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/warcraft-online-issues-resolved-reconnect-to-battle-for-azeroth-server-now/"><u>Warcraft Online Issues Resolved - Reconnect to Battle for Azeroth Server Now</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-top-camera-mastery-films-best-practices-unveiled/"><u>[Updated] 2024 Approved Top Camera Mastery Film's Best Practices Unveiled</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-device-guide-for-google-meet-access-for-2024/"><u>[Updated] Device Guide for Google Meet Access for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unlocking-creativity-top-5-expert-video-and-photography-plus-music-mixers/"><u>[Updated] In 2024, Unlocking Creativity Top 5 Expert Video & Photography + Music Mixers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-converting-tweeted-videos-into-playable-mp3-tracks/"><u>2024 Approved Converting Tweeted Videos Into Playable MP3 Tracks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/benq-bl2711u-the-artisans-choice-for-high-end-4k-display-enthusiasts-for-2024/"><u>BenQ BL2711U - The Artisan's Choice for High-End 4K Display Enthusiasts for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-tecno-spark-10-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Tecno Spark 10 Pro FRP Locks</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/how-to-perform-a-successful-streaming-on-twitch/"><u>How To Perform a Successful Streaming on Twitch</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-tier-hdr-cameras-explained-and-compared/"><u>In 2024, Top-Tier HDR Cameras Explained & Compared</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/streamlining-your-video-collection-converting-mp4-with-vlc/"><u>Streamlining Your Video Collection Converting MP4 with VLC</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-windows-11-and-10-when-spatial-audio-isnt-functional/"><u>Troubleshooting Steps for Windows 11 and 10 When Spatial Audio Isn't Functional</u></a></li>
 </ul></div>
 

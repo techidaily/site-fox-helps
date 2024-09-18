@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Beyond Imagination  Cutting-Edge VR Tech\""
-date: 2024-09-11T10:29:32.735Z
-updated: 2024-09-12T10:29:32.735Z
+date: 2024-09-14T22:32:15.912Z
+updated: 2024-09-17T22:37:38.738Z
 tags: 
   - screen-recording
   - ai video
@@ -31,13 +31,6 @@ thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -47,42 +40,15 @@ thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8
 ![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
  )
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -90,25 +56,11 @@ thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8
 
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -135,20 +87,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-streamstart-beginner-friendly-podcast-live-broadcast-guide/"><u>[New] 2024 Approved StreamStart Beginner-Friendly Podcast Live Broadcast Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-discover-ultra-hd-mastering-the-art-of-buying-a-4k-monitor-for-2024/"><u>[New] Discover Ultra HD Mastering the Art of Buying a 4K Monitor for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-harmonizing-iphone-footage-like-a-pro/"><u>[New] Harmonizing iPhone Footage Like a Pro</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevate-your-phones-alerts-personalizing-ringtones-and-sounds-on-android/"><u>[New] In 2024, Elevate Your Phone's Alerts Personalizing Ringtones & Sounds on Android</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-no-cost-recording-solutions-windows-tech-hacks/"><u>[New] In 2024, No-Cost Recording Solutions Windows Tech Hacks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-ultimate-selection-of-top-5-best-android-photo-apps/"><u>[Updated] 2024 Approved The Ultimate Selection of Top 5 Best Android Photo Apps</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-insider-guide-to-gaming-channel-header-templates/"><u>[Updated] The Insider Guide to Gaming Channel Header Templates</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-unveiling-14-dynamic-text-animation-samples/"><u>2024 Approved Unveiling 14 Dynamic Text Animation Samples</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/beginners-guide-mastering-x-in-just-10-simple-steps/"><u>Beginner's Guide: Mastering X in Just 10 Simple Steps!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-pro-without-losing-any-content-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Pro without Losing Any Content? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-5-simple-tricks-for-aspiring-photoshop-editors/"><u>In 2024, 5 Simple Tricks for Aspiring Photoshop Editors</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-se-2022-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone SE (2022) Passcode without Computer? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unlock-professional-results-with-these-key-pixlr-techniques/"><u>In 2024, Unlock Professional Results with These Key Pixlr Techniques</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/techniques-for-streaming-seminars-on-a-fee-free-basis-for-2024/"><u>Techniques for Streaming Seminars on a Fee-Free Basis for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/t-friendly-microphones-for-social-media-stars/"><u>Wallet-Friendly Microphones for Social Media Stars</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-desktop-and-mobile-the-best-ways-to-download-fb-story/"><u>[New] 2024 Approved Mastering Desktop & Mobile The Best Ways to Download FB Story</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-2023-facebook-video-downloader-application-for-mobilewinmac/"><u>[New] In 2024, 2023 | Facebook Video Downloader Application for Mobile/Win/Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-become-a-close-up-connoisseur-advanced-roleplay-tips/"><u>[New] In 2024, Become a Close-Up Connoisseur Advanced Roleplay Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-going-back-in-time-your-android-movie-method/"><u>[New] In 2024, Going Back in Time Your Android Movie Method</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-samsung-galaxy-m34-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Samsung Galaxy M34 5G Unlock Without Password</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fix-your-computer-when-it-says-access-is-denied-during-usb-setup/"><u>Fix Your Computer When It Says Access Is Denied During USB Setup</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-breathe-easy-with-knowledge-of-asmr-advantages/"><u>In 2024, Breathe Easy with Knowledge of ASMR Advantages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-xiaomi-civi-3-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Xiaomi Civi 3</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/swift-access-to-brother-hl-3170cdw-driver-software/"><u>Swift Access to Brother HL-3170cdw Driver Software</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-fix-for-broken-headphone-connection-in-windows-10-devices/"><u>The Ultimate Fix for Broken Headphone Connection in Windows 10 Devices</u></a></li>
+<li><a href="https://windows11.techidaily.com/tips-to-avoid-frustrating-steam-audio-drops/"><u>Tips to Avoid Frustrating Steam Audio Drops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-a-practical-and-cost-effective-case-for-your-macbook-pro-13/"><u>Top Review: A Practical and Cost-Effective Case for Your MacBook Pro 13</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

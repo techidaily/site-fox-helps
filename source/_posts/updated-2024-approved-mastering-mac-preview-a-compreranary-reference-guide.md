@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Mac Preview  A Compreranary Reference Guide\""
-date: 2024-09-11T10:31:39.591Z
-updated: 2024-09-12T10:31:39.591Z
+date: 2024-09-14T23:04:41.381Z
+updated: 2024-09-17T23:03:20.750Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -77,10 +70,16 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -99,6 +98,13 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -110,13 +116,6 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -134,19 +133,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -162,6 +148,13 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -190,19 +183,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -238,13 +218,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -270,17 +243,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-editors-elite-gadgets-best-machines-for-screen-magic/"><u>[New] 2024 Approved Editor’s Elite Gadgets Best Machines for Screen Magic</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-demystifying-the-symbolism-of-a-blue-marker-in-facebook-chats/"><u>[New] In 2024, Demystifying the Symbolism of a Blue Marker in Facebook Chats</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-craft-your-narrative-best-free-mobile-editors-android-focus/"><u>[Updated] 2024 Approved Craft Your Narrative Best Free Mobile Editors, Android Focus</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-tv-disable-guide/"><u>[Updated] 2024 Approved Instagram TV Disable Guide</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-how-to-master-mobile-gif-management-with-iphone-techniques/"><u>[Updated] How to Master Mobile GIF Management with iPhone Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-creating-soft-transitions-in-audio-with-logic-pro/"><u>[Updated] In 2024, Creating Soft Transitions in Audio with Logic Pro</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/essential-phone-apps-to-boost-audio-speed-for-2024/"><u>Essential Phone Apps to Boost Audio Speed for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-become-a-successful-smm-in-10-steps/"><u>In 2024, Become a Successful SMM in 10 Steps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-sierras-best-the-top-5-choices-for-mac-video-editing/"><u>In 2024, Sierra's Best The Top 5 Choices for Mac Video Editing</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/resolve-your-iphone-12-pro-max-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your iPhone 12 Pro Max Keeps Asking for Outlook Password | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-9-quick-solutions-to-stop-youtube-from-frequently-freezing/"><u>Top 9 Quick Solutions to Stop YouTube From Frequently Freezing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elite-list-of-online-stores-for-tones-on-snapchat/"><u>[New] Elite List of Online Stores for Tones on Snapchat</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-innovative-methods-for-preserving-youtube-videos-for-2024/"><u>[New] Innovative Methods for Preserving YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-navigating-the-insta-to-tik-connection/"><u>[Updated] 2024 Approved Navigating the Insta-to-Tik Connection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-branding-breakthrough-constructing-logos-for-podcasts-for-2024/"><u>[Updated] Branding Breakthrough Constructing Logos for Podcasts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-fuse-voice-recordings-with-ppt-content-for-2024/"><u>[Updated] Fuse Voice Recordings with PPT Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-up-your-film-game-on-instagram-with-border-tips/"><u>[Updated] In 2024, Step up Your Film Game on Instagram with Border Tips</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-maximizing-vimeo-video-watch-time/"><u>[Updated] Maximizing Vimeo Video Watch Time</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-next-gen-patient-rehabilitation-tools/"><u>[Updated] Next-Gen Patient Rehabilitation Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-smart-strategies-to-modify-user-numbers-on-tiktok-for-2024/"><u>[Updated] Smart Strategies to Modify User Numbers on TikTok for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-pros-and-cons-of-using-vidma-as-a-screen-grabber-for-2024/"><u>[Updated] The Pros & Cons of Using Vidma as a Screen Grabber for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-10-fastest-flip-screen-games-on-desktops-and-phones-for-2024/"><u>[Updated] Top 10 Fastest Flip-Screen Games on Desktops & Phones for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-elevate-video-popularity-with-smart-thumbnails/"><u>2024 Approved Elevate Video Popularity with Smart Thumbnails</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tutorial-windows-movie-maker-for-effective-animation-designs/"><u>2024 Approved Tutorial Windows Movie Maker for Effective Animation Designs</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-7-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 7 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-correct-the-audio-configuration-warning-in-itunes/"><u>How to Correct the Audio Configuration Warning in iTunes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo Y100A | Dr.fone</u></a></li>
 </ul></div>
 

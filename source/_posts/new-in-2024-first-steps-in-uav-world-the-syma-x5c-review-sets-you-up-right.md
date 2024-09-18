@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, First Steps in UAV World? The Syma X5C Review Sets You Up Right"
-date: 2024-09-11T10:31:17.623Z
-updated: 2024-09-12T10:31:17.623Z
+date: 2024-09-14T17:23:51.210Z
+updated: 2024-09-17T16:50:21.217Z
 tags: 
   - screen-recording
   - ai video
@@ -39,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Pros and Cons of Syma X5C
 
 **Pros:**
@@ -71,13 +64,6 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 **Verdict:**
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Complete Review for Syma X5C
 
@@ -110,47 +96,19 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -177,19 +135,31 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-exploring-disguised-social-feedback-on-youtube/"><u>[New] In 2024, Exploring Disguised Social Feedback on YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-master-recorders-impact-on-efficient-screen-capturing/"><u>[New] Master Recorder's Impact on Efficient Screen Capturing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-yarnspinners-collective-hallmarked-hexa/"><u>[New] Yarnspinners Collective - Hallmarked Hexa</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-5-useful-tool-to-brighten-video-online/"><u>[Updated] 2024 Approved 5 Useful Tool to Brighten Video Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-audacity-tricks-for-premium-audio/"><u>[Updated] 2024 Approved Expert Audacity Tricks for Premium Audio</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-gamers-edition-obs-studio-streaming/"><u>[Updated] In 2024, Gamers' Edition OBS Studio Streaming</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-tomtom-gopro-alternative-review-the-action-cam-2023-for-2024/"><u>[Updated] TomTom GoPro Alternative Review - The Action Cam 2023 for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-unlocking-subtitles-from-srt-proven-techniques-revealed-for-2024/"><u>[Updated] Unlocking Subtitles From SRT Proven Techniques Revealed for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/bypass-genuineness-warning-in-adobe-software/"><u>Bypass Genuineness Warning in Adobe Software</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-consoles-stack-up-against-high-end-pcs/"><u>How Consoles Stack Up Against High-End PCs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-inversion-workshop/"><u>In 2024, Inversion Workshop</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-stock-photos-without-watermarks-a-guide/"><u>In 2024, Stock Photos Without Watermarks – A Guide</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/optimal-transfer-methods-iphone-camera-roll-to-snapchat-journey/"><u>Optimal Transfer Methods IPhone Camera Roll to Snapchat Journey</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/say-it-with-feeling-a-beginners-guide-to-making-a-valentines-day-video/"><u>Say It with Feeling A Beginners Guide to Making a Valentines Day Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-perfect-zoom-optimizing-kinemasters-viewer-engagement/"><u>[New] 2024 Approved Perfect Zoom Optimizing Kinemaster's Viewer Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafting-perfect-images-with-ios-size-modification-skills-for-2024/"><u>[New] Crafting Perfect Images with iOS Size Modification Skills for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-enhancing-facial-dynamics-using-picsarts-motion-blur-for-2024/"><u>[New] Enhancing Facial Dynamics Using Picsart's Motion Blur for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-from-novice-to-expert-kinemaster-gs-journey/"><u>[New] From Novice to Expert KineMaster GS Journey</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-migrating-media-from-android-to-iphone-for-2024/"><u>[New] Migrating Media From Android to iPhone for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-navigating-the-viral-internet-landscape-for-2024/"><u>[Updated] Navigating the Viral Internet Landscape for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-livestran-vs-screen-capture-titans-battle-of-software-giants-obs-and-bandicam/"><u>2024 Approved Livestran vs Screen Capture Titans Battle of Software Giants, OBS & Bandicam</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/convenient-steps-upside-down-video-via-vlc-application/"><u>Convenient Steps Upside Down Video via VLC Application</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-elite-12-action-recording-devices-with-built-in-gps-systems/"><u>In 2024, Elite 12 Action Recording Devices with Built-In GPS Systems</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-solutions-how-to-resolve-issues-with-madden-nfl-22/"><u>Quick Solutions: How To Resolve Issues With Madden NFL 22</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-checklist-for-compelling-audio-intros/"><u>The Ultimate Checklist for Compelling Audio Intros</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/total-byte-requirement-for-24-hours-of-movie-viewing-for-2024/"><u>Total Byte Requirement for 24 Hours of Movie Viewing for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
