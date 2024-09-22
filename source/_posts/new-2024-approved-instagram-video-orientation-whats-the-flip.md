@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Instagram Video Orientation - What's the Flip?\""
-date: 2024-07-13T18:39:25.698Z
-updated: 2024-07-14T18:39:25.698Z
+date: 2024-09-20T18:56:34.287Z
+updated: 2024-09-22T16:04:37.237Z
 tags: 
   - screen-recording
   - ai video
@@ -50,9 +50,6 @@ Launch Filmora and drag the video onto the timeline.
 
 Double-click the video clip on the timeline to open the video editing window. Under the "Transform" menu, look for the "Rotate" option. You can change the rotation value by sliding the slider or entering a certain value. It is possible to rotate up to 360o. For example, if you want to rotate this clip 90 degrees, write "90" in the box, and the video clip will be rotated.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-2.jpg)
 
 By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
@@ -84,6 +81,13 @@ Whether or not you have a VEED account, you can upload and edit your video. You 
 Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Export the rotated video:**
 
@@ -251,6 +255,19 @@ Step 1: Open the VLC media player and load the video you want to rotate.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-13.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
@@ -329,17 +346,28 @@ You'll notice an active arrow pointing to the Plus icon as soon as you open the 
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Then tap Start editing on the video you wish to fix.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Rotate the video**
 
 Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
 
 **Step 4: Save the video**
@@ -410,9 +438,6 @@ Whether or not you have a VEED account, you can upload and edit your video. You 
 
 Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
 
 **Step 3: Export the rotated video:**
@@ -420,6 +445,13 @@ Allow time for the upload to complete. The rotating button will display above th
 The rotating video will be saved when you click 'Export,' which you may publish to your Instagram feed.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can download your video in a variety of resolutions, including Standard, HD, 4K, Super-8, and Cinematic.
 
@@ -451,9 +483,6 @@ Then tap Start editing on the video you wish to fix.
 
 Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
 
 **Step 4: Save the video**
@@ -512,6 +541,19 @@ You can easily rotate your videos according to the guidelines of the social medi
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-comprehensive-guide-to-ios-video-capture/"><u>[New] Comprehensive Guide to iOS Video Capture</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-front-rows-of-recreation-beyond-the-sports-arena/"><u>[New] Front Rows of Recreation Beyond the Sports Arena</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-guide-to-add-motion-blur-to-photos-in-adobe-illustrator/"><u>[New] Guide to Add Motion Blur to Photos in Adobe Illustrator</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-mac-mkv-players-compilation-for-2024/"><u>[New] Top Mac MKV Players Compilation for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/bass-control-systems-unveiled-mastering-the-art-of-sound-balance/"><u>Bass Control Systems Unveiled: Mastering the Art of Sound Balance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Realme V30T? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-12-4g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 12 4G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Infinix Note 30i? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-oneplus-nord-n100-explored-exceptional-features-for-the-price-conscious-consumer/"><u>The OnePlus Nord N100 Explored: Exceptional Features for the Price-Conscious Consumer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlocking-the-secrets-of-perfect-aspect-ratios-for-2024/"><u>Unlocking the Secrets of Perfect Aspect Ratios for 2024</u></a></li>
+</ul></div>
 

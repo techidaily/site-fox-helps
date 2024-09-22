@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exploring Soft Cessation of Audio Tracks with Audacity\""
-date: 2024-09-13T21:17:31.778Z
-updated: 2024-09-17T23:14:30.854Z
+date: 2024-09-16T20:31:39.242Z
+updated: 2024-09-22T18:37:23.788Z
 tags: 
   - screen-recording
   - ai video
@@ -51,15 +51,22 @@ Choose your audio segment, go to the Effect menu, slide to the bottom, and pick 
 
 ![studio fade out audacity](https://images.wondershare.com/filmora/article-images/2022/07/studio-fade-out-audacity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Adjustable Fade
 
 A dialog box will show up on the screen when you choose the customizable fade option. You may customize the form and pattern of the fading using that dialog box. You may use this ability to make partial fades if you'd like. You must maintain the tracks stacked one on top of the other with the lower track underneath the higher track and its end overlapping when employing this form of fade.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Steps to Use Adjustable Fade:**
@@ -82,6 +89,13 @@ Select the area to be crossfaded using the Selection tool, and then click Effect
 ![crossafade audio with audacity](https://images.wondershare.com/filmora/article-images/2022/07/crossafade-audio-with-audacity.jpg)
 
 Use your Selection tool to organize the clips such that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5\. Alternative Way to Fade Audio
 
@@ -109,31 +123,11 @@ You must drag the files into Filmora's timeline after importing your media files
 
 ![open the audio editor in filmora](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4 Fade-in/fade-out audio
 
 The first step in this process is to learn how to use Filmora to start fading in and out your audio recordings. The best aspect of Filmora is how simple it is to employ these techniques from the timeline. To achieve this, focus on the audio file that you want to change in the timeline; after you've picked it, the two icons will show up above the audio file. Drag the first one to the desired duration for the audio fade-in option, as demonstrated:
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
@@ -159,13 +153,6 @@ In the step that follows, we'll show you how to use this platform to fade in and
 
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
 
 ##### Step3 Open the Audio Editor in Filmora
@@ -189,10 +176,17 @@ The last step consists of downloading your modified file to your PC and storing 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -223,21 +217,18 @@ You may access a variety of tools and services on the platform known as Audacity
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-harnessing-the-power-camera-techniques-in-ios-11-for-2024/"><u>[New] Harnessing the Power Camera Techniques in iOS 11 for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-online-hubs-for-visualizing-text-effects/"><u>[New] In 2024, Essential Online Hubs for Visualizing Text Effects</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlock-pinterests-treasure-trove-with-top-free-video-downloads/"><u>[New] Unlock Pinterest's Treasure Trove with Top Free Video Downloads</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-masterful-descriptions-for-youtube-success/"><u>[Updated] 2024 Approved Masterful Descriptions for YouTube Success</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-from-digital-to-physical-crafting-flawless-dvds-on-a-mac/"><u>[Updated] From Digital to Physical Crafting Flawless DVDs on a Mac</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-percussion-prospector-find-and-test-free-software-for-2024/"><u>[Updated] The Percussion Prospector – Find & Test Free Software for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-light-to-shadow-premiere-pro-transitions/"><u>2024 Approved From Light to Shadow Premiere Pro Transitions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-snap-into-clarity-10-online-tools-to-blur-proof-images/"><u>2024 Approved Snap Into Clarity 10 Online Tools to Blur-Proof Images</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-sns-hdr-pro-review-is-it-worth-using-and-what-other-hdr-software-to-u/"><u>2024 Approved SNS HDR Pro Review Is It Worth Using and What Other HDR Software to U</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-the-newest-intel-raid-drivers-on-your-windows-system-versions-for-w11-10-8-and-win7/"><u>How to Install the Newest Intel RAID Drivers on Your Windows System: Versions for W11, 10, 8 & Win7</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-decoding-the-best-of-beauty-youtubes-elite-artists-showcased/"><u>In 2024, Decoding the Best of Beauty YouTube's Elite Artists Showcased</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-full-capability-assessment-of-sony-fdr-x1000-videography/"><u>In 2024, Full Capability Assessment of Sony FDR-X1000 Videography</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unveiling-top-10-destinations-for-high-end-vectors/"><u>In 2024, Unveiling Top 10 Destinations for High-End Vectors</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ingenious-wavework-wisdom-casters-companion/"><u>Ingenious Wavework Wisdom Caster's Companion</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/selecting-the-perfect-day-for-podcast-drops/"><u>Selecting the Perfect Day for Podcast Drops</u></a></li>
-<li><a href="https://win-answers.techidaily.com/silent-skies-solving-the-skyrim-sound-issues-effectively/"><u>Silent Skies: Solving the Skyrim Sound Issues Effectively</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elite-file-sender-mp4-to-social/"><u>[New] Elite File Sender MP4 to Social</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unraveling-the-mystery-of-selecting-a-virtual-reality-device-tethered-connections-vs-mobility-freedom-for-2024/"><u>[New] Unraveling the Mystery of Selecting a Virtual Reality Device Tethered Connections vs Mobility Freedom for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-video-editing-made-simple-using-windows-10s-built-in-features-easily-for-2024/"><u>[New] Video Editing Made Simple Using Windows 10'S Built-In Features Easily for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-streamlining-windows-photos-experience-with-added-filtersmusic-for-2024/"><u>[Updated] Streamlining Windows Photos Experience with Added Filters/Music for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-proven-youtube-intra-creation-strategies-free-edition/"><u>2024 Approved Proven YouTube Intra Creation Strategies, Free Edition</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-on-apple-iphone-15-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 On Apple iPhone 15</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-video-quality-on-windows-download-logitech-hd-camera-c270/"><u>Enhance Video Quality on Windows: Download Logitech HD Camera (C270)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-premium-picks-for-the-ultimate-gopro-experience/"><u>In 2024, Premium Picks for the Ultimate Gopro Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unleash-creativity-with-must-have-camera-extras/"><u>In 2024, Unleash Creativity with Must-Have Camera Extras</u></a></li>
+<li><a href="https://win11.techidaily.com/instant-setup-acquiring-adobe-reader-via-ms-store/"><u>Instant Setup: Acquiring Adobe Reader via MS Store</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revolutionize-your-podcast-with-these-ai-name-makers-for-2024/"><u>Revolutionize Your Podcast with These AI Name Makers for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-11-pro-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-your-youtube-success-story-a-comprehensive-guide-to-creative-studio-for-2024/"><u>Unlocking Your Youtube Success Story A Comprehensive Guide to Creative Studio for 2024</u></a></li>
 </ul></div>
 

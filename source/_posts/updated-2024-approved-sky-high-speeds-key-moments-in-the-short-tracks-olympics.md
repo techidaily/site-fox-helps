@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Sky-High Speeds  Key Moments in the Short Tracks, Olympics\""
-date: 2024-09-12T20:59:32.259Z
-updated: 2024-09-17T17:11:19.018Z
+date: 2024-09-16T17:49:12.497Z
+updated: 2024-09-22T19:19:42.048Z
 tags: 
   - screen-recording
   - ai video
@@ -79,6 +79,13 @@ To create such a highlight video on any sports event, there are certain videos e
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
@@ -97,13 +104,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -115,10 +115,10 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -144,17 +144,16 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-navigating-youtube-feedback-a-user-guide/"><u>[New] 2024 Approved Navigating YouTube Feedback A User Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-stepwise-steps-to-install-windows-movie-maker-6/"><u>[New] 2024 Approved Stepwise Steps to Install Windows Movie Maker 6</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-creating-syncopated-stories-with-youtube-music-and-videos/"><u>[Updated] 2024 Approved Creating Syncopated Stories with YouTube Music & Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-craftsmanship-hub-top-after-effects-template-deals/"><u>2024 Approved Craftsmanship Hub Top After Effects Template Deals</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premier-tips-for-capturing-the-excitement-of-online-cricket-matches/"><u>2024 Approved Premier Tips for Capturing the Excitement of Online Cricket Matches</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-steadicams-for-dsrl-filming/"><u>Best Steadicams for DSRL Filming</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-clear-unidentified-devices-issue-in-win-11/"><u>How to Clear Unidentified Devices Issue in Win 11</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-prevent-and-fix-nioh-2-crashes-effectively/"><u>How To Prevent and Fix Nioh 2 Crashes Effectively</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-the-custom-instructions-in-chatgpt-insights-and-practical-uses/"><u>Mastering the Custom Instructions in ChatGPT: Insights and Practical Uses</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/navigate-video-trimming-with-ease-on-windows-11-photos-for-2024/"><u>Navigate Video Trimming with Ease on Windows 11 Photos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-essentials-of-aerial-filmmaking-techniques/"><u>The Essentials of Aerial Filmmaking Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-economical-drones-reviewed-best-under-a-hundred-bucks/"><u>[New] Economical Drones Reviewed Best Under a Hundred Bucks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-essence-of-elegance-premium-filters-for-your-snap/"><u>[New] In 2024, The Essence of Elegance Premium Filters for Your Snap</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-10-tips-for-sound-fade-effects-in-premiere-pro/"><u>[Updated] In 2024, Top 10 Tips for Sound Fade Effects in Premiere Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ultimate-ranking-of-15-4k-video-devices/"><u>[Updated] In 2024, Ultimate Ranking of #15 4K Video Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-next-gen-screen-capture-unleashed-apeaksofts-2023-review-for-2024/"><u>[Updated] Next-Gen Screen Capture Unleashed Apeaksoft’s 2023 Review for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transforming-novices-into-reddit-masterminds-for-maximum-engagement/"><u>[Updated] Transforming Novices Into Reddit Masterminds for Maximum Engagement</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-selective-blur-for-enhanced-privacy-measures/"><u>2024 Approved Selective Blur for Enhanced Privacy Measures</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-best-performance-downloading-and-setting-up-hp-zbook-15-g3-drives-on-your-windows-pc/"><u>Get the Best Performance: Downloading and Setting Up HP ZBook 15 G3 Drives on Your Windows PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/leading-photo-and-tune-recorders-for-immersive-experience/"><u>Leading Photo & Tune Recorders for Immersive Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gets-its-first-ever-language-app-mondlyback-buttonfilter-button/"><u>Oculus Quest Gets Its First-Ever Language App: MondlyBack ButtonFilter Button</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-future-is-now-uncover-what-googles-ai-project-gemini-is-striving-for/"><u>The Future Is Now: Uncover What Google's AI Project Gemini Is Striving For</u></a></li>
 </ul></div>
 

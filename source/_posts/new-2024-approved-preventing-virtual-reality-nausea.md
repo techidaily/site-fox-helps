@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Preventing Virtual Reality Nausea\""
-date: 2024-07-13T18:38:31.218Z
-updated: 2024-07-14T18:38:31.218Z
+date: 2024-09-18T18:21:08.777Z
+updated: 2024-09-22T18:46:41.974Z
 tags: 
   - screen-recording
   - ai video
@@ -19,18 +19,12 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 ## Preventing Virtual Reality Nausea
 
 # 10 tips to prevent Oculus Rift VR motion sickness
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10 ways to prevent Oculus Rift motion sickness
 
  While using your Oculus Rift development kits you need to take care of few little things in order to avoid getting any kind of sickness during your game. Although the factors vary from individual to individual since it is more of the bodily response rather than the design variation.
@@ -55,18 +49,12 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
 
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
@@ -92,6 +80,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-capturing-the-cloud-proven-methods-for-perfecting-drones-in-post-production/"><u>[New] 2024 Approved Capturing the Cloud Proven Methods for Perfecting Drones in Post-Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-comprehensive-examination-the-future-of-photography-with-aurora-hdr/"><u>[New] In 2024, Comprehensive Examination The Future of Photography with Aurora HDR?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-journey-to-unlicensed-beauty-open-source-portfolits/"><u>[New] Journey to Unlicensed Beauty Open-Source Portfolits</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-decoding-the-complexities-of-discord-spoilers-for-gamers/"><u>[Updated] Decoding the Complexities of Discord Spoilers for Gamers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/achieving-financial-independence-on-youtube-via-views-for-2024/"><u>Achieving Financial Independence on YouTube via Views for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/budget-friendly-tech-unveiling-the-impressive-features-of-the-new-google-pixel-7a/"><u>Budget-Friendly Tech: Unveiling the Impressive Features of the New Google Pixel 7A</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oppo-a1x-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Oppo A1x 5G?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How to share/fake gps on Uber for Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/progopro-session-series-evolution-for-2024/"><u>ProGoPro Session Series Evolution for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-xiaomi-redmi-a2-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Xiaomi Redmi A2 FRP Bypass</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

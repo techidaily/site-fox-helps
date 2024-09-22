@@ -1,7 +1,7 @@
 ---
 title: "Innovations in Hand Tracking and Gesture Detection for 2024"
-date: 2024-07-13T18:34:54.161Z
-updated: 2024-07-14T18:34:54.161Z
+date: 2024-09-19T19:44:51.414Z
+updated: 2024-09-22T18:04:49.034Z
 tags: 
   - screen-recording
   - ai video
@@ -75,6 +75,13 @@ Also known as Markerless Hand Tracking, this type of Hand Tracking allows users 
 
 Right now, markerless Hand Tracking is still in its early stages, with a few limitations. However, as this technology continues to develop, we will likely see more and more applications for it in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Using Python, OpenCV, And MediaPipe To Create A Hand Tracking
 
 Above we have learned what is Hand Tracking and the two types of it. Now let’s see how we can create a hand tracking with two Python Libraries - OpenCV and MediaPipe.
@@ -104,20 +111,28 @@ Before starting to create Hand Tracking, you need to install the [Pycharm IDE](h
 
 Click the **“New Project”** option and select **“Create”** on the next Window. Open the **Terminal** to install the two libraries.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![install and launch the pycharm app on your pc](https://images.wondershare.com/filmora/article-images/2022/07/install-and-launch-the-pycharm-app-on-your-pc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, to install **MediaPipe**, copy and paste the following command:
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![install mediapipe](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-2.jpg)
 
 **Coding**
@@ -281,16 +296,27 @@ A _main.py_ file for writing code will be automatically created in _Pycharm_ app
 
 First, import the OpenCV and MediaPipe to use their dependencies. Once done, create an object _cap_ for video capturing and three other objects; _mpHands, hands,_ and _mpDraw_ to manipulate your input using MediaPipe.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![importing the libraries](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2 Capturing And Processing An Image Input
 
 Copy and paste the following line of code to take the image input from your PC webcam.
 
 ![capturing and processing an image input](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The image is converted to RGB from BGR because MediaPipe works with this type of image. The RBG image is then processed to track the hand.
 
@@ -329,9 +355,6 @@ To execute the main method, copy and paste the following code lines:
 
 The module and output of the program will be the same, and when they are complete without any errors, you will get your output, i.e., the module will track and identify your hand movements without any glitches.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4\. Use Filmora to demonstarte your Hand Tracking skill
 
 After what has been explained above and what you have learned by now, we hope you have been equipped with hand tracking module knowledge and be ready to take action. Here, we will also sincerely recommend you a user-friendly and professional video edtior to show your hand motion scene – [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)![Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is available for all types of users. You can easily use it to edit your video, add effects to it and insert your hand motion part naturally.
@@ -370,6 +393,20 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-the-art-of-podcast-rss-mastery/"><u>[New] 2024 Approved Unveiling the Art of Podcast RSS Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-cloud-hookups-for-android/"><u>[New] In 2024, Essential Cloud Hookups for Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlock-fcp-without-paying-tips/"><u>[New] In 2024, Unlock FCP without Paying - Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effortlessly-amend-your-profile-age-on-tiktok-for-2024/"><u>[Updated] Effortlessly Amend Your Profile Age on TikTok for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-harness-the-power-of-obs-on-android-gadgets/"><u>[Updated] How to Harness the Power of OBS on Android Gadgets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-precision-shade-modifier/"><u>[Updated] In 2024, Precision Shade Modifier</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-premium-8-editors-compatible-with-linux/"><u>[Updated] In 2024, Premium 8 Editors Compatible with Linux</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-preserve-your-display-win-os-snapshots-explained/"><u>[Updated] Preserve Your Display Win OS Snapshots Explained</u></a></li>
+<li><a href="https://article-helps.techidaily.com/building-brand-authority-top-tips-for-novice-marketers-on-reddit-for-2024/"><u>Building Brand Authority Top Tips for Novice Marketers on Reddit for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-ioss-best-selection-of-premium-psp-emulators/"><u>In 2024, IOS's Best Selection of Premium PSP Emulators</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/norton-rose-llp-setzt-auf-fortschrittliche-dokumentenverarbeitung-mit-abbyy-recognition-server-zentralisierte-digitalisierung-fur-anwalte/"><u>Norton Rose LLP Setzt Auf Fortschrittliche Dokumentenverarbeitung Mit ABBYY Recognition Server – Zentralisierte Digitalisierung Für Anwälte</u></a></li>
+<li><a href="https://video-capture.techidaily.com/quick-and-simple-guide-converting-flv-videos-into-html5-format/"><u>Quick & Simple Guide: Converting FLV Videos Into HTML5 Format</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/streamline-broadcasting-going-from-xbox-to-fb-live-for-2024/"><u>Streamline Broadcasting Going From Xbox to FB Live for 2024</u></a></li>
+</ul></div>
 

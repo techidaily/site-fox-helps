@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Jumping From SDR to HDR  The Ultimate Transformation Guide\""
-date: 2024-09-16T17:36:05.410Z
-updated: 2024-09-17T18:27:41.865Z
+date: 2024-09-15T19:57:08.534Z
+updated: 2024-09-22T16:02:16.563Z
 tags: 
   - screen-recording
   - ai video
@@ -135,6 +135,13 @@ Step5Click VapourSynth tab > Colors.
 
 ![click vapoursynth tab colors](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6Enable the “Color Space Converter” option. Change Input Matrix, Transfer, and Primaries as per the “Video Info” details on the right.
 
 ![color space converter](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-6.jpg)
@@ -154,13 +161,6 @@ Step9Change the elements for Colors Matrix, Transfer, and Primaries to the setti
 ![change the elements](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-12.jpg)
 
 Step10Click Preview to check and Start to convert.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -190,13 +190,6 @@ Step6Open Effects > BorisFX > Download.
 
 ![open borisfx](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step7Choose among the newer options like BCC Optical Diffusion, BCC Warp, and BCC Grads and Tints to upconvert to HDR quality.
 
 ![upconvert to hdr quality](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-11.jpg)
@@ -206,6 +199,13 @@ Step8Click on the Export button.
 Step9Choose the Local tab and choose the video format for exporting. Rename the file and set the saving location. The color space is set at SDR by default.
 
 ![set the saving location](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step10Click on the Settings button for pre-set changes, and choose encoder, resolution, etc. If your device supports the accepted GPU specifications, you can set “Export Color Space” to HDR- Rec.2020.
 
@@ -238,22 +238,15 @@ Step3Set video codec to HVEC. Change CRF value to 17.
 ![change crf value to 17](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4Click on Profiling and change settings to Main 10 and Unlimited Level. Set bit depth to 10-bit.
 
 ![set bit depth to 10 bit](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step5Click VapourSynth tab > Colors.
 
@@ -269,22 +262,29 @@ Step7Set them as follows for the Output-related color space sections to make the
 
 ![output related color space](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step8Then, go to the taskbar again and press Signal. Enable Colors and HDR10 Metadata.
 
 ![hdr10 metadata](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step9Change the elements for Colors Matrix, Transfer, and Primaries to the settings given in the picture.
 
 ![change the elements](https://images.wondershare.com/filmora/article-images/2022/08/sdr-to-hdr-video-conversion-12.jpg)
 
 Step10Click Preview to check and Start to convert.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -318,21 +318,18 @@ You can choose a proper way, like a video editor or encoder to convert the SDR v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-cutting-edge-green-screen-strategies-for-professional-streamers/"><u>[New] 2024 Approved Cutting-Edge Green Screen Strategies for Professional Streamers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-capturing-your-macs-display-live-easy-steps-included-for-2024/"><u>[New] Capturing Your Mac's Display Live - Easy Steps Included for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-beautys-buzz-youtube-gurus-predicted/"><u>[New] In 2024, Beauty's Buzz YouTube Gurus Predicted</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-perfect-pairing-transferring-camera-roll-content-effortlessly-to-snapchat/"><u>[New] In 2024, Perfect Pairing Transferring Camera Roll Content Effortlessly to Snapchat</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-simplifying-video-editing-on-iphone-trim-and-adjust-sizes/"><u>[New] Simplifying Video Editing on iPhone Trim & Adjust Sizes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-the-art-and-science-behind-color-grading-tools-luts-for-2024/"><u>[New] The Art and Science Behind Color Grading Tools (LUTs) for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-digital-footprints-keeping-your-twitter-vids-safe-and-sound-for-2024/"><u>[Updated] Digital Footprints Keeping Your Twitter Vids Safe and Sound for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-prime-pick-best-vr-devices-of-the-year/"><u>[Updated] In 2024, Prime Pick Best VR Devices of the Year</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-seamless-photo-transformations-with-adobe-photoshops-background-erase-technique/"><u>[Updated] In 2024, Seamless Photo Transformations with Adobe Photoshop's Background Erase Technique</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-free-guide-to-transforming-your-iphone-x7-selfies-for-2024/"><u>[Updated] The Ultimate FREE Guide to Transforming Your iPhone X/7 Selfies for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/add-shimmer-to-photos-illustrators-motion-blur-guide/"><u>Add Shimmer to Photos Illustrator's Motion Blur Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/download-high-quality-mp3-music-files-fast-and-easy/"><u>Download High-Quality Mp3 Music Files Fast & Easy</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/elevate-your-audio-a-step-by-step-guide-to-finding-and-integrating-free-sound-effects-in-final-cut-pro-for-2024/"><u>Elevate Your Audio A Step-by-Step Guide to Finding and Integrating Free Sound Effects in Final Cut Pro for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/exclusive-selections-best-virtual-reality-titles-for-cardboard/"><u>Exclusive Selections Best Virtual Reality Titles for Cardboard</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-se-2022-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone SE (2022)?</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/reach-out-to-digital-artistry-connect-with-innovative-design-services/"><u>Reach Out to Digital Artistry: Connect with Innovative Design Services</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-4k-gimbal-picks-top-ten-mirrorless-companions/"><u>[New] 2024 Approved 4K Gimbal Picks Top Ten Mirrorless Companions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-streamlining-processes-adding-tracks-to-your-custom-youtube-collection/"><u>[New] In 2024, Streamlining Processes Adding Tracks to Your Custom YouTube Collection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-spark-to-the-past-djis-mavic-air-reimagines-gameplay-for-2024/"><u>[New] Spark to the Past? DJI's Mavic Air Reimagines Gameplay for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-assessing-shooters-choices-hero-5-black-or-km-170/"><u>[Updated] 2024 Approved Assessing Shooters' Choices Hero 5 Black or KM-170</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-companion-for-online-radio-preservationists/"><u>[Updated] The Ultimate Companion for Online Radio Preservationists</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/avoiding-catastrophic-failures-proactive-solutions-to-non-launching-businesses/"><u>Avoiding Catastrophic Failures: Proactive Solutions to Non-Launching Businesses</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-your-xp-system-mastering-driver-changes-by-hands/"><u>Elevate Your XP System: Mastering Driver Changes by Hands</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/guide-to-getting-1000-subscribers-for-your-youtube-channel-for-2024/"><u>Guide to Getting 1000 Subscribers for Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-nord-3-5g-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Nord 3 5G.</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-15-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 15 Properly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/innovate-in-note-taking-with-mematic-platform-for-2024/"><u>Innovate in Note-Taking with Mematic Platform for 2024</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/transforming-avchd-files-into-mp4-format-without-cost-on-windows-10-top-five-techniques/"><u>Transforming AVCHD Files Into MP4 Format Without Cost on Windows 10: Top Five Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Motorola Moto G84 5G | Dr.fone</u></a></li>
 </ul></div>
 

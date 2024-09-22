@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unveiling the Elite After Effects Plugins Compendium\""
-date: 2024-07-13T18:34:57.390Z
-updated: 2024-07-14T18:34:57.390Z
+date: 2024-09-17T18:40:23.283Z
+updated: 2024-09-22T18:29:11.769Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 
 Adobe After Effects remains one of the most powerful ways to edit videos. One of the main reasons users find it so useful is the ability to customize the video editing process by adding different kinds of plugins to the program. If you are looking to add unique and fancy text to the video you are working on, then these text plugins for After Effects will come in handy.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## TextDelay
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
@@ -31,18 +28,6 @@ TextDelay is a native plugin, meaning that you will find it already installed on
 
 ![text delay plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-delay-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## TextExploder
 
 Link: <https://aescripts.com/textexploder/>
@@ -67,9 +52,6 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Font Manager
 
 Link: <https://aescripts.com/font-manager/>
@@ -77,6 +59,20 @@ Link: <https://aescripts.com/font-manager/>
 Font Manager is an After Effects text plugin that is useful when creating and working with animated typefaces. You can use it to create the most complex animated text graphics in just a few simple clicks. You will also find it very familiar to use as the user interface is similar to the Character Panel in After Effects.
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Cartoon Moblur
 
@@ -92,6 +88,13 @@ If you are looking for shadow styles that will go very well with your project, S
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Texts Animation Bundle
 
 Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
@@ -100,9 +103,6 @@ This is a bundle of more than 80 different templates to add text effects to any 
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -111,6 +111,13 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
@@ -118,6 +125,13 @@ Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -151,6 +165,22 @@ On its own After Effects comes with so many post-production effects and features
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-distinguished-counsel-expert-iphone-tone-artisans-for-2024/"><u>[New] Distinguished Counsel Expert iPhone Tone Artisans for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-twisting-tales-in-visual-storytelling-mastering-the-art-of-rotating-photos-for-maximum-engagement-on-social-media-platforms/"><u>[New] In 2024, Twisting Tales in Visual Storytelling Mastering the Art of Rotating Photos for Maximum Engagement on Social Media Platforms</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-pixel-chronicles-mastering-the-art-of-recording-your-minecraft-world/"><u>[New] Pixel Chronicles Mastering the Art of Recording Your Minecraft World</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-superior-choices-top-5-sd-cards-for-gopro-hero-cameras-8-7-for-2024/"><u>[New] Superior Choices Top 5 SD Cards for GoPro Hero Cameras (8, 7) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-a-critical-look-at-huawei-p10-for-photography-enthusiasts-for-2024/"><u>[Updated] A Critical Look at Huawei P10 for Photography Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-from-meme-noob-to-pro-mastering-the-9gag-craft/"><u>[Updated] In 2024, From Meme Noob to Pro Mastering the 9GAG Craft</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-maximizing-video-capacity-in-64128gb-drives/"><u>[Updated] In 2024, Maximizing Video Capacity in 64/128GB Drives</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-pinnacle-editor-hub-immersive-pc-cutting-and-melodic-integration/"><u>2024 Approved Pinnacle Editor Hub Immersive PC Cutting & Melodic Integration</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-7-artificial-intelligence-powered-voice-synthesizers-compatible-with-pcs-iphones-and-android-devices/"><u>Best 7 Artificial Intelligence-Powered Voice Synthesizers Compatible with PCs, iPhones & Android Devices</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-tecno-spark-20c-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Tecno Spark 20C? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-xs-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone XS Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-picture-perfect-presentation-software-for-impeccable-photo-framing/"><u>In 2024, Picture Perfect Presentation Software for Impeccable Photo Framing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-quick-tips-uploading-to-apple-podcast-network/"><u>In 2024, Quick Tips Uploading to Apple Podcast Network</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-simple-win-steps-for-fishy-sounds-alteration/"><u>In 2024, Simple Win Steps for Fishy Sounds Alteration</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-the-hp-officejet-pro-8740-driver-on-windows-11-10-or-8-step-by-step-guide/"><u>Install the HP OfficeJet Pro 8740 Driver on Windows 11, 10 or 8 – Step-by-Step Guide</u></a></li>
+</ul></div>
 

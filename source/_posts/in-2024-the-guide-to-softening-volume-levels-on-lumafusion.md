@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Guide to Softening Volume Levels on Lumafusion"
-date: 2024-09-13T21:53:59.432Z
-updated: 2024-09-17T20:37:28.796Z
+date: 2024-09-17T16:20:37.898Z
+updated: 2024-09-22T16:31:17.801Z
 tags: 
   - screen-recording
   - ai video
@@ -108,10 +108,10 @@ Drag and drop your sound recordings from the media library to the timeline at th
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step3 Apply Fade Effects
@@ -126,6 +126,13 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
@@ -133,28 +140,15 @@ In that window, you can select the MP3 format in the format customization box to
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -184,18 +178,16 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-finding-the-best-prices-on-vr-headsets-from-china/"><u>[New] 2024 Approved Finding the Best Prices on VR Headsets From China</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-secrets-of-the-masters-top-6-signature-removal-apps-revealed/"><u>[New] In 2024, Secrets of the Masters Top 6 Signature Removal Apps Revealed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-your-gateway-to-innovation-windows-10s-latest-apps-and-games/"><u>[New] In 2024, Your Gateway to Innovation Windows 10’S Latest Apps & Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-virtual-playground-the-ultimate-samsung-gear-vr-list/"><u>[New] Virtual Playground The Ultimate Samsung Gear VR List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-seamless-audio-prime-websites-for-turning-video-melodies-into-sound-effects-for-2024/"><u>[Updated] Seamless Audio Prime Websites for Turning Video Melodies Into Sound Effects for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-switching-from-snippet-to-live-play-in-yt-for-2024/"><u>[Updated] Switching From Snippet to Live Play in YT for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boosting-dungeons-and-dragons-with-chatgpt-a-step-by-step-guide/"><u>Boosting Dungeons & Dragons with ChatGPT: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-blog.techidaily.com/breaking-free-from-development-purgatory-deathloop-hits-the-shelves/"><u>Breaking Free From Development Purgatory: Deathloop Hits the Shelves</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/daenerys-dialer-leading-online-picks-to-download-game-ringtones-for-2024/"><u>Daenerys' Dialer Leading Online Picks to Download Game Ringtones for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-resolving-windows-1110-spatial-audio-issues/"><u>Fixes & Solutions: Resolving Windows 11/10 Spatial Audio Issues</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-ultimate-guide-to-installing-the-latest-eveo-bluetooth-device-driver/"><u>Free Download: Ultimate Guide to Installing the Latest EVEO Bluetooth Device Driver</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-complete-solutions-to-gta-lag-disruptions-and-enhancing-play-quality/"><u>Troubleshooting Complete: Solutions to GTA Lag, Disruptions & Enhancing Play Quality</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-create-and-combine-high-dynamic-range-photos-with-lightroom-for-2024/"><u>[New] How to Create and Combine High Dynamic Range Photos with Lightroom for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-newcomers-guide-to-profitability-on-periscope-live-streaming/"><u>[New] Newcomer’s Guide to Profitability on Periscope Live Streaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-uncovering-the-webs-leading-marketplaces-for-ringtones/"><u>[New] Uncovering the Web's Leading Marketplaces for Ringtones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-the-secrets-behind-youtube-shorts-success/"><u>[New] Unlocking the Secrets Behind YouTube Shorts Success</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-evaluation-samsung-gear-360-vr-camera/"><u>[Updated] Comprehensive Evaluation Samsung Gear 360 VR Camera</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-exploring-the-financials-of-youtube-marketing/"><u>[Updated] Exploring the Financials of YouTube Marketing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-which-player-enhances-media-experience-more-vlc-vs-mx/"><u>[Updated] In 2024, Which Player Enhances Media Experience More? VLC Vs. MX</u></a></li>
+<li><a href="https://win-blog.techidaily.com/call-of-duty-warzone-startup-issues-heres-how-to-resolve-them/"><u>Call of Duty: Warzone Startup Issues – Here's How to Resolve Them</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-visual-treasury-select-10-sites-included-for-2024/"><u>Free Visual Treasury – Select 10 Sites Included for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-hub-in-depth-computer-reviews/"><u>Tom's Tech Hub: In-Depth Computer Reviews</u></a></li>
 </ul></div>
 

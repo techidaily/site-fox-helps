@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Creating a Space for Feedback  Talking with Your Viewers\""
-date: 2024-07-13T18:40:17.735Z
-updated: 2024-07-14T18:40:17.735Z
+date: 2024-09-15T19:27:10.711Z
+updated: 2024-09-22T17:37:38.726Z
 tags: 
   - screen-recording
   - ai video
@@ -36,14 +36,8 @@ Building a strong and loyal subscriber base is very important when it comes to c
 
 ![increase youtube channel subscribers](https://images.wondershare.com/filmora/article-images/2022/11/increase-youtube-channel-subscribers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to communicate with your Subscriber
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Replying to comments section
 
 One of the ways to communicate with your subscriber is to reply immediately in your comment section. Often after watching your video your subscriber comment their questions or whatever in the comment section of your video so don’t think twice to reply to their queries or comment.
@@ -51,6 +45,13 @@ One of the ways to communicate with your subscriber is to reply immediately in y
 Engagement is a huge buzz word in the social media space, often comments on a YouTube channel are left unanswered. By building trust with your viewers by answering questions, responding to comments and addressing issues, it will strengthen future and current relationships with your audience or subscriber. The faster you respond with useful information, the more happy and surprised your YouTube subscriber will be.
 
 ![reply youtube comments section](https://images.wondershare.com/filmora/article-images/2022/11/reply-youtube-comments-section.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Engaging with other People
 
@@ -61,6 +62,13 @@ Engaging with other people, joining groups, forums and others forms of communica
 In entering in some communities or groups, remember that these are communities and as a YouTuber, you should be transparent about who you are and what you do. Users are protective when it comes to maintaining the integrity of discussion in these communities, so be sure you’re adding value first and foremost.
 
 ![engage with other people youtube](https://images.wondershare.com/filmora/article-images/2022/11/engage-with-other-people-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Promoting your channel
 
@@ -90,9 +98,6 @@ Be sure to encourage comments in your videos, as well as taking the time to answ
 
 The more comments and interaction one of your videos has, the more value YouTube and google search algorithm places on it for certain searches. It’s one the many factors this algorithm takes into account when determining what videos to rank for what key phrases being searched.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Asking for subscribers
 
 You can increase your YouTube subscribers by asking people to subscribe to your channel if they like your video. To do this, include a call to action in your video. Your call to action should be compelling to convince people to subscriber. Don’t be shy to ask your family, friends, friends of your friends to subscribe and share your video to their social accounts to more people will see and watch your video. From there you will gain more subscriber and more viewers. Also don’t forget to thank them for their effort promoting your channel.
@@ -101,10 +106,20 @@ You can increase your YouTube subscribers by asking people to subscribe to your 
 
 Promote your channel and videos on other social media like Facebook, Twitter and Instagram. Ask people to watch your videos and subscribe to stay updated on the new videos that you will be published.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![prompt youtube channel on facebook](https://images.wondershare.com/filmora/article-images/2022/11/prompt-youtube-channel-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 While doing this, be consistent and provide value to your subscriber. People want to know that they can count on your channel to provide quality and relevant videos. Be remarkable by taking the right approach. You can increase you YouTube views by establishing relationships with the audiences. Do this by engaging and interacting with the existing audience or subscriber. Be realistic, sustainable, and organic in your videos.
 
@@ -129,6 +144,13 @@ Its not enough to be posting weekly videos with you tips and content. Using your
 One of the important things to do as a YouTuber is to give importance to subscribers because they are the reason why a YouTube channel becomes popular, they also the reason why your channel recognized by many. Viewers and subscribers must treat as your family, always reply to their comment and follow what they have suggested. Don’t forget also to give them a treat by giving them some gifts or allow them to join to your giveaways.
 
 ![youtube video engaging tips](https://images.wondershare.com/filmora/article-images/2022/11/youtube-video-engaging-tips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,6 +190,21 @@ Creating videos on YouTube is key to your video marketing and content marketing 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breakdown-of-earnings-how-much-does-a-clicky-make-for-2024/"><u>[Updated] Breakdown of Earnings How Much Does a Clicky Make for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-web-enhancement-fb-stories-exporter/"><u>[Updated] In 2024, Web Enhancement FB Stories Exporter</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-photoharmony-android-and-ios-instagram-collages/"><u>[Updated] PhotoHarmony Android & iOS Instagram Collages</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-worlds-best-short-videos-download-now-free/"><u>[Updated] World's Best Short Videos – Download Now! (Free)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/effective-management-of-mobile-devices-securing-your-iphone-transferring-an-ipad-and-safeguarding-data-on-ipods/"><u>Effective Management of Mobile Devices: Securing Your iPhone, Transferring an iPad & Safeguarding Data on iPods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ting-income-with-mobile-video-monetization-techniques-for-youtubers-for-2024/"><u>Elevating Income with Mobile Video Monetization Techniques for YouTubers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-beyond-wirecast-for-broadcast-solutions/"><u>In 2024, Navigating Beyond WireCast for Broadcast Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-15-reproductores-de-video-mp4-libres-para-windows-11-y-macos-comparativo-rapido/"><u>Top 15 Reproductores De Video MP4 Libres Para Windows 11 Y macOS: Comparativo Rápido</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-9-exceptional-alternatives-to-final-cut-pro-for-windows-enhancing-your-editing-experience/"><u>Top 9 Exceptional Alternatives to Final Cut Pro for Windows : Enhancing Your Editing Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/topos-19-creadores-de-diaporamas-en-linea-y-sin-coste-comparativa-rigurosa/"><u>Topos 19 Creadores De Diaporamas en Línea Y Sin Coste: Comparativa Rigurosa</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/toutes-les-etapes-pour-transformer-un-fichier-aiff-en-video-wmv-gratuite-en-ligne-avec-movavi/"><u>Toutes Les Étapes Pour Transformer Un Fichier AIFF en Vidéo WMV Gratuite en Ligne Avec Movavi</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/transcode-avi-a-laide-de-wmv-gratuite-sur-internet-movavi/"><u>Transcode AVI À L'aide De WMV Gratuite Sur Internet - Movavi</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/transforma-tu-video-mov-al-sonido-de-calidad-aiff-con-este-servidor-en-linea-gratuito-como-empezar/"><u>Transforma Tu Video MOV Al Sonido De Calidad AIFF Con Este Servidor en Línea Gratuito - Cómo Empezar</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Step-by-Step Guide to Curved Image Design for 2024\""
-date: 2024-07-13T18:32:15.319Z
-updated: 2024-07-14T18:32:15.319Z
+date: 2024-09-16T17:07:42.393Z
+updated: 2024-09-22T18:06:16.126Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 
 ![curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/curve-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -51,9 +48,6 @@ Play around with the settings in the options bar. There are quite a few differen
 
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
@@ -66,16 +60,10 @@ The **Bend Direction** option rotates the angle of the bend.
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
 ##### Step4Save the Image
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 ## Conclusion
@@ -110,6 +98,29 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-14-text-based-motion-graphics/"><u>[New] 2024 Approved Essential 14 Text-Based Motion Graphics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vs-gopro-hero-session-and-polaroid-cube-top-pick-for-filmmakers/"><u>[New] Vs. GoPro Hero Session & Polaroid Cube Top Pick for Filmmakers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-premium-picks-superior-vr-game-choices-for-the-cardboard-enthusiast/"><u>[Updated] 2024 Approved Premium Picks Superior VR Game Choices for the Cardboard Enthusiast</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-instagram-snapshot-of-an-enlightening-episode-for-2024/"><u>[Updated] Instagram Snapshot of an Enlightening Episode for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-optimized-auditory-experience-choosing-the-best-audio-device/"><u>[Updated] Optimized Auditory Experience Choosing the Best Audio Device</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-peripheral-vision-audit-for-2024/"><u>[Updated] Peripheral Vision Audit for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/4-minimalist-devices-compact-windows-edition/"><u>4 Minimalist Devices: Compact Windows Edition</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-nokia-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Nokia on Windows??</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-cerebral-showcase-gk-video-challenge-network/"><u>In 2024, Cerebral Showcase - GK Video Challenge Network</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-twinkling-typefaces-the-essence-of-bouncy-text/"><u>In 2024, Twinkling Typefaces The Essence of Bouncy Text</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-and-easy-how-to-installing-driver-updates-on-windows-versions-7-to-10/"><u>Quick and Easy How-To: Installing Driver Updates on Windows Versions 7 to 10</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/satellite-internets-new-era-why-starlink-stands-out/"><u>Satellite Internet's New Era: Why Starlink Stands Out</u></a></li>
+<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-real-world-usability-of-photoshops-motion-reduction/"><u>The Real-World Usability of Photoshop’s Motion Reduction</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

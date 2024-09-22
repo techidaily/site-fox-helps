@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfecting Visual Output  Incorporating LUTs Into Your AE Projects\""
-date: 2024-07-13T18:35:30.417Z
-updated: 2024-07-14T18:35:30.417Z
+date: 2024-09-21T16:03:59.329Z
+updated: 2024-09-22T16:20:47.388Z
 tags: 
   - screen-recording
   - ai video
@@ -42,108 +42,6 @@ Additionally, you will find recommendations on where to get the best after effec
 
 03 [How to use LUTs in After Effects](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-## Things to Know Before Using LUTs in After Effect
-
-Do you ever wonder why some Adobe After Effects videos look so great? Regardless of your experience with the software, here are the points to consider when using LUTs in After Effects.
-
-#### 1\. Check your white balance settings
-
-If you are questioning why there lies your first challenge. You need to check the white balance of your creations because colors appear differently, depending on the lighting you use. As such, you need to adjust your white balance to suit conditions similar to when you made the video. For example, your settings should be between 4000 – 5000K if your light source is fluorescent.
-
-![things to make sure before using luts in AE](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-2.jpg)
-
-Here is how you get the correct white balance when using Adobe After Effects.
-
-1. Open the image you want to edit in the program.
-2. Next, from the Layer dropdown menu, click on New, and then select Solid.
-3. Once the menu opens, select a section of your image that should be white, as your solid color, and click Ok. This will only work if your brightness value is at 100\. For example, the ceiling in the picture is white.
-4. Select Divide from the Transfer menu, and the result is an image with a perfect white balance.
-
-#### 2\. Match your editing with the source material
-
-Can you get to Mars with $30? Unless you have Martian buddies, it is highly unlikely. You should always consider your equipment’s capabilities when creating photos or videos. Factors like exposure, lighting, and lens type are crucial to producing quality content.
-
-For example, you need a wide-angle lens to have more depth in your videos. Therefore, always ensure you limit your LUT usage to the source material.
-
-Most creators often fail because of after effects luts overuse. Other factors to consider when creating are the location and timing. Your filming environment changes constantly. As such, you should always expect to make adjustments to ensure quality output.
-
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![things to make sure before using luts in AE - match editing with source marterial](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-3.jpg)
-
-#### 3\. Settle on a creative style
-
-What makes David Fincher famous? His consistent use of desaturated and monochromatic colors in movies to perfection. Similarly, you need to choose a consistent theme for your creations. As such, you get better at it with subsequent creations.
-
-## How to import LUTs in After Effect?
-
-Do you remember the thing about being unique earlier? You can import LUTs if you feel the presets are not to your standard. Plenty of custom ones are available as free downloads but more on that later. This is how to import LUTs in After Effects.
-
-* Load the clip you want to edit to Adobe After Effects.
-* Then, go to the Effects and Presets menu option on your workspace. In case it is missing, check whether it is active from the Window tab located at the top of your main menu. Alternatively, you can always press CTRL + 5 to open it.
-* Next, launch Apply Color LUT to open your File Explorer. It should be one of the options in the Effects and Presets window. Alternatively, you can search for it by typing the same in the text box.
-* Once it opens, drag it into your workspace for you to apply the custom LUT to your clip.
-* Locate the custom LUT, by navigating to the directory you downloaded the preset.
-
-Alternatively, you can have all your custom LUTs at the ready by adding them to the After Effects LUT directory. Here is the process.
-
-* Open the directory where all your custom LUTs are on your device.
-* Then, use the Select All and then COPY functions of your device. Press CTRL + A, then CTRL + X on your keyboard if you are a Windows User. Use the COMMAND - A, then COMMAND – X functions if you use it on Mac.
-* Finally, paste the files in your Adobe After Effects installation directory.  
-For macOS  
-/Users//Library/Application Support/Adobe/Common/LUTs/Creative  
-/Users//Library/Application Support/Adobe/Common/LUTs/Creative  
-For Windows  
-C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Creative  
-C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Technical
-* The custom LUT files will be available to you as presets next time you launch Adobe Effects. The process only works if you are the primary user. Furthermore, ensure you put each copy in the relevant directories.
-
-## How to use LUTs in After Effects
-
-Now that you have a variety of Adobe After Effects LUTs at your disposal, here is how you apply them.
-
-1. Launch the program and select the video or photo you would like to edit.
-2. Then, open the Effects and Presets panel to launch the Apply Color LUT utility. You should notice a significant increase in LUTs available if you did the above correctly.
-3. Now, drag and drop the Apply Color LUT utility onto the clip you want to edit. This is the only way your adjustments will work. Additionally, you should make the application on the timeline.
-4. A dialogue box should now be open, with the location of your LUT presets as the default.
-5. Choose the LUT you want and press Open to apply the change.
-6. You can edit the LUT using the Effect Control Panel. The functions you need are on either side of the video.
-
-![how to use luts in after effects](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-4.jpg)
-
-Adobe After Effects allows you to use LUTs on multiple clips. However, you need an adjustment layer for this to work. Here is how you enable the function.
-
-* Right-click on the area of your timeline that you want to edit.
-* Select New from the pop-up menu, and click on the Adjustment Layer option.
-* Then, follow steps one through five to add the LUT.
-
-**●** As you can see, Adobe After Effects give you lots of leverage when using LUTs. And with the information above, you are ready to unleash your full creative potential. Keep checking with us for more insightful guides on video and photo editing.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Are you looking to add some extra zing to your videos? If you use Adobe After Effects for your video editing, this is for you. The following is a free LUT After Effects guide to making your next video pop. You will discover what makes a great After Effects luts video and how to apply that to your next production.
-
-Additionally, you will find recommendations on where to get the best after effects luts. So, grab your favorite drink, and let your journey to video editing supremacy begin.
-
-![luts in after effect](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-1.jpg)
-
-#### In this article
-
-01 [Things to Know Before Using LUTs in After Effect](#part1)
-
-02 [How to import LUTs in After Effect?](#part2)
-
-03 [How to use LUTs in After Effects](#part3)
-
 ## Things to Know Before Using LUTs in After Effect
 
 Do you ever wonder why some Adobe After Effects videos look so great? Regardless of your experience with the software, here are the points to consider when using LUTs in After Effects.
@@ -245,6 +143,13 @@ If you are questioning why there lies your first challenge. You need to check th
 
 ![things to make sure before using luts in AE](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here is how you get the correct white balance when using Adobe After Effects.
 
 1. Open the image you want to edit in the program.
@@ -260,9 +165,6 @@ For example, you need a wide-angle lens to have more depth in your videos. There
 
 Most creators often fail because of after effects luts overuse. Other factors to consider when creating are the location and timing. Your filming environment changes constantly. As such, you should always expect to make adjustments to ensure quality output.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![things to make sure before using luts in AE - match editing with source marterial](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-3.jpg)
 
 #### 3\. Settle on a creative style
@@ -329,6 +231,13 @@ Additionally, you will find recommendations on where to get the best after effec
 
 03 [How to use LUTs in After Effects](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Things to Know Before Using LUTs in After Effect
 
 Do you ever wonder why some Adobe After Effects videos look so great? Regardless of your experience with the software, here are the points to consider when using LUTs in After Effects.
@@ -360,9 +269,130 @@ Most creators often fail because of after effects luts overuse. Other factors to
 
 What makes David Fincher famous? His consistent use of desaturated and monochromatic colors in movies to perfection. Similarly, you need to choose a consistent theme for your creations. As such, you get better at it with subsequent creations.
 
+## How to import LUTs in After Effect?
+
+Do you remember the thing about being unique earlier? You can import LUTs if you feel the presets are not to your standard. Plenty of custom ones are available as free downloads but more on that later. This is how to import LUTs in After Effects.
+
+* Load the clip you want to edit to Adobe After Effects.
+* Then, go to the Effects and Presets menu option on your workspace. In case it is missing, check whether it is active from the Window tab located at the top of your main menu. Alternatively, you can always press CTRL + 5 to open it.
+* Next, launch Apply Color LUT to open your File Explorer. It should be one of the options in the Effects and Presets window. Alternatively, you can search for it by typing the same in the text box.
+* Once it opens, drag it into your workspace for you to apply the custom LUT to your clip.
+* Locate the custom LUT, by navigating to the directory you downloaded the preset.
+
+Alternatively, you can have all your custom LUTs at the ready by adding them to the After Effects LUT directory. Here is the process.
+
+* Open the directory where all your custom LUTs are on your device.
+* Then, use the Select All and then COPY functions of your device. Press CTRL + A, then CTRL + X on your keyboard if you are a Windows User. Use the COMMAND - A, then COMMAND – X functions if you use it on Mac.
+* Finally, paste the files in your Adobe After Effects installation directory.  
+For macOS  
+/Users//Library/Application Support/Adobe/Common/LUTs/Creative  
+/Users//Library/Application Support/Adobe/Common/LUTs/Creative  
+For Windows  
+C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Creative  
+C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Technical
+* The custom LUT files will be available to you as presets next time you launch Adobe Effects. The process only works if you are the primary user. Furthermore, ensure you put each copy in the relevant directories.
+
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to use LUTs in After Effects
+
+Now that you have a variety of Adobe After Effects LUTs at your disposal, here is how you apply them.
+
+1. Launch the program and select the video or photo you would like to edit.
+2. Then, open the Effects and Presets panel to launch the Apply Color LUT utility. You should notice a significant increase in LUTs available if you did the above correctly.
+3. Now, drag and drop the Apply Color LUT utility onto the clip you want to edit. This is the only way your adjustments will work. Additionally, you should make the application on the timeline.
+4. A dialogue box should now be open, with the location of your LUT presets as the default.
+5. Choose the LUT you want and press Open to apply the change.
+6. You can edit the LUT using the Effect Control Panel. The functions you need are on either side of the video.
+
+![how to use luts in after effects](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Adobe After Effects allows you to use LUTs on multiple clips. However, you need an adjustment layer for this to work. Here is how you enable the function.
+
+* Right-click on the area of your timeline that you want to edit.
+* Select New from the pop-up menu, and click on the Adjustment Layer option.
+* Then, follow steps one through five to add the LUT.
+
+**●** As you can see, Adobe After Effects give you lots of leverage when using LUTs. And with the information above, you are ready to unleash your full creative potential. Keep checking with us for more insightful guides on video and photo editing.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Are you looking to add some extra zing to your videos? If you use Adobe After Effects for your video editing, this is for you. The following is a free LUT After Effects guide to making your next video pop. You will discover what makes a great After Effects luts video and how to apply that to your next production.
+
+Additionally, you will find recommendations on where to get the best after effects luts. So, grab your favorite drink, and let your journey to video editing supremacy begin.
+
+![luts in after effect](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### In this article
+
+01 [Things to Know Before Using LUTs in After Effect](#part1)
+
+02 [How to import LUTs in After Effect?](#part2)
+
+03 [How to use LUTs in After Effects](#part3)
+
+## Things to Know Before Using LUTs in After Effect
+
+Do you ever wonder why some Adobe After Effects videos look so great? Regardless of your experience with the software, here are the points to consider when using LUTs in After Effects.
+
+#### 1\. Check your white balance settings
+
+If you are questioning why there lies your first challenge. You need to check the white balance of your creations because colors appear differently, depending on the lighting you use. As such, you need to adjust your white balance to suit conditions similar to when you made the video. For example, your settings should be between 4000 – 5000K if your light source is fluorescent.
+
+![things to make sure before using luts in AE](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-2.jpg)
+
+Here is how you get the correct white balance when using Adobe After Effects.
+
+1. Open the image you want to edit in the program.
+2. Next, from the Layer dropdown menu, click on New, and then select Solid.
+3. Once the menu opens, select a section of your image that should be white, as your solid color, and click Ok. This will only work if your brightness value is at 100\. For example, the ceiling in the picture is white.
+4. Select Divide from the Transfer menu, and the result is an image with a perfect white balance.
+
+#### 2\. Match your editing with the source material
+
+Can you get to Mars with $30? Unless you have Martian buddies, it is highly unlikely. You should always consider your equipment’s capabilities when creating photos or videos. Factors like exposure, lighting, and lens type are crucial to producing quality content.
+
+For example, you need a wide-angle lens to have more depth in your videos. Therefore, always ensure you limit your LUT usage to the source material.
+
+Most creators often fail because of after effects luts overuse. Other factors to consider when creating are the location and timing. Your filming environment changes constantly. As such, you should always expect to make adjustments to ensure quality output.
+
+![things to make sure before using luts in AE - match editing with source marterial](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-3.jpg)
+
+#### 3\. Settle on a creative style
+
+What makes David Fincher famous? His consistent use of desaturated and monochromatic colors in movies to perfection. Similarly, you need to choose a consistent theme for your creations. As such, you get better at it with subsequent creations.
+
 ## How to import LUTs in After Effect?
 
 Do you remember the thing about being unique earlier? You can import LUTs if you feel the presets are not to your standard. Plenty of custom ones are available as free downloads but more on that later. This is how to import LUTs in After Effects.
@@ -429,6 +459,18 @@ Adobe After Effects allows you to use LUTs on multiple clips. However, you need 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-a-guide-to-understanding-igs-newest-updates/"><u>[New] A Guide to Understanding IG's Newest Updates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capture-lifes-movement-integrating-motion-blur-into-face-photography-with-picsart-for-2024/"><u>[New] Capture Life's Movement Integrating Motion Blur Into Face Photography with Picsart for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exploring-best-4k-video-converter-apps-for-mp3-output-for-2024/"><u>[New] Exploring Best 4K Video Converter Apps for MP3 Output for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-modernity-discover-these-top-10-digital-realms-for-artistic-font-styles-for-2024/"><u>[New] Unveiling Modernity Discover These Top 10 Digital Realms for Artistic Font Styles for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-novice-to-notable-top-course-recommendations-for-youtubers/"><u>[Updated] 2024 Approved From Novice to Notable Top Course Recommendations for YouTubers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-smart-technique-for-iphone-videos-reduction-and-scaling/"><u>[Updated] The Smart Technique for iPhone Videos Reduction & Scaling</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-tecno-spark-20-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Tecno Spark 20 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/6-fixes-when-guided-access-is-not-working-on-your-iphone/"><u>6 Fixes When Guided Access Is Not Working on Your iPhone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/a-deep-dive-into-video-platform-wars-tiktok-vs-snapchat/"><u>A Deep Dive Into Video Platform Wars TikTok vs Snapchat</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/joining-process-attaching-hp-officejet-to-desktop-pcs/"><u>Joining Process: Attaching HP Officejet to Desktop PCs</u></a></li>
+<li><a href="https://windows11.techidaily.com/why-your-wi-fi-mouse-isnt-working-quick-fixes-for-windows/"><u>Why Your Wi-Fi Mouse Isn't Working? Quick Fixes for Windows</u></a></li>
+</ul></div>
 

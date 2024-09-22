@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Xiaomi's Aerial Camera Test in Full HD"
-date: 2024-07-13T18:39:12.152Z
-updated: 2024-07-14T18:39:12.152Z
+date: 2024-09-19T16:12:30.609Z
+updated: 2024-09-22T18:28:45.044Z
 tags: 
   - screen-recording
   - ai video
@@ -29,9 +29,6 @@ In the last few years, Xiaomi has developed remarkable performance in the market
 
 ![xiaomi-mi-4k-drones](https://images.wondershare.com/filmora/article-images/xiaomi-mi-4k-drones.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Complete Review for Xiaomi Mi Drone 4K
 
 **Pros:**
@@ -54,9 +51,6 @@ Even with a reasonable price tag, this advanced drone unit has several features 
 
 Xiaomi Mi has impressive aesthetics and most of its features are comparable to DJI Phantom 4 Drone. The best part is that this drone unit is designed with light weight structure so you can easily carry it to your tour. Even, the propeller guards as well as the gimbal unit are detachable so that you can put this drone easily inside your backpack. The overall weight of Xiaomi Mi is only 149 grams due to carbon fiber and polycarbonate material.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Battery Life
 
 As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you. As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you.
@@ -67,25 +61,33 @@ Like most of the advanced drone units, Xiaomi Mi also features autonomous flying
 
 The most amazing feature of Xiaomi Mi is its ability to communicate via mobile phone so that users can manage the recording focus of its camera. One more appreciable feature is its surrounded flight ability; you can make it circle around any specific object by sending commands from a smartphone. You will love to capture videos with its 360-degree motion ability that leads to incredible clicks. How can we forget to talk about the most advanced feature of this special drone unit that is Preset Rout following ability! Users can make pre adjustments for all flights and it will capture smooth shots every time. The automatic landing and takeoff feature helps in easy controls whereas if this drone goes far from 3meter range then it will switch back to its preset path. It is possible to bring this drone back with only one button and in order to improve its performance, you can access the calibration settings. Note that, if somehow your drone gets lost then it will take almost 30 to 45 minutes for coming back.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Control Range
 
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Camera
 
 Xiaomi Mi Drone unit comes with two different variants where the professional one carries 4K camera unit with it and another variant is able to handle 1080P resolution level. Note that the 4K camera comes with 12.4MP sensor from Sony and it works with the Ambarella image processor. You can set its frame rate up to 30fps. Another option is 1080p resolution setting that comes with 16.4 megapixel sensor from Sony along with Ambarella Image Processor. In this case frame rate can go as high as up to 60 fps. The 2.4GHz transmitter further ensures interference free recording in air.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 The 1080p variant of Mi Drone is available with a price tag of $380 whereas for 4K camera facility you need to pay $460 when ordered from China. All the advanced features of this drone unit make it suitable for professional users. It can beat several high-end competitors with its all-new specifications. Prefer to carry an additional battery for your long-distance tours so that you can enjoy all-time flights without worrying about battery backup.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -110,6 +112,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-economical-drones-reviewed-best-under-a-hundred-bucks/"><u>[New] Economical Drones Reviewed Best Under a Hundred Bucks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-drone-photography-showdown-dji-spark-vs-hero6-black-for-2024/"><u>[Updated] Drone Photography Showdown DJI Spark Vs Hero6 Black for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-global-reach-12-video-live-stream-app/"><u>[Updated] In 2024, Global Reach 12 Video Live Stream App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-10-tips-for-sound-fade-effects-in-premiere-pro/"><u>[Updated] In 2024, Top 10 Tips for Sound Fade Effects in Premiere Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transforming-novices-into-reddit-masterminds-for-maximum-engagement/"><u>[Updated] Transforming Novices Into Reddit Masterminds for Maximum Engagement</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-evaluation-of-the-mophie-juice-pack-for-iphone-15-great-battery-boost-with-some-tradeoffs/"><u>Comprehensive Evaluation of the Mophie Juice Pack for iPhone 15: Great Battery Boost with Some Tradeoffs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-amd-radeon-rx-590-drivers-on-windows-step-by-step-guide/"><u>Download & Install AMD Radeon RX 590 Drivers on Windows: Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/exploring-6-possible-problems-with-facial-recognition-technology-in-iphones/"><u>Exploring 6 Possible Problems with Facial Recognition Technology in iPhones</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-zero-5g-2023-turbo-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Zero 5G 2023 Turbo to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/leading-photo-and-tune-recorders-for-immersive-experience/"><u>Leading Photo & Tune Recorders for Immersive Experience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/professional-insights-for-perfecting-your-instagram-aesthetics-for-2024/"><u>Professional Insights for Perfecting Your Instagram Aesthetics for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/set-a-regular-filefolder-purge-routine-on-windows-using-stellar-file-eraser-v5/"><u>Set a Regular File/Folder Purge Routine on Windows Using Stellar File Eraser V5</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/formative-tactics-for-developing-a-professional-youtubers-sanctuary-on-mobile/"><u>Transformative Tactics for Developing a Professional YouTubers' Sanctuary on Mobile</u></a></li>
+</ul></div>
 

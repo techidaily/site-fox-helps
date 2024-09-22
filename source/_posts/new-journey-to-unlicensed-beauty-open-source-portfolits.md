@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Journey to Unlicensed Beauty  Open-Source Portfolits\""
-date: 2024-09-13T20:40:21.022Z
-updated: 2024-09-17T18:58:16.005Z
+date: 2024-09-21T19:58:36.750Z
+updated: 2024-09-22T20:02:29.964Z
 tags: 
   - screen-recording
   - ai video
@@ -76,13 +76,6 @@ As mentioned above, you cannot rely on copyright websites to determine if your d
 3. You can not use a third-party photo of public domain art if the resulting image is a derivative. This is because the law recognizes the creator as the author and copyright owner. As such, you must have verifiable permission before using their work in your creations.
 4. Not all items without a © are in the public domain. This is because modern video editing software allows you to remove copyright symbols from different works. Therefore, always perform a reverse image search when unsure of the photo’s origins.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Can you use them for free?
 
 Yes. You can use royalty-free art for whatever purpose you see fit. For example, you can reproduce the text and illustrations from the original version of Alice’s Adventures in Wonderland (1865) because they are in the public domain.
@@ -90,10 +83,10 @@ Yes. You can use royalty-free art for whatever purpose you see fit. For example,
 However, the reproduction of the 1951 version by Walt Disney is a copyright violation since it is a derivative of the original version. In addition, The Walt Disney Company owns the trademark for all the derivatives, including the movie, cartoon characters, and merchandise.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part2: Best Official Public Domain Art websites recommendations
@@ -124,13 +117,6 @@ Furthermore, the homepage contains different photo collections, which you can ac
 
 ![flickr commons](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Initially, Flickr only featured images from a selection of verified contributors. However, through their partnership with the Library of Congress in 2008, you can now access thousands of public domain historical photos from institutions like UC Berkeley and the Armenian Studies Program - Fresno State.
 
 In addition, most of the photos on the Flickr Commons library are listed with **no known copyright restrictions**. Therefore, you can download and use them without fear of any repercussions. Furthermore, the search engine includes multiple filters for more accurate results. For example, you can filter photos by color, orientation, and date. Alternatively, you can find public domain content by visiting the Public Domain group URL.
@@ -151,13 +137,6 @@ In addition, Artvee.com offers you keyword suggestions depending on user popular
 
 ![museo](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Another public domain art search engine to consider is Museo.app. It is an open-source web interface that allows you to find royalty-free art from different museums. Currently, you can access the collections from the following institutions:
 
 * The Harvard Art Museums.
@@ -172,10 +151,10 @@ The above institutions offer open and free API access to their collections, allo
 ## FAQ
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is there a difference between royalty-free art and public domain art?
@@ -230,11 +209,25 @@ As mentioned above, you cannot rely on copyright websites to determine if your d
 3. You can not use a third-party photo of public domain art if the resulting image is a derivative. This is because the law recognizes the creator as the author and copyright owner. As such, you must have verifiable permission before using their work in your creations.
 4. Not all items without a © are in the public domain. This is because modern video editing software allows you to remove copyright symbols from different works. Therefore, always perform a reverse image search when unsure of the photo’s origins.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Can you use them for free?
 
 Yes. You can use royalty-free art for whatever purpose you see fit. For example, you can reproduce the text and illustrations from the original version of Alice’s Adventures in Wonderland (1865) because they are in the public domain.
 
 However, the reproduction of the 1951 version by Walt Disney is a copyright violation since it is a derivative of the original version. In addition, The Walt Disney Company owns the trademark for all the derivatives, including the movie, cartoon characters, and merchandise.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part2: Best Official Public Domain Art websites recommendations
 
@@ -259,6 +252,13 @@ Wikimedia Commons is arguably the largest public domain image library available.
 The NYPL website features a library of about a million royalty-free artworks, including manuscripts, historical maps, and rare photographs. In addition, it allows you to only search public domain items by checking the option on the search box.
 
 Furthermore, the homepage contains different photo collections, which you can access by clicking the category tabs. For example, the **recently digitized** bubble tab gives you access to the most recent photo uploads. However, not all images listed are free to use and may require you to link back to the website. As such, always read the **Rights Statement** at the bottom of the download page to verify the usage requirements.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Flickr Commons
 
@@ -331,18 +331,18 @@ Conversely, public domain art is copyright free and does not require you to make
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-drone-guide-for-the-thrifty-consumer-cost-effective-choices/"><u>[New] 2024 Approved Drone Guide for the Thrifty Consumer Cost-Effective Choices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-a-complete-guide-to-premiere-pro-full-scene-preview-for-2024/"><u>[New] A Complete Guide to Premiere Pro Full Scene Preview for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-custom-soundtracks-simplified-converting-from-spotify-playlists-to-youtube-music-for-2024/"><u>[Updated] Custom Soundtracks Simplified Converting From Spotify Playlists to YouTube Music for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-empowering-your-editing-skills-free-luts-and-their-use-in-obs-studio/"><u>[Updated] Empowering Your Editing Skills Free LUTs & Their Use in OBS Studio</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevate-engagement-todays-must-use-instagram-hashtags/"><u>2024 Approved Elevate Engagement Today's Must-Use Instagram Hashtags</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-your-potential-one-thousand-new-likesmonth/"><u>2024 Approved Unlock Your Potential One Thousand New Likes/Month</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/arise-story-mode-continuation-overcoming-unexpected-shutdowns/"><u>Arise Story Mode Continuation: Overcoming Unexpected Shutdowns</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/convert-flv-videos-to-compatible-formats-for-free-with-macxs-ultimate-converter-software/"><u>Convert FLV Videos to Compatible Formats for Free with MacX's Ultimate Converter Software</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/enhance-gameplay-the-ultimate-guide-to-using-steams-switch-controller-for-2024/"><u>Enhance Gameplay The Ultimate Guide to Using Steam's Switch Controller for 2024</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/free-vimeo-video-downloading-guide-to-converting-files-to-mp3-format/"><u>Free Vimeo Video Downloading: Guide to Converting Files to MP3 Format</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-novice-to-expert-pro-gopro-filming-made-easy/"><u>From Novice to Expert Pro Gopro Filming Made Easy</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cutter-studio-for-2024/"><u>PixelCutter Studio for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-boundless-gallery-of-forgotten-artists-for-2024/"><u>The Boundless Gallery of Forgotten Artists for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-advanced-color-correction-utilizing-luts-in-ae/"><u>[New] 2024 Approved Advanced Color Correction Utilizing LUTs in AE</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-5-top-action-cameras-with-full-hd-in-your-pocket/"><u>[New] 5 Top Action Cameras with Full HD in Your Pocket</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-strategies-for-success-in-online-content-creation/"><u>[New] Strategies for Success in Online Content Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-future-of-flight-hubsans-revolutionary-h501s-explored/"><u>[Updated] 2024 Approved The Future of Flight - Hubsan's Revolutionary H501S Explored</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-striking-highlight-image-creation/"><u>[Updated] 2024 Approved Unveiling the Secrets of Striking Highlight Image Creation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/converta-gravatamente-wmv-e-wma-em-on-line-com-o-movavi-suas-formatos-mais-populares-a-pdf-mobi-e-txt/"><u>Converta Gravatamente WMV E WMA Em On-Line Com O Movavi – Suas Formatos Mais Populares a PDF, MOBI E TXT</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-flipbooks-to-frames-7-core-strategies-for-crafting-engaging-gifs-for-2024/"><u>From Flipbooks to Frames 7 Core Strategies for Crafting Engaging GIFs for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/hidden-horizons-in-hand-drawn-harmony/"><u>Hidden Horizons in Hand-Drawn Harmony</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-14-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 14 Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-guide-to-softening-volume-levels-on-lumafusion/"><u>In 2024, The Guide to Softening Volume Levels on Lumafusion</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-13-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 13</u></a></li>
+<li><a href="https://extra-support.techidaily.com/refreshed-array-of-podcast-interviews-to-attract-listeners-for-2024/"><u>Refreshed Array of Podcast Interviews to Attract Listeners for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/visual-installation-guide-for-a-new-canon-printer/"><u>Visual Installation Guide for a New Canon Printer</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Devices Needed for Documenting Trips"
-date: 2024-07-13T18:32:17.480Z
-updated: 2024-07-14T18:32:17.480Z
+date: 2024-09-15T18:37:11.548Z
+updated: 2024-09-22T17:35:52.963Z
 tags: 
   - screen-recording
   - ai video
@@ -40,12 +40,16 @@ Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cine
 
 ![travel vlog camera](https://images.wondershare.com/filmora/article-images/2022/07/travel-vlog-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Lenses
 
 Lenses are the most vital part of your camera; it brings light to a fixed object. Will it make a huge impact on your cinematic shot? For your montage? For your b-roll? Yes, yes, and also yes. The use of lenses has a greater and different impact because it has a contrasting effect, especially for sharpness, depth of field, details, and background blur. It is the most important parameter depending on the situation that you might have for traveling. For example, I used Sigma 16mm, a wide lens, which is good for landscape photography or montage. Another one is Sigma 30mm, this lens is good for mid-range shot portraits and it creates a dramatic effect while capturing a person or an object.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Gimbal
 
@@ -75,30 +79,45 @@ In my own experience, every time I go out and visit different places, I always h
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Stabilize the Video in Filmora
 
 ##### Step1NEW PROJECT
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 click on new project ![new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 ##### Step2IMPORT FILES
 
 from there you can choose and select which video you would like to import ![import files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3DRAG AND DROP
 
 just drag and drop simple as that ![drag and drop](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step4STABILIZING THE VIDEO
 
 choose the TOOLS
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 select video and you can choose Stabilization ![stabulizing the video](https://images.wondershare.com/filmora/guide/stabilization-02.png)
 
 ##### Step5ANALYZES THE SELECTED VIDEO TO STABILIZE
@@ -117,10 +136,14 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 
 ##### Step1NEW PROJECT
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 click on new project ![new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2IMPORT FILES
 
@@ -168,6 +191,14 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-the-art-of-podcast-rss-mastery/"><u>[New] 2024 Approved Unveiling the Art of Podcast RSS Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-cloud-hookups-for-android/"><u>[New] In 2024, Essential Cloud Hookups for Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-watermark-wisdom-for-every-photographers-toolkit-for-2024/"><u>[New] Watermark Wisdom for Every Photographer's Toolkit for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-precision-shade-modifier/"><u>[Updated] In 2024, Precision Shade Modifier</u></a></li>
+<li><a href="https://techtrends.techidaily.com/movmp4mac-windows-11/"><u>無需付費的MOV到MP4格式转换解决方案：Mac和 Windows 11支持</u></a></li>
+<li><a href="https://network-issues.techidaily.com/dispel-sims-4-no-signage-mistakes/"><u>Dispel Sims 4 No-Signage Mistakes</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-ultimate-video-editing-experience-for-vimeo-enthusiasts-for-2024/"><u>The Ultimate Video Editing Experience for Vimeo Enthusiasts for 2024</u></a></li>
+</ul></div>
 

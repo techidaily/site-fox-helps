@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decoding Photo/Video Imports in Windows 11 Deep Dive"
-date: 2024-09-14T21:53:41.372Z
-updated: 2024-09-17T19:18:25.091Z
+date: 2024-09-21T18:52:29.309Z
+updated: 2024-09-22T18:16:31.014Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,19 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Import Photos and Videos
 
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
@@ -62,13 +75,6 @@ Your computer will tell you how many pictures and photos were found. You can eit
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Start Importing in Photos App
 
 Another option for you is the Photos app that is pre-installed in computers with Windows 10.
@@ -78,13 +84,6 @@ Go to Start -> All Apps -> Photos and open it up. Your phone or camera should be
 Click the Import button on the Photos app and choose the items that you want to import. When you have selected all the items you want, click on continue and then import. All your files will be added onto your computer and they will be visible within the Photos app.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
@@ -100,6 +99,13 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Import Photos and Video from a Camera
 
 Those who are importing photos and videos from a camera rather than a smartphone can use the above options as well. Both Windows 10 File Explorer and the Photos app will be compatible with your camera, provided it can connect through a USB cable and a USB port on the computer.
@@ -109,16 +115,23 @@ Connect the camera to your phone and then follow the above steps to import your 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,19 +139,6 @@ Connect the camera to your phone and then follow the above steps to import your 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -165,16 +165,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-lullaby-labyrinths-best-vocalists-for-sleep-aid/"><u>[New] In 2024, Lullaby Labyrinths Best Vocalists For Sleep Aid</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-master-list-the-finest-10-pixel-archives-at-zero-cost/"><u>[Updated] Master List The Finest 10 Pixel Archives at Zero Cost</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-realigning-captions-from-srt-to-subcap-for-2024/"><u>[Updated] Realigning Captions From SRT to SUBCAP for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-cyberlink-screen-recorder-review/"><u>2024 Approved Cyberlink Screen Recorder Review</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4movavi-video-files-of-vivo-y02t-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of Vivo Y02T</u></a></li>
-<li><a href="https://blog-min.techidaily.com/download-now-free-winx-movie-editor-official-site-with-professional-dvd-extractor-and-hd-video-transcoder/"><u>Download Now Free: WinX Movie Editor – Official Site with Professional DVD Extractor & HD Video Transcoder</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/how-to-get-started-windows-11-sound-capture-for-2024/"><u>How to Get Started Windows 11 Sound Capture for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-pdf-enhancements/"><u>In 2024, Premier PDF Enhancements</u></a></li>
-<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-7-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone 7 failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-fix-for-steelseries-arctis-7-mic-problems-a-users-handbook/"><u>Step-by-Step Fix for SteelSeries Arctis 7 Mic Problems - A User's Handbook</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-my-favorite-reason-to-choose-paddle-controls-in-gaming-adventures/"><u>Unveiling My Favorite Reason to Choose Paddle Controls in Gaming Adventures</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-exploring-the-best-of-android-does-pickup-lead-photo-editing-tools/"><u>[New] 2024 Approved Exploring the Best of Android Does PickUp Lead Photo Editing Tools?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-the-art-of-crafting-engaging-spotify-promos/"><u>[New] In 2024, Mastering the Art of Crafting Engaging Spotify Promos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-transform-ppt-deck-into-video-stream/"><u>[Updated] 2024 Approved Transform PPT Deck Into Video Stream</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dueling-cameras-for-extreme-enthusiasts-gopro-vs-sony-fdr-x1000v/"><u>[Updated] Dueling Cameras for Extreme Enthusiasts GoPro Vs. Sony FDR-X1000V</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-resolve-androidios-issues-with-fb-video-playback/"><u>[Updated] In 2024, Resolve Android/iOS Issues with FB Video Playback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-profit-from-publishing-shopping-reviews-for-2024/"><u>[Updated] Profit From Publishing Shopping Reviews for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mastering-sky-high-cinema-choosing-and-utilizing-leading-drone-videography-editors-for-stunning-results/"><u>Mastering Sky High Cinema: Choosing & Utilizing Leading Drone Videography Editors for Stunning Results</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/plug-in-with-ease-integrating-new-extensions-into-chatgpt/"><u>Plug in with Ease - Integrating New Extensions Into ChatGPT</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/protecting-privacy-how-zoom-ensures-consent-before-utilizing-data-for-artificial-intelligence-training/"><u>Protecting Privacy: How Zoom Ensures Consent Before Utilizing Data for Artificial Intelligence Training</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-solutions-resolve-msxml4dll-file-missing-or-corrupted/"><u>Troubleshooting Solutions: Resolve 'Msxml4.dll' File Missing or Corrupted</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlock-zoom-broadcasting-potential-for-youtube-success/"><u>Unlock Zoom Broadcasting Potential for YouTube Success</u></a></li>
 </ul></div>
 

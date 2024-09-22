@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, ProHero vs Nikkor KM-170  Which Reigns Supreme?\""
-date: 2024-07-13T18:34:10.372Z
-updated: 2024-07-14T18:34:10.372Z
+date: 2024-09-18T18:39:29.511Z
+updated: 2024-09-22T17:04:20.133Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
 # GoPro Hero 5 Black vs Nikon Keymission 170 Action Camera: Which is better?
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -93,9 +90,6 @@ The **Nikon Keymission 170 action camera** features dual shutters- separate for 
 
 1. **Photo Quality**  
 There is a notable difference in the performance of GoPro and Nikon when it comes to taking still images. With 12MP resolution (4000X3000 pixel settings) Hero 5 stands much ahead of Keymission 170 giving you the joy of capturing still photos at the resolution of 8.3MP (3840x2160 pixels). Another important convenience with GoPro is that you can take geo tagged photos besides the choice of shooting WDR and RAW photos. Nikon does not feature GPS configuration. You also cannot take RAW photos with Keymission 170.  
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hero5 balck keymission170 test](https://images.wondershare.com/hero5-balck-keymission170-test1.jpg)
 2. **Video Quality**  
 The video quality output of these cameras is the real point of attraction for all buyers. To all your relaxation, both of them can capture 4K30 (highest resolution) videos. Luckily, the quality of the videos is almost the same.Using the Protune settings on GoPro, you can get better results with sharpening, change ISO limits, take RAW videos with preferred audio settings, adjust the white balance etc. The first time users can use the default settings to capture good high-resolution videos. Keymission allows some limited adjustments with the Pro settings. You can obtain improved video quality by changing the white balance, exposure compensation and other details.  
@@ -113,9 +107,6 @@ White Balance
 Nikon Keymission gives you an amazing feel with the yellowish orange effect when using the default white balance. This is much enhanced compared to that on the GoPro Hero 5 black. GoPro supports automatic white balance adjustment according to the ambiance and lights. While this feature is very advanced in the latest, model but not as that of the Nikon effect.  
 Low Light Video Capturing  
 There are shortcomings with both these cameras when you are shooting under low light availability. Yet, GoPro is a bit advanced to give you good video quality under low light. With Nikon it is preferable to use extra lights if you desire to get bright sharp objects.  
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hero5 balck keymission170 low light test](https://images.wondershare.com/hero5-balck-keymission170-low-light-test.jpg)
 3. **Audio Quality**  
 The Hero 5 Black is very tactically designed with dual microphones – at the rear and front ends. The camera can auto switch microphone during video capturing based on the requirements. To give you better sound quality, the camera swaps to the back microphone during heavy disturbing noise coming from the front direction like biking under heavy wind speed. The **Nikon Keymission 170 action camera** has built in stereo microphone to produce medium quality satisfactory sound capturing.
@@ -144,9 +135,6 @@ If you want to take your video content to the next level with some video editing
 
 What’s more, it has all the features you will need to make you feel like a pro. Simple editing functionalities like trimming, cropping, merging, adjusting speed, fast or slow motion, mosaic etc. will meet most of your demands. Besides all that, advanced features like split screen, green screen, filters&overlay effects, together with hundreds of licensed music, motion elements, transiton effects etc will definitely turn your video into something extraordinary with the least amount of effort. Check to video below to get an overview of this gorgeous video editing program:
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
@@ -174,6 +162,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-understanding-and-mastering-youtube-live-visuals-for-engagement/"><u>[New] 2024 Approved Understanding and Mastering YouTube Live Visuals for Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-listen-and-direct-voice-control-without-payment/"><u>[New] In 2024, Listen and Direct Voice Control Without Payment</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-conduct-a-symphony-on-the-ppt-stage/"><u>[Updated] In 2024, Conduct a Symphony on the PPT Stage</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enhance-content-reach-and-impact-social-blades-role-in-youtube-analytics/"><u>[Updated] In 2024, Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-top-10-ideas-for-making-your-podcast-stand-out-visually/"><u>In 2024, Top 10 Ideas for Making Your Podcast Stand Out Visually</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-11-tips-to-make-product-ad-videos/"><u>New 2024 Approved 11 Tips to Make Product Ad Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/silent-insights-into-improving-visual-elements-for-2024/"><u>Silent Insights Into Improving Visual Elements for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-insiders-guide-to-ultimate-audio-equipment/"><u>The Insider's Guide to Ultimate Audio Equipment</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

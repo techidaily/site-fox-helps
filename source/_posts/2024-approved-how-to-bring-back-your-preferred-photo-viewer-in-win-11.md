@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Bring Back Your Preferred Photo Viewer in Win 11\""
-date: 2024-07-13T18:32:52.907Z
-updated: 2024-07-14T18:32:52.907Z
+date: 2024-09-15T16:55:31.500Z
+updated: 2024-09-22T16:35:34.898Z
 tags: 
   - screen-recording
   - ai video
@@ -56,9 +56,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -83,17 +80,18 @@ Here is the detailed guide –
 
 **Step 3** – Keep scrolling towards the bottom of the screen to find out ‘Windows Photo Viewer’. If ‘Windows Photo Viewer’ is visible, then it has been installed there and you can use it without any problem.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -102,8 +100,12 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -129,6 +131,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unrivaled-streaming-experience-ranking-the-leaders/"><u>[New] 2024 Approved Unrivaled Streaming Experience Ranking the Leaders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-expert-tips-on-blending-real-and-digital-environments-in-webcasts/"><u>[New] In 2024, Expert Tips on Blending Real and Digital Environments in Webcasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-next-era-visionaries-explore-10-sci-fi-movies-metaverse-realms/"><u>[New] Next Era Visionaries Explore 10 Sci-Fi Movies' Metaverse Realms</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-optimal-low-cost-video-conferencing-software-options-for-2024/"><u>[New] Optimal Low-Cost Video Conferencing Software Options for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-flipping-video-content-easily-in-android-applications/"><u>[Updated] Flipping Video Content Easily in Android Applications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-interface-feedback-for-screen-players-choice/"><u>[Updated] In 2024, Interface Feedback for Screen Players' Choice</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-physical-presence-vs-virtual-validation/"><u>[Updated] Physical Presence vs Virtual Validation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-motorola-moto-g-5g-2023-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/examining-the-limitations-of-immersive-tech-for-2024/"><u>Examining the Limitations of Immersive Tech for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-90-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor 90 Pro Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-asmr-for-restful-slumber/"><u>In 2024, Mastering ASMR for Restful Slumber</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-online-title-mastery-techniques-you-cant-ignore/"><u>In 2024, Online Title Mastery Techniques You Can't Ignore</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/libcurldll-file-cant-be-found-heres-how-you-can-resolve-this-issue/"><u>libcurl.dll File Can't Be Found? Here’s How You Can Resolve This Issue!</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-11-piu-eccellenti-software-di-taglio-video-senza-costo-guida-2024/"><u>Top 11 Più Eccellenti Software Di Taglio Video Senza Costo: Guida 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering SRT Editing  A Comprehensive Mac Guide\""
-date: 2024-09-14T23:13:23.298Z
-updated: 2024-09-17T22:16:45.393Z
+date: 2024-09-20T20:26:08.689Z
+updated: 2024-09-22T20:22:37.596Z
 tags: 
   - screen-recording
   - ai video
@@ -87,6 +87,13 @@ Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + C
 
 Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Open SRT files with VLC Media on Mac
 
 VLC Media is one of the most popular media players for different operating systems, including macOS devices. You can use it to play your videos in different formats. Users can play the video projects with SRT formatted files after merging them.
@@ -122,6 +129,13 @@ Keep both the video you are adding the SRT into and the downloaded SRT file in o
 Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
 
 ![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 The video will begin playing. Go to the menu bar and click on the Subtitles tab > choose the “Add Subtitle File…” button.
 
@@ -167,6 +181,13 @@ Step3 Make changes to the text color, caption, position, and font, as needed.
 
 Step4 Press the “Add Subtitle” button. It will insert into the MP4 within some minutes. The file will then automatically download into your Mac device.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 4: Open SRT files on Built-in App Mac QuickTime Player
 
 The QuickTime player is the primary video playback software built into Mac devices. However, this only supports the native QT format for text in videos during playback and does not accept SRT formatted files.
@@ -180,19 +201,6 @@ Step1 Open your chosen browser, and search the Caption Converter-Rev tool. Acces
 Step2 Click on the “Select Caption Files” option and press the “SELECT .SRT FILES” choice in red button form. Add the SRT file(s) you want to edit.
 
 ![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Choose the output format for the file. Choose QT available in the fourth spot.
 
@@ -353,6 +361,13 @@ Step4 The video will begin playing. Go to the menu bar and click on the Subtitle
 
 Step5 Choose the SRT file from your device and then load it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
 
 For opening **SRT for Mac,** you can download the third-party software of [HappyScribe](https://www.happyscribe.com/). This software has automatic transcription features, with multilingual support, i.e., edit SRT files in different languages besides English, like Dutch and Hebrew.
@@ -391,19 +406,6 @@ Step3 Make changes to the text color, caption, position, and font, as needed.
 
 Step4 Press the “Add Subtitle” button. It will insert into the MP4 within some minutes. The file will then automatically download into your Mac device.
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 4: Open SRT files on Built-in App Mac QuickTime Player
 
 The QuickTime player is the primary video playback software built into Mac devices. However, this only supports the native QT format for text in videos during playback and does not accept SRT formatted files.
@@ -418,16 +420,16 @@ Step2 Click on the “Select Caption Files” option and press the “SELECT .SR
 
 ![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Choose the output format for the file. Choose QT available in the fourth spot.
 
 ![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 After rechecking that you chose the right format, add your email address; you will receive the translated QT formatted file there. Press the Convert button to activate the conversion process.
 
@@ -440,13 +442,6 @@ Step6 Access the video file and press View > Subtitles. Press the submenu and ch
 Step7 Click on the Windows tab > Properties and make adjustments to the file.
 
 ![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
 
@@ -484,13 +479,6 @@ Step5 Choose the edited SRT file on the editor timeline. Right-click and choose 
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Final Words
 
 You can easily try out these methods to effectively open the SRT files in videos on Mac devices, either by converting them for QuickTime Player or using another player. The Filmora software is suitable for the best results if you plan to open and edit the SRT files with further precision. Carry out all of the steps carefully for a good user experience.
@@ -527,18 +515,18 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-from-obscurity-to-the-top-the-seo-playbook-for-podcasters/"><u>[New] 2024 Approved From Obscurity to the Top The SEO Playbook for Podcasters</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-how-to-use-android-phones-in-watching-vr-or-360-videos/"><u>[New] 2024 Approved How to Use Android Phones in Watching VR or 360 Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>[New] Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-methods-for-efficiently-attaching-a-link-to-tiktok-bios/"><u>[New] In 2024, Ultimate Methods for Efficiently Attaching a Link to TikTok Bios</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-nba-game-broadcasting-select-the-best-platforms/"><u>[New] NBA Game Broadcasting Select the Best Platforms</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-syncing-scores-and-screenplays-top-tunes-for-video-unboxing/"><u>[New] Syncing Scores and Screenplays Top Tunes for Video Unboxing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-exploring-the-metaphysics-of-metaverse-selling/"><u>[Updated] Exploring the Metaphysics of Metaverse Selling</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-depth-how-vimeo-stacks-up-against-youtube/"><u>[Updated] In-Depth How Vimeo Stacks Up Against YouTube</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-youtube-live-thumbnails-essentials/"><u>2024 Approved Mastering YouTube Live Thumbnails Essentials</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/ace-your-gameplay-unpacking-the-premium-yet-affordable-performance-of-the-acer-predator-orion-5000/"><u>Ace Your Gameplay: Unpacking the Premium Yet Affordable Performance of the Acer Predator Orion 5000</u></a></li>
-<li><a href="https://extra-information.techidaily.com/adjust-netflix-video-pace-pc-and-mobile-edition/"><u>Adjust Netflix Video Pace PC & Mobile Edition</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-stop-the-blue-screen-error-in-netwtw10sys-for-stable-pc-operation/"><u>How to Stop the Blue Screen Error in Netwtw10.sys for Stable PC Operation</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-audio-cutting-techniques-for-mp4-video-files/"><u>New 2024 Approved Audio Cutting Techniques for MP4 Video Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capturing-the-whole-picture-not-just-slices-of-it-for-2024/"><u>[New] Capturing the Whole Picture, Not Just Slices of It for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-enhance-playstation-2-gaming-the-ultimate-guide-to-android-emulation-tools/"><u>[New] Enhance PlayStation 2 Gaming The Ultimate Guide to Android Emulation Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-flip-fundamentals-understanding-video-angles-for-max-impact-for-2024/"><u>[New] Insta-Flip Fundamentals Understanding Video Angles for Max Impact for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-perfecting-sound-integrating-music-into-vimeo-video-projects-for-2024/"><u>[New] Perfecting Sound Integrating Music Into Vimeo Video Projects for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-10-premier-livestream-services-unveiled/"><u>[New] Top 10 Premier Livestream Services Unveiled</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-understanding-movie-storage-space-needs-over-24-hours/"><u>[New] Understanding Movie Storage Space Needs Over 24 Hours</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-list-of-the-best-8-sites-for-free-3d-text-psd-downloads/"><u>[Updated] 2024 Approved A List of the Best 8 Sites for Free 3D Text PSD Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-cinematic-close-ups-elevating-your-work-with-kinemaster-for-2024/"><u>[Updated] Cinematic Close-Ups Elevating Your Work with Kinemaster for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-secrets-to-impactful-patient-storytelling-in-video/"><u>[Updated] In 2024, Unveiling the Secrets to Impactful Patient Storytelling in Video</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-insights-navigating-samsungs-smart-tv-applications/"><u>Essential Insights: Navigating Samsung's Smart TV Applications</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-novice-to-pro-simplified-youtube-live-streaming-with-obs-for-2024/"><u>From Novice to Pro Simplified YouTube Live Streaming with OBS for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/introduction-to-dynamic-graphic-techniques-for-2024/"><u>Introduction to Dynamic Graphic Techniques for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-12-mini-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 12 mini</u></a></li>
 </ul></div>
 

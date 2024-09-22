@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step Tutorial  Crafting Photo Videos in Pixiz\""
-date: 2024-09-16T22:12:10.438Z
-updated: 2024-09-17T16:09:59.091Z
+date: 2024-09-19T17:21:04.388Z
+updated: 2024-09-22T17:04:23.034Z
 tags: 
   - screen-recording
   - ai video
@@ -75,6 +75,13 @@ Step5Now click on download and then save. Your photo video will be saved in GIF 
 
 ## Part 2\. The best software for creating slideshows - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About Filmora
 
 The powerful video editing program Filmora is offered by Wondershare. It offers you a wealth of sophisticated video editing features in a straightforward and user-friendly setting. A slideshow, commonly referred to as a photo video, also known as a slideshow. You can also add text, subtitles, effects, and other things to your movie. Although the software for Filmora can be downloaded for free, it has a watermark and few capabilities. The premium edition, on the other hand, has more features without a watermark.
@@ -95,23 +102,9 @@ Step3**Import** photos by **clicking** (import media) and then drag and drop the
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
 ![option to make the photo fit](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step5**Click** on the **Title** option in the top right and select the **title template**. **Drag and drop** the **title template** at the point of the video you want it to appear.
 
@@ -132,6 +125,19 @@ Step8You can **double-click** the music to open the **settings box** and make ch
 Step9To make your slideshow more appealing, you can also add transitions or effects.
 
 ![add transitions or effects](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-13.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step10After finishing all the editing, you can export your creation to any format you want.
 
@@ -147,6 +153,13 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you make photo videos using Filmora?
 
 Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from official website and click the setup wait till it install.
@@ -154,13 +167,6 @@ Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/fil
 Step2Now **open** **Filmora** and **click** **new project**.
 
 ![open filmora](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
 
@@ -174,16 +180,16 @@ Step5**Click** on the **Title** option in the top right and select the **title t
 
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
@@ -193,16 +199,16 @@ Step8You can **double-click** the music to open the **settings box** and make ch
 
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step9To make your slideshow more appealing, you can also add transitions or effects.
 
 ![add transitions or effects](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step10After finishing all the editing, you can export your creation to any format you want.
 
@@ -240,12 +246,16 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-beyond-the-smile-your-guide-to-authentic-instagram-selfies/"><u>[New] In 2024, Beyond the Smile - Your Guide to Authentic Instagram Selfies</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-step-by-step-android-guide-to-enjoy-virtual-reality/"><u>[New] In 2024, Step-by-Step Android Guide to Enjoy Virtual Reality</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-soundsnatcher-recorder-software-overview/"><u>[Updated] In 2024, SoundSnatcher Recorder Software Overview</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-strategizing-superior-screen-snatchers/"><u>[Updated] In 2024, Strategizing Superior Screen-Snatchers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-the-art-of-making-dormant-facebook-vids-pop-up-again/"><u>2024 Approved Mastering the Art of Making Dormant Facebook Vids Pop Up Again</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-foremost-10-video-subtitling-services-online/"><u>In 2024, Foremost 10 Video Subtitling Services Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/thriving-in-youtube-commercial-creation/"><u>Thriving in YouTube Commercial Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capturing-the-whole-picture-not-just-slices-of-it-for-2024/"><u>[New] Capturing the Whole Picture, Not Just Slices of It for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-key-sites-the-6-most-vital-platforms-for-b2b-relationships-for-2024/"><u>[New] Key Sites The 6 Most Vital Platforms for B2B Relationships for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-understanding-movie-storage-space-needs-over-24-hours/"><u>[New] Understanding Movie Storage Space Needs Over 24 Hours</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-cinematic-close-ups-elevating-your-work-with-kinemaster-for-2024/"><u>[Updated] Cinematic Close-Ups Elevating Your Work with Kinemaster for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-secrets-to-impactful-patient-storytelling-in-video/"><u>[Updated] In 2024, Unveiling the Secrets to Impactful Patient Storytelling in Video</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-12-pro-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone 12 Pro in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-ultimate-5-app-tools-to-expand-your-circle-of-friends/"><u>Discover the Ultimate 5 App Tools to Expand Your Circle of Friends</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/efficiency-in-academia-the-chatgpt-technique/"><u>Efficiency in Academia: The ChatGPT Technique</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-se-2022-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone SE (2022) without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Remove Spyware on Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Meizu 21 | Dr.fone</u></a></li>
 </ul></div>
 

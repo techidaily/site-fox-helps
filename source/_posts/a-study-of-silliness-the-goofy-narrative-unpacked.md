@@ -1,7 +1,7 @@
 ---
 title: "\"A Study of Silliness  The Goofy Narrative Unpacked\""
-date: 2024-07-13T18:37:32.859Z
-updated: 2024-07-14T18:37:32.859Z
+date: 2024-09-20T17:10:41.043Z
+updated: 2024-09-22T16:18:42.398Z
 tags: 
   - screen-recording
   - ai video
@@ -80,9 +80,6 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [Add VHS Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -127,6 +124,13 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
@@ -167,10 +171,14 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [Add VHS Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -188,22 +196,29 @@ Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Furth
 
 ![add rewind and glitch](https://images.wondershare.com/filmora/article-images/2023/add-rewind-and-glitch.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 3Apply the Chromatic Aberration and VCR Distortion Effect
 
 Continue to drag and place the "Chromatic Aberration" effect over the previous layer. Set the parameters of Fade and Alpha, 0.05 and 60, respectively. Go to "Effects" and type "distortion" in the search bar and find the "VCR Distortion" effect. Then, drag the effect onto the timeline, place it over the previous layer, and change the alpha value to 25.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add chromatic aberration and distortion](https://images.wondershare.com/filmora/article-images/2023/add-chromatic-aberration-and-distortion.jpg)
 
 ##### Step 4Include the Glitch Distortion and Apply the Distort Effect
 
 Proceed to drag and drop the "Glitch Distortion" effect and place it over the previous layer. Also, adjust the alpha value of the effect to 30\. Continue to drag and drop the "Distort" effect to the timeline, and repeat the same process. However, set the following parameters Amplitude to 15, Frequency to 17, and “Opacity” to 0.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add glitch distortion to preset](https://images.wondershare.com/filmora/article-images/2023/add-glitch-distortion-to-preset.jpg)
 
 ##### Step 5Export Your Edited Video
@@ -211,6 +226,13 @@ Proceed to drag and drop the "Glitch Distortion" effect and place it over the pr
 After finishing your editing, click on the Export button and export your video with the VHS effect to your desired format. By following these steps in Wondershare Filmora, you can easily add **an extreme Goofy movie VHS effect** to your video.
 
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -238,6 +260,22 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-how-to-enhance-your-photos-with-titled-content-win-11/"><u>[New] 2024 Approved How to Enhance Your Photos with Titled Content (Win 11)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-the-art-of-podcast-rss-mastery/"><u>[New] 2024 Approved Unveiling the Art of Podcast RSS Mastery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-deciphering-how-burst-improves-video-continuity/"><u>[New] In 2024, Deciphering How Burst Improves Video Continuity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-cloud-hookups-for-android/"><u>[New] In 2024, Essential Cloud Hookups for Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlock-fcp-without-paying-tips/"><u>[New] In 2024, Unlock FCP without Paying - Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-5-key-strategies-for-impactful-titles-today/"><u>[Updated] 2024 Approved 5 Key Strategies for Impactful Titles Today</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-audio-capturers-in-academic-settings/"><u>[Updated] 2024 Approved Top Audio Capturers in Academic Settings</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-content-creators-dilemrante-podcasts-vs-youtube-as-a-platform-for-2024/"><u>[Updated] Content Creators' Dilemrante Podcasts Vs. YouTube as a Platform for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-decoding-earnings-for-content-producers-on-short-form-platform-for-2024/"><u>[Updated] Decoding Earnings for Content Producers on Short-Form Platform for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effortlessly-amend-your-profile-age-on-tiktok-for-2024/"><u>[Updated] Effortlessly Amend Your Profile Age on TikTok for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-precision-shade-modifier/"><u>[Updated] In 2024, Precision Shade Modifier</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-leveraging-horizontal-footage-in-igtvs-vertical-space-for-2024/"><u>[Updated] Leveraging Horizontal Footage in IGTV's Vertical Space for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/get-close-or-farther-with-ease-on-instagram-stories/"><u>Get Close or Farther with Ease on Instagram Stories</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-enabling-gmails-double-layer-of-security-with-two-factor-auth/"><u>Step-by-Step Guide: Enabling Gmail's Double Layer of Security with Two-Factor Auth</u></a></li>
+</ul></div>
 
