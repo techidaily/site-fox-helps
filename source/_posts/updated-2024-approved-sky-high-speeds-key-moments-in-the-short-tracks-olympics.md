@@ -142,18 +142,5 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-economical-drones-reviewed-best-under-a-hundred-bucks/"><u>[New] Economical Drones Reviewed Best Under a Hundred Bucks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-essence-of-elegance-premium-filters-for-your-snap/"><u>[New] In 2024, The Essence of Elegance Premium Filters for Your Snap</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-10-tips-for-sound-fade-effects-in-premiere-pro/"><u>[Updated] In 2024, Top 10 Tips for Sound Fade Effects in Premiere Pro</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ultimate-ranking-of-15-4k-video-devices/"><u>[Updated] In 2024, Ultimate Ranking of #15 4K Video Devices</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-next-gen-screen-capture-unleashed-apeaksofts-2023-review-for-2024/"><u>[Updated] Next-Gen Screen Capture Unleashed Apeaksoft’s 2023 Review for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-transforming-novices-into-reddit-masterminds-for-maximum-engagement/"><u>[Updated] Transforming Novices Into Reddit Masterminds for Maximum Engagement</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-selective-blur-for-enhanced-privacy-measures/"><u>2024 Approved Selective Blur for Enhanced Privacy Measures</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-best-performance-downloading-and-setting-up-hp-zbook-15-g3-drives-on-your-windows-pc/"><u>Get the Best Performance: Downloading and Setting Up HP ZBook 15 G3 Drives on Your Windows PC</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/leading-photo-and-tune-recorders-for-immersive-experience/"><u>Leading Photo & Tune Recorders for Immersive Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gets-its-first-ever-language-app-mondlyback-buttonfilter-button/"><u>Oculus Quest Gets Its First-Ever Language App: MondlyBack ButtonFilter Button</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-future-is-now-uncover-what-googles-ai-project-gemini-is-striving-for/"><u>The Future Is Now: Uncover What Google's AI Project Gemini Is Striving For</u></a></li>
-</ul></div>
+
 
