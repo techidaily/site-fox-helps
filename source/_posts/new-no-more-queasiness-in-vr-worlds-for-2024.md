@@ -1,7 +1,7 @@
 ---
 title: "[New] No More Queasiness in VR Worlds for 2024"
-date: 2024-09-17T17:17:12.533Z
-updated: 2024-09-22T18:41:17.035Z
+date: 2024-09-26T00:46:05.260Z
+updated: 2024-09-29T02:16:59.597Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/01781fffdf7ecc74eaf5b3cf4180716493ded8344
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/01781fffdf7ecc74eaf5b3cf4180716493ded8344
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +100,23 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-quickest-way-to-entertain-kapwing-memes/"><u>[New] In 2024, The Quickest Way to Entertain - Kapwing Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-sounding-off-instagrams-copyright-rules-for-2024/"><u>[New] Sounding Off Instagram's Copyright Rules for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-uncovering-average-earnings-podcaster-edition-for-2024/"><u>[New] Uncovering Average Earnings Podcaster Edition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-skills-for-podcast-description-writers/"><u>[Updated] In 2024, Essential Skills for Podcast Description Writers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-clips-to-tunes-explained-in-detail/"><u>[Updated] In 2024, Instagram Clips to Tunes Explained in Detail</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-melodic-mambos-macaws-for-2024/"><u>[Updated] Melodic Mambos Macaws for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unleash-artistry-a-curated-list-of-premium-3d-animation-software-for-2024/"><u>[Updated] Unleash Artistry A Curated List of Premium 3D Animation Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mkv-playback-top-macos-apps-reviewed/"><u>2024 Approved MKV Playback Top macOS Apps Reviewed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/april-2sory-no-more-errors-the-2024-league-of-legends-update-resolves-reconnection-bugs/"><u>April 2Sory, No More Errors: The 2024 League of Legends Update Resolves Reconnection Bugs</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-oneplus-nord-ce-3-lite-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On OnePlus Nord CE 3 Lite 5G</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/escaping-the-recovering-data-cycle-on-your-iphone-strategies-and-tips/"><u>Escaping the 'Recovering Data' Cycle on Your iPhone: Strategies and Tips</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-binkw32dll-not-found-errors-efficiently-and-effectively/"><u>Fixing BinkW32.dll Not Found Errors Efficiently and Effectively</u></a></li>
+<li><a href="https://extra-information.techidaily.com/gigglesgateway-leading-online-portals-for-chuckling-calls/"><u>GigglesGateway Leading Online Portals for Chuckling Calls</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-list-best-trivia-shows-for-general-knowledge-24-for-2024/"><u>The Ultimate List - Best Trivia Shows for General Knowledge, '24 for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-change-innovations-for-youtubers-and-their-videos-for-2024/"><u>Voice Change Innovations for YouTubers & Their Videos for 2024</u></a></li>
+</ul></div>
 

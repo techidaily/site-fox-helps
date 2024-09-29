@@ -1,7 +1,7 @@
 ---
 title: "[New] Classifications of Unmanned Aircraft"
-date: 2024-09-20T17:03:23.410Z
-updated: 2024-09-22T19:57:11.193Z
+date: 2024-09-26T18:51:06.434Z
+updated: 2024-09-28T20:45:53.926Z
 tags: 
   - screen-recording
   - ai video
@@ -48,9 +48,35 @@ thumbnail: https://thmb.techidaily.com/4a46c3579169964c63d7bb3ef156723da1c897ffc
 | Single-rotor drones                 | /                  | /               | /                   | /        |             |
 | **Fixed-wing drones**               | /                  | /               | /                   | /        | /           |
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Section 1: According to Number of Propellers
 
 ![drones type by propellers](https://images.wondershare.com/filmora/article-images/types-of-drones.png)
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ####
 
@@ -59,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/4a46c3579169964c63d7bb3ef156723da1c897ffc
 #### 1. Single Rotor Drone
 
 ![single rotor drone](https://images.wondershare.com/filmora/article-images/single-rotor-drone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The most common construction in rotory type drone use to be multi rotor type designs that have many rotors for holding its position but in case if single rotor model you will find just a single rotor inside. Another one will be a tail rotor that simply assists to provide control to the heading. In case if you have a mixture of hover possessing heavy loads but need a faster flight time with longer endurance then single rotor type helicopters can be best choice for you.
 
@@ -105,6 +138,13 @@ thumbnail: https://thmb.techidaily.com/4a46c3579169964c63d7bb3ef156723da1c897ffc
 **The bottom line**
 
  Most of the designs of drones available in market are quadcopters because they are able to lift huge weight without any additional engineering adjustment. It is the most cost effective solution to most of your needs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Section 2: According to Size
 
@@ -205,12 +245,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-the-pros-guide-to-hidden-power-ups-in-vlc-playback/"><u>[New] The Pro's Guide to Hidden Power-Ups in VLC Playback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-complete-manual-for-logging-and-storing-periscope-video/"><u>[Updated] 2024 Approved A Complete Manual for Logging & Storing Periscope Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-5-best-no-cost-video-enhancement-platforms-for-2024/"><u>[Updated] 5 Best No-Cost Video Enhancement Platforms for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-windows-11-video-mastery-utilizing-the-movie-maker-interface/"><u>[Updated] In 2024, Windows 11 Video Mastery Utilizing the Movie Maker Interface</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-maximize-iphone-imaging-select-accessories-for-professionals/"><u>2024 Approved Maximize iPhone Imaging Select Accessories for Professionals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-uncovering-niche-experts-on-instagram-a-guide-to-impactful-collaborators/"><u>2024 Approved Uncovering Niche Experts on Instagram A Guide to Impactful Collaborators</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-guide-concurrently-pairing-and-playing-with-multiple-bluetooth-speakers/"><u>Easy Guide: Concurrently Pairing and Playing with Multiple Bluetooth Speakers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-asmrs-impact-on-stress-reduction-for-2024/"><u>Explore ASMR’s Impact on Stress Reduction for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-xiaomi-13-ultra-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Xiaomi 13 Ultra Quickly | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-stuck-start-of-alan-wake-2-essential-troubleshooting-steps/"><u>Fixing the Stuck Start of Alan Wake 2 – Essential Troubleshooting Steps</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-iphone-15-plus-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For iPhone 15 Plus</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-realme-narzo-60-pro-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Realme Narzo 60 Pro 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-evolution-of-drone-remote-control-systems-syma-x8c/"><u>In 2024, The Evolution of Drone Remote Control Systems – Syma X8C</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/is-this-a-bug-or-intentional-edit-on-instagram/"><u>Is This a Bug or Intentional Edit on Instagram?</u></a></li>
+</ul></div>
 

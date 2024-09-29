@@ -1,7 +1,7 @@
 ---
 title: "[New] Detailed Guide to Mastering Recordings with Audacity"
-date: 2024-09-21T19:24:32.467Z
-updated: 2024-09-22T20:20:42.583Z
+date: 2024-09-22T20:52:33.147Z
+updated: 2024-09-29T00:38:46.391Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,19 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,12 +119,23 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-15-best-stop-motion-films-of-all-time-for-2024/"><u>[New] 15 Best Stop Motion Films of All Time for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-checklist-for-efficiently-uploading-tracks-on-youtube/"><u>[New] 2024 Approved The Ultimate Checklist for Efficiently Uploading Tracks on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-eco-film-frameworks-unlimited-free-template-access-for-pros-and-amateurs/"><u>[New] In 2024, Eco-Film Frameworks Unlimited Free Template Access for Pros & Amateurs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-complete-process-to-tweak-your-instagram-voice/"><u>[New] In 2024, The Complete Process to Tweak Your Instagram Voice</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-effortlessly-record-and-share-snapchat-videos/"><u>[Updated] 2024 Approved How to Effortlessly Record and Share Snapchat Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-from-filters-to-fun-factors-maximizing-iphones-gif-capabilities/"><u>[Updated] In 2024, From Filters to Fun Factors Maximizing iPhone's GIF Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-hurry-up-crafting-a-simple-google-photo-mosaic/"><u>[Updated] In 2024, Hurry Up! Crafting a Simple Google Photo Mosaic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/average-podcast-income-whats-the-payoff/"><u>Average Podcast Income What's the Payoff?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/capture-share-enjoy-in-2024/"><u>Capture, Share, Enjoy, In 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-unveiled-understanding-its-most-pressing-challenges-from-ai-ethics-to-data-privacy-concerns/"><u>ChatGPT Unveiled: Understanding Its Most Pressing Challenges, From AI Ethics to Data Privacy Concerns</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/choosing-the-right-horizon-smart-strategies-for-buying-an-impressive-4k-display-for-2024/"><u>Choosing the Right Horizon Smart Strategies for Buying an Impressive 4K Display for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-huggingchat-your-free-community-driven-answer-to-chatgpt/"><u>Discover HuggingChat: Your Free, Community-Driven Answer to ChatGPT</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-apple-iphone-xs-by-drfone-ios/"><u>How to Unlock Verizon Apple iPhone XS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-c33-2023-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme C33 2023? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/inside-the-world-class-editor-a-complete-guide-to-vivacuts-offerings/"><u>Inside the World-Class Editor A Complete Guide to VivaCut's Offerings</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-german-law-against-facebook-and-whatsapp-data-mining/"><u>Protecting Privacy: German Law Against Facebook and WhatsApp Data Mining</u></a></li>
+</ul></div>
 

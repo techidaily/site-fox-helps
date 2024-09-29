@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reinstate Windows Photo Viewer on Windows 10  Dual Fixes Explained for 2024\""
-date: 2024-09-21T16:04:02.252Z
-updated: 2024-09-22T16:30:33.852Z
+date: 2024-09-27T02:36:31.910Z
+updated: 2024-09-29T02:16:42.089Z
 tags: 
   - screen-recording
   - ai video
@@ -70,9 +70,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -92,26 +106,26 @@ Here is the detailed guide –
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -137,5 +151,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unlock-ultimate-clarity-choosing-the-perfect-4k-screen/"><u>[New] 2024 Approved Unlock Ultimate Clarity Choosing the Perfect 4K Screen</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-full-exploration-of-the-sj7s-high-definition-star-cameras-for-action/"><u>[Updated] 2024 Approved Full Exploration of the SJ7's High-Definition Star Cameras for Action</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-innovative-dialogues-the-key-to-listener-retention/"><u>[Updated] 2024 Approved Innovative Dialogues The Key to Listener Retention</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-fabulous-video-showcase/"><u>[Updated] In 2024, Facebook's Fabulous Video Showcase</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>[Updated] In 2024, Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-speak-with-synthetic-voices-chromebooks-leading-online-text-to-speech-apps/"><u>[Updated] Speak with Synthetic Voices Chromebook's Leading Online Text-to-Speech Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tech-review-showdown-comparing-gopros-hero5-and-garmin-virb-2e/"><u>[Updated] Tech Review Showdown Comparing GoPro's Hero5 and Garmin VIRB (2E)</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-poco-x6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-artificial-intelligences-role-in-learning/"><u>Breaking Barriers: Artificial Intelligence's Role in Learning</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/breakthrough-tactics-for-improved-voice-identity-in-pubg-for-2024/"><u>Breakthrough Tactics for Improved Voice Identity in PUBG for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722801164304-experience-ultimate-clarity-with-lgs-c9-a-comprehensive-65-oled-television-showcase/"><u>Experience Ultimate Clarity with LG's C9 - A Comprehensive 65 OLED Television Showcase!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/geen-kosten-converteren-van-mov-naar-avi-formaat-online-met-convertmovtoavi/"><u>Geen Kosten! Converteren Van MOV Naar Avi Formaat Online Met ConvertMOVtoAVI</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-tecno-camon-20-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Tecno Camon 20 Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-flying-economically-top-five-drones-(100-price-tag/"><u>In 2024, Flying Economically Top Five Drones <$100 Price Tag</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/superior-text-styling-methods-for-2024/"><u>Superior Text Styling Methods for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-decline-of-chatgpt-jailbreak-success-unveiling-7-key-factors/"><u>Understanding the Decline of ChatGPT Jailbreak Success: Unveiling 7 Key Factors</u></a></li>
+</ul></div>
 
