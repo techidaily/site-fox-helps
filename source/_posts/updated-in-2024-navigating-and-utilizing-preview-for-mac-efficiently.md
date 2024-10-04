@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Navigating and Utilizing Preview for Mac Efficiently"
-date: 2024-09-22T21:25:25.759Z
-updated: 2024-09-29T01:37:17.087Z
+date: 2024-10-02T16:09:37.450Z
+updated: 2024-10-04T01:56:01.666Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -56,10 +63,10 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
@@ -104,13 +111,6 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -143,13 +143,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -166,6 +159,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -177,6 +177,13 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -212,13 +219,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -244,20 +244,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevate-listener-engagement-seo-strategies-for-podcasts/"><u>[New] 2024 Approved Elevate Listener Engagement Seo Strategies for Podcasts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-become-the-star-of-your-match-unique-tinder-profile-ideas-to-try/"><u>[New] In 2024, Become the Star of Your Match - Unique Tinder Profile Ideas to Try</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-fix-confirmed-shorts-are-showing-up/"><u>[New] In 2024, Fix Confirmed Shorts Are Showing Up</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-tailor-sharespread-content-adobe-memes/"><u>[New] Tailor Sharespread Content Adobe Memes</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-zippyzoom-tortoisepic-timestretch/"><u>[New] ZippyZoom TortoisePic TimeStretch</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solved-how-to-fix-minecraft-error-exit-code-0/"><u>[SOLVED] How to Fix Minecraft Error: Exit Code 0</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-10-best-webcams-to-enhance-your-podcast-experience/"><u>[Updated] 10 Best Webcams to Enhance Your Podcast Experience</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-beginners-vectors-guide-types-and-applications-demystified/"><u>[Updated] 2024 Approved Beginner's Vectors Guide Types & Applications Demystified</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-best-shots-from-the-2022-snowboard-x-games/"><u>[Updated] In 2024, Best Shots From the 2022 Snowboard X Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-methods-for-controlling-video-pace-on-snapchat/"><u>2024 Approved Optimal Methods for Controlling Video Pace on Snapchat</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-restoring-iphone-x-identity-check-reviving-face-recognition/"><u>2024 Approved Restoring iPhone X Identity Check Reviving Face Recognition</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/another-round-of-laughter-my-love-affair-with-ankers-hilariously-unique-charger/"><u>Another Round of Laughter: My Love Affair with Anker's Hilariously Unique Charger</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-oppo-reno-10-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Oppo Reno 10 5G</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-your-blockades-how-to-stop-diablo-iii-from-crashing-mid-game/"><u>Overcome Your Blockades: How to Stop Diablo III From Crashing Mid-Game</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-stop-your-usb-from-dropping-out/"><u>Troubleshooting Steps to Stop Your USB From Dropping Out</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-best-10-de-stress-fun-titles-for-playtime/"><u>[New] Best 10 De-Stress Fun Titles for Playtime</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-cut-to-the-chase-basic-film-shots-every-novice-should-learn/"><u>[New] Cut to the Chase Basic Film Shots Every Novice Should Learn</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-extracting-youtube-srt-step-by-step-strategies-for-successful-download-for-2024/"><u>[New] Extracting YouTube SRT Step-by-Step Strategies for Successful Download for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-correcting-user-portrait-errors-in-digital-dialogue/"><u>[New] In 2024, Correcting User Portrait Errors in Digital Dialogue</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-complete-overview-the-ultimate-video-editors-review-for-vivocut/"><u>[Updated] 2024 Approved Complete Overview The Ultimate Video Editor's Review for VivoCut</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-calm-cadences-non-intrusive-audio-softening-techniques/"><u>[Updated] Calm Cadences Non-Intrusive Audio Softening Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-enhancing-visual-storytelling-with-well-chosen-b-roll/"><u>[Updated] In 2024, Enhancing Visual Storytelling with Well-Chosen B-Roll</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-pathway-to-advanced-hd-video-on-windows-pcs/"><u>[Updated] The Ultimate Pathway to Advanced HD Video on Windows PCs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-notch-resources-for-downloading-desired-youtube-tones-for-2024/"><u>[Updated] Top-Notch Resources for Downloading Desired Youtube Tones for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-a14-4g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy A14 4G</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/master-reverse-playback-of-videos-on-android-devices/"><u>Master Reverse Playback of Videos on Android Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/retailing-revelations-and-methods-for-2024/"><u>Retailing Revelations and Methods for 2024</u></a></li>
 </ul></div>
 

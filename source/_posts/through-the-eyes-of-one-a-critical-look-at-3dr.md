@@ -1,7 +1,7 @@
 ---
 title: "\"Through the Eyes of One  A Critical Look at '3DR'\""
-date: 2024-09-15T17:15:29.363Z
-updated: 2024-09-22T19:05:15.588Z
+date: 2024-09-29T06:23:56.915Z
+updated: 2024-10-04T02:40:00.998Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/95e300018e980291f8509be45c3e360fa38c44074
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -72,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/95e300018e980291f8509be45c3e360fa38c44074
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -88,6 +102,19 @@ thumbnail: https://thmb.techidaily.com/95e300018e980291f8509be45c3e360fa38c44074
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -101,6 +128,13 @@ thumbnail: https://thmb.techidaily.com/95e300018e980291f8509be45c3e360fa38c44074
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -125,18 +159,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-your-first-adobe-presenter-video/"><u>[New] The Ultimate Guide to Your First Adobe Presenter Video</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-quick-fixes-for-stopped-fb-live-broadcasts/"><u>2024 Approved Quick Fixes for Stopped FB Live Broadcasts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-srt-demystified-in-depth-analysis-and-tips/"><u>2024 Approved SRT Demystified In-Depth Analysis and Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-start-saving-with-reddit-today-13-easy-and-effective-strategies-no-experience/"><u>2024 Approved Start Saving with Reddit Today - 13 Easy & Effective Strategies (No Experience)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/boxing-vs-streaming-ultimate-showdown/"><u>Boxing vs Streaming Ultimate Showdown</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/bring-a-smile-with-adobe-creations/"><u>Bring a Smile with Adobe Creations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/captivating-snaps-with-snapchats-colorful-cartoon-lens/"><u>Captivating Snaps with Snapchat’s Colorful Cartoon Lens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-date-counting-tools-for-android-and-ios-users-for-2024/"><u>Essential Date-Counting Tools for Android and iOS Users for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-guide-adding-tracks-to-premiere-pro-projects/"><u>In 2024, Step-by-Step Guide Adding Tracks to Premiere Pro Projects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-successful-srt-shipping-out-of-premiere/"><u>In 2024, Unlocking Successful SRT Shipping Out of Premiere</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721448580432-lost-iconography-across-ios-applications-uncover-proven-remedies-now/"><u>Lost Iconography Across iOS Applications? Uncover Proven Remedies Now</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-ultimate-source-for-pc-part-testing-toms-review-lab/"><u>The Ultimate Source for PC Part Testing - Tom's Review Lab</u></a></li>
+</ul></div>
 

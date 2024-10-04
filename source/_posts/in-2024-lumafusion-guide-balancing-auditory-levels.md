@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Lumafusion Guide  Balancing Auditory Levels\""
-date: 2024-09-19T17:34:08.262Z
-updated: 2024-09-22T17:02:35.449Z
+date: 2024-09-27T16:03:54.884Z
+updated: 2024-10-04T01:20:17.249Z
 tags: 
   - screen-recording
   - ai video
@@ -67,6 +67,13 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -85,16 +92,16 @@ In that window, you can select the MP3 format in the format customization box to
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -127,28 +134,35 @@ After finishing the method for editing audio in Filmora, click the Export button
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about LumaFusion
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -176,5 +190,26 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-top-notch-20-anime-opening-songs-for-2024/"><u>[New] Top-Notch 20 Anime Opening Songs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-from-novice-to-pro-magix-video-pro-x-journey-for-2024/"><u>[Updated] From Novice to Pro Magix Video Pro X Journey for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-optimize-meetings-using-snap-camera-for-better-communication-in-teams/"><u>[Updated] Optimize Meetings Using Snap Camera for Better Communication in Teams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-boosting-vfx-efficiency-with-free-lut-downloads/"><u>2024 Approved Boosting VFX Efficiency with FREE LUT Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-economical-dslrs-for-the-cost-conscious/"><u>2024 Approved Economical DSLRs for the Cost-Conscious</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elite-ringtones-selection-high-quality-sites/"><u>2024 Approved Elite Ringtones Selection High-Quality Sites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-series-premium-webcam-grips/"><u>2024 Approved Optimal Series Premium Webcam Grips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pro-level-strategies-to-purge-backgrounds-in-figma/"><u>2024 Approved Pro-Level Strategies to Purge Backgrounds in Figma</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-professional-strategies-for-drone-imagery-editing/"><u>2024 Approved Professional Strategies for Drone Imagery Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-slide-show-must-haves-for-iphone-models-787-pro-max/"><u>2024 Approved Slide Show Must-Haves for iPhone Models 7/8/7 Pro Max</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-science-behind-auto-hdr-and-cameras-ai-powered-shooting-modes/"><u>2024 Approved The Science Behind Auto HDR and Camera's AI-Powered Shooting Modes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unveiling-top-ten-os-agnostic-video-players/"><u>2024 Approved Unveiling Top Ten OS-Agnostic Video Players</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/amplify-your-photography-with-these-top-notch-pixlr-tricks/"><u>Amplify Your Photography with These Top-Notch Pixlr Tricks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-5-streamlined-online-convertors-for-gifs-to-video/"><u>Best 5 Streamlined Online Convertors for GIFs to Video</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-secrets-how-to-show-all-apps-on-your-iphone-screen/"><u>Discover the Secrets: How to Show All Apps on Your iPhone Screen</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-guide-to-downloading-and-installing-epson-xp-310-driver-update/"><u>Easy Guide to Downloading and Installing Epson XP 310 Driver Update</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-poco-c50-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Poco C50 Activity | Dr.fone</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/macx-video-converter-pro-professioneller-hd-and-4k-konvertierer-und-download-tool-fur-mac-os/"><u>MacX Video Converter Pro: Professioneller HD & 4K Konvertierer Und Download-Tool Für Mac OS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/visual-storytelling-adding-captions-to-images-in-oses/"><u>Visual Storytelling Adding Captions to Images in OSes</u></a></li>
+</ul></div>
 

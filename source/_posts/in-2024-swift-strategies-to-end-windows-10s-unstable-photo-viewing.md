@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Swift Strategies to End Windows 10'S Unstable Photo Viewing"
-date: 2024-09-18T19:14:49.111Z
-updated: 2024-09-22T21:01:26.821Z
+date: 2024-09-30T22:15:55.530Z
+updated: 2024-10-03T16:18:15.767Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -60,6 +67,13 @@ Here is how to troubleshoot –
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -75,10 +89,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -102,13 +116,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -125,6 +132,13 @@ Here is how to reinstall the Windows 10 Photos App –
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -151,5 +165,17 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-choosing-the-best-video-editor-gopro-hero-vs-polaroid-cube/"><u>[New] Choosing the Best Video Editor GoPro Hero Vs. Polaroid Cube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-cutting-edge-camera-list-best-videography-devices-of-the-year/"><u>[New] In 2024, Cutting-Edge Camera List Best Videography Devices of the Year</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-tips-to-design-an-eye-catching-logo-for-podcasts-for-2024/"><u>[New] Tips to Design an Eye-Catching Logo for Podcasts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-highly-ranked-drone-selections-for-gopro-videos-and-shoots/"><u>[Updated] Highly Ranked Drone Selections for GoPro Videos & Shoots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-premium-sound-to-text-converters/"><u>[Updated] In 2024, Premium Sound to Text Converters</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/affordable-online-education-hosting-on-youtube/"><u>Affordable Online Education Hosting on YouTube</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-motorola-edge-40-neo-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-create-awesome-instagram-videos-templates-and-tips/"><u>In 2024, How To Create Awesome Instagram Videos [Templates & Tips]</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-taking-flight-in-depth-review-of-the-x4-fpv-quadcopter/"><u>In 2024, Taking Flight In-Depth Review of the X4 FPV Quadcopter</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/intel-unveils-upcoming-desktop-cpu-lineup-discover-core-ultra-arrow-lake-and-z89chip-set-in-leaked-snapshots/"><u>Intel Unveils Upcoming Desktop CPU Lineup: Discover Core Ultra Arrow Lake and Z89^chip Set in Leaked Snapshots</u></a></li>
+</ul></div>
 

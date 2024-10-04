@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Canva Imagery  Top 10 Pro-Level Techniques for 2024\""
-date: 2024-09-21T20:47:31.253Z
-updated: 2024-09-22T19:55:39.737Z
+date: 2024-10-02T21:15:11.258Z
+updated: 2024-10-04T04:23:38.600Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ You can also manage the size of your text to make it look appropriate and suitab
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Add Frames to the Image
@@ -71,16 +71,17 @@ On the other hand, frames like film 1 and film 2 are extremely trendy, and many 
 ![use different canva photo frames](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Create YouTube Thumbnails
@@ -100,10 +101,10 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Make Photo Collage
@@ -111,6 +112,13 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
 
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Design Mockups
 
@@ -127,10 +135,10 @@ By combining both of these features, you can easily craft a professional illustr
 ![auto blur effect applied](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10\. Mix the Colors
@@ -142,16 +150,10 @@ Moreover, you can use filters and color palettes that match well with your theme
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -180,5 +182,23 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-strategies-for-effective-use-of-classroom-media/"><u>[New] Strategies for Effective Use of Classroom Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-boosting-video-quality-utilizing-youtube-studios-features/"><u>[Updated] 2024 Approved Boosting Video Quality Utilizing YouTube Studio's Features</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-export-iphone-images-as-pdf-from-jpeg-and-png-files/"><u>[Updated] How to Export iPhone Images as PDF From JPEG & PNG Files</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unraveling-the-mysteries-of-av1-vs-vp9/"><u>[Updated] Unraveling the Mysteries of AV1 Vs. VP9</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-building-a-winning-portfolio-with-windows-11-video-editing-skills/"><u>2024 Approved Building a Winning Portfolio with Windows 11 Video Editing Skills</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-business-communication-essentials-free-slide-show-tools/"><u>2024 Approved Business Communication Essentials – Free Slide Show Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-eliminating-suggested-podcast-selections-on-spotify/"><u>2024 Approved Eliminating Suggested Podcast Selections on Spotify</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-engineer-eliciting-gags/"><u>2024 Approved Engineer Eliciting Gags</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-hdr-photoshop-how-to-create-hdr-images-in-photoshop-like-a-pro/"><u>2024 Approved HDR Photoshop How to Create HDR Images in Photoshop Like a Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-streamlined-social-integration-linktree-and-tiktok-profiles-united/"><u>2024 Approved Streamlined Social Integration Linktree and TikTok Profiles United</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-marketers-best-friend-20-words-that-work-wonders/"><u>2024 Approved The Marketer's Best Friend - 20 Words That Work Wonders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-30-visionary-insights-on-virtual-realms/"><u>2024 Approved Top 30 Visionary Insights on Virtual Realms</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-up-space-how-to-convert-your-dvds-to-digital-video-files/"><u>Free Up Space How to Convert Your DVDs to Digital Video Files</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-all-about-color-grading/"><u>In 2024, All About Color Grading</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-poco-m6-pro-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Poco M6 Pro 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-rich-world-of-assassins-creed-valhalla-a-gripping-tale-through-medieval-norsemen-history/"><u>Unveiling the Rich World of Assassin’s Creed: Valhalla - A Gripping Tale Through Medieval Norsemen History</u></a></li>
+</ul></div>
 

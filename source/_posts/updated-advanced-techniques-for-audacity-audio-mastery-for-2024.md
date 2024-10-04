@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Advanced Techniques for Audacity Audio Mastery for 2024"
-date: 2024-09-16T17:22:58.126Z
-updated: 2024-09-22T16:47:20.829Z
+date: 2024-10-01T22:38:35.319Z
+updated: 2024-10-04T05:28:19.915Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,12 +113,26 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-easy-start-8-great-beginner-friendly-filming-cameras/"><u>[New] 2024 Approved Easy Start 8 Great Beginner-Friendly Filming Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-vlc-media-player-review-and-alternatives/"><u>[New] In 2024, VLC Media Player Review and Alternatives</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-start-with-smart-edits-10-tips-for-new-photoshop-users-for-2024/"><u>[New] Start with Smart Edits 10 Tips for New Photoshop Users for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-cinema-teasers-compilation/"><u>[New] Top Cinema Teasers Compilation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-ten-blueprints-for-meme-mastery/"><u>[New] Top Ten Blueprints for Meme Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-action-cam-faceoff-hero5-black-and-yis-4k-battle-revisited/"><u>[Updated] 2024 Approved Action Cam Faceoff Hero5 Black and Yi's 4K Battle Revisited</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-your-instagram-experience-through-smart-archiving-for-2024/"><u>[Updated] Elevating Your Instagram Experience Through Smart Archiving for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-hilarity-in-harmony-great-ringtone-websites/"><u>[Updated] In 2024, Hilarity in Harmony Great Ringtone Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transformative-audio-techniques-srt-conversion-mastery/"><u>[Updated] In 2024, Transformative Audio Techniques SRT Conversion Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-learn-to-edit-the-avalanche-reducing-clutter-in-your-tiktok-drafters/"><u>[Updated] Learn to Edit the Avalanche Reducing Clutter in Your TikTok Drafters</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/common-reasons-for-malfunctioning-car-speakers-explained-simply/"><u>Common Reasons for Malfunctioning Car Speakers Explained Simply</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dive-into-haul-video-making-a-beginners-editing-roadmap/"><u>Dive Into Haul Video Making A Beginner's Editing Roadmap</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/experience-ultimate-gaming-at-169-a-month-premium-nzxt-pcs-with-rtx-4070-ti-and-intel-i7-up-for-grabs/"><u>Experience Ultimate Gaming at $169 a Month – Premium NZXT PCs with RTX 4070 Ti and Intel I7 Up for Grabs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-electronically-sign-a-pdf-using-digisigner-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to Electronically Sign a PDF Using DigiSigner</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-roundup-of-best-game-casting-apps/"><u>In 2024, Expert Roundup of Best Game Casting Apps</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-fostering-creativity-for-impressive-mac-produced-tiktok-beginnings/"><u>In 2024, Fostering Creativity for Impressive Mac-Produced TikTok Beginnings</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-guide-to-hilarious-memes/"><u>Step-by-Step Guide to Hilarious Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-5-efforts-crafting-perfect-titles-for-2024/"><u>Top 5 Efforts Crafting Perfect Titles for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "How LUTs Revolutionize Color Balance in Images"
-date: 2024-09-18T18:35:22.353Z
-updated: 2024-09-22T16:46:38.356Z
+date: 2024-10-02T23:31:30.246Z
+updated: 2024-10-03T23:13:33.531Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -71,6 +78,13 @@ Choose Adjustment Layer
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 load 3d lut
 
 1. When you select one, you'll see how the color and tone of the image change.
@@ -85,13 +99,6 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -110,16 +117,10 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -131,6 +132,13 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -160,5 +168,18 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-hub.techidaily.com/1723808168853-solved-logitech-k520-keyboard-not-working-quickly-and-easily/"><u>[SOLVED] Logitech K520 Keyboard Not Working | Quickly & Easily!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-craft-your-story-with-vscos-editing-power-tools/"><u>2024 Approved Craft Your Story with VSCO’s Editing Power Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-explore-uncharted-territories-with-these-iphone-vr-apps/"><u>2024 Approved Explore Uncharted Territories with These iPhone VR Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-graphic-wizardry-from-novice-to-industry-success-story/"><u>2024 Approved Graphic Wizardry From Novice to Industry Success Story</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-clear-suggested-podcast-selections-in-spotify/"><u>2024 Approved How To Clear Suggested Podcast Selections in Spotify</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-stitching-pictures-and-chords-into-compelling-narratives/"><u>2024 Approved Stitching Pictures & Chords Into Compelling Narratives</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-your-digital-footprint-the-impact-of-off-facebook-history/"><u>2024 Approved Your Digital Footprint The Impact of Off-Facebook History</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/anticipated-details-and-pricing-on-the-upcoming-samsung-galaxy-z-fold-release-timeline-features-and-latest-leaks/"><u>Anticipated Details & Pricing on the Upcoming Samsung Galaxy Z Fold - Release Timeline, Features & Latest Leaks</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-infinix-smart-8-pro-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Infinix Smart 8 Pro Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-rumors-on-sonys-latest-virtual-reality-gear-release-info-price-guesses-and-specs-explained/"><u>Exploring Rumors on Sony's Latest Virtual Reality Gear: Release Info, Price Guesses & Specs Explained</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-honor-70-lite-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Honor 70 Lite 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+</ul></div>
 

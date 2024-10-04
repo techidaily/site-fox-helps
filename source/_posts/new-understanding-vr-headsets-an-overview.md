@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Understanding VR Headsets  An Overview\""
-date: 2024-09-17T16:01:48.826Z
-updated: 2024-09-22T17:54:14.914Z
+date: 2024-09-28T22:35:15.918Z
+updated: 2024-10-03T18:46:31.289Z
 tags: 
   - screen-recording
   - ai video
@@ -49,9 +49,23 @@ thumbnail: https://thmb.techidaily.com/d4eab409da91970ce7997d6d71b3df31e4667cec8
 
  Below is a list of the various VR headsets currently available to purchase:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### [HTC Vive]( https://www.vive.com/ )
 
 ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  HTC Vive VR headset is made in collaboration with Valve and it plugs directly into PCs and uses Valve’s humongous gaming ecosystem. The headset has over 70 sensors to allow for 360 degrees head tracking and it also boasts of a 90Hz refresh rate responsible for keeping down the latency, which in turn saves the users from suffering motions sickness. This headset is currently available for purchase from $799.
 
@@ -59,14 +73,14 @@ thumbnail: https://thmb.techidaily.com/d4eab409da91970ce7997d6d71b3df31e4667cec8
 
 ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
 
- The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
 
 ### [Oculus Rift](https://www.oculus.com/rift/  )
 
@@ -80,29 +94,22 @@ thumbnail: https://thmb.techidaily.com/d4eab409da91970ce7997d6d71b3df31e4667cec8
 
  Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [Google Cardboard](https://vr.google.com/cardboard/  )
 
 ![google-cardboard-vr](https://images.wondershare.com/filmora/article-images/google-cardboard-vr.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Not to be left behind, Google also has a cardboard virtual reality headset. With this headset, it sounds like popping your smartphone in a cardboard container and putting it over your head for a virtual reality experience. Sounds like a joke, but you will be pleasantly surprised to learn that it works like charm and it is also low cost. If anything, the smartphone you have already has all the gyroscopic sensors as well as the positioning devices needed to track your head movements.
 
  Since the Cardboard has grown so much in terms of popularity, Google has planned to release a better version known as Daydream. This will be a device like the Gear VR, but it has been designed to work with android phones which are currently being revamped to over better VR experiences. It is still not know when the new device will be available, but the Cardboard is retailing at $16.99 at Amazon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -127,5 +134,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevate-your-time-lapse-game-with-essential-gopro-studio-skills/"><u>[New] 2024 Approved Elevate Your Time-Lapse Game with Essential GoPro Studio Skills</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elevating-your-4k-entertainment-tvs-vs-projection-technology-for-2024/"><u>[New] Elevating Your 4K Entertainment TVs vs Projection Technology for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-by-step-process-to-enhance-obs-with-effective-lut-filters/"><u>[Updated] 2024 Approved Step-by-Step Process to Enhance OBS with Effective LUT Filters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-eliminate-storage-woes-exclusive-list-of-20-best-1tbplus-free-clouds/"><u>[Updated] Eliminate Storage Woes Exclusive List of 20 Best 1TB+ Free Clouds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-overview-of-google-ar-sticker-and-its-alternative/"><u>[Updated] Overview of Google AR Sticker and Its Alternative</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-first-steps-in-the-digital-dollar-youtube-earning-hacks/"><u>2024 Approved First Steps in the Digital Dollar - YouTube Earning Hacks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-navigate-away-from-windows-10-photos-app-failures-with-precision/"><u>2024 Approved Navigate Away From Windows 10 Photos App Failures with Precision</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-oppo-a79-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Oppo A79 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-tecno-spark-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/finding-reliable-and-effective-free-srt-tools-online-for-2024/"><u>Finding Reliable & Effective Free SRT Tools Online for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-razr-40-ultra-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Razr 40 Ultra? Try These Fixes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-cable-modem-with-integrated-wifi-routers/"><u>Leading Cable Modem with Integrated WiFi Routers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-vivo-y77t-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo Y77t Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-wi-fi-options-not-displayed-in-windows-11/"><u>Troubleshooting Guide: Fixing 'Wi-Fi Options Not Displayed' In Windows 11</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Newbie's Guide to Understanding Core Filming Techniques"
-date: 2024-09-26T00:50:37.178Z
-updated: 2024-09-28T22:56:42.224Z
+date: 2024-10-02T09:38:17.888Z
+updated: 2024-10-04T08:25:03.750Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,13 @@ We hope you read this article with all concentration so that your new project is
 
 ## Part 1: 7 Types of Shots in film You Should Know
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Establishing Shot
 
 As the name hints itself, this type of camera shot basically establishes the scene the audience sees as the [first shot of your movie](https://en.wikipedia.org/wiki/Establishing%5Fshot).
@@ -67,10 +74,10 @@ You will also allow the audience to know the emotional relationship to the envir
 ![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Long Shot
@@ -80,19 +87,6 @@ Long shot or often known as the wide shot uses characters in the shot. Each char
 Also, the chief character or say the protagonist should have a major presence in the frame.
 
 Moreover, while using this type of camera shot, you must take care that it should be dominated by the scenery.
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Full Shot
 
@@ -104,13 +98,6 @@ For instance, the audience must get the idea whether your character is confident
 
 ![Full Shot](https://images.wondershare.com/filmora/filmorapro/full-shot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Medium Shot
 
 Medium shot basically stands between the full and the close-up shot.
@@ -121,13 +108,6 @@ The purpose of this shot is to keep the character looking natural.
 
 ![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Close-Up shot
 
 The name brings a crystal clear image of the type of shot itself. With this shot, one brings out the character’s face thereby helping the audience to understand the emotional thoughts of the character.
@@ -135,6 +115,13 @@ The name brings a crystal clear image of the type of shot itself. With this shot
 This shot basically provides what you miss in the [medium shot](https://tools.techidaily.com/wondershare/filmora/download/). Bringing the character’s shot more detailing, for instance tear or the frowning so that the audience can anticipate what the character is feeling in that particular shot.
 
 ![Close-Up shot](https://images.wondershare.com/filmora/filmorapro/close-up-shot.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Extreme Close Up
 
@@ -146,6 +133,13 @@ This type of shot in films aims to fit the single feature on the entire screen. 
 
 ## Part 2: Shots Angles for Camera
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. Eye Shots
 
 These types of shots are taken keeping the camera exactly at the [human eye level](https://nofilmschool.com/eye-level-shot-camera-angle). Using these bring the neutral effect of the shot.
@@ -153,15 +147,22 @@ These types of shots are taken keeping the camera exactly at the [human eye leve
 ![Eye Shots](https://images.wondershare.com/filmora/filmorapro/eye-shots.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. High Shots
 
 High angled shots, unsurprisingly are recorded from the level above than the eye. Basically, this shot type is used to give the weak, unsafe or the terrified impact of the subject.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Low Shots
 
@@ -170,10 +171,10 @@ Contrary to the above, this type of shot in the film is taken from the level bel
 ![Low Shots](https://images.wondershare.com/filmora/filmorapro/low-shots.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 11\. Tilt shots
@@ -206,13 +207,6 @@ It is basically the complete dramatized shot and can be edited together with oth
 
 Also, this type of shot can be considered as the only shot to be used by a director for covering the scene. It can be a closer shot, full or long shot.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 15\. Point of View Shot
 
 POV or Point of View is a shot that focuses on what a character is trying to see in a scene.
@@ -224,10 +218,10 @@ For example, looking through the binoculars and shooting only where the characte
 ![Point of View Shot](https://images.wondershare.com/filmora/filmorapro/point-of-view-shot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -265,20 +259,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-4k-clarity-unleashed-an-intense-study-on-the-31mu97-b-monitor/"><u>[New] 2024 Approved 4K Clarity Unleashed - An Intense Study on the 31MU97-B Monitor</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-boost-your-visibility-with-a-cutting-edge-set-of-banners/"><u>[New] 2024 Approved Boost Your Visibility with a Cutting-Edge Set of Banners</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-ios-gif-apps-compendium-for-latest-iphones/"><u>[New] 2024 Approved Essential iOS GIF Apps Compendium for Latest iPhones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-starting-with-simple-tricks-auditions-fade-techniques/"><u>[New] 2024 Approved Starting with Simple Tricks Audition's Fade Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-pro-tips-for-impressive-gopro-time-lapse-cinematography/"><u>[New] Pro Tips for Impressive GoPro Time-Lapse Cinematography</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-luts-as-the-key-to-vivid-film-colors/"><u>[Updated] 2024 Approved Luts as the Key to Vivid Film Colors</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-maximize-your-online-interactions-with-these-5-devices/"><u>[Updated] 2024 Approved Maximize Your Online Interactions with These 5 Devices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-pro-tips-for-iphone-burst-photo-sequences/"><u>[Updated] Pro Tips for iPhone Burst Photo Sequences</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-textual-transformation-in-adobe-after-effects/"><u>[Updated] Textual Transformation in Adobe After Effects</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-unlocking-the-power-of-batched-video-extraction-from-tiktok/"><u>2024 Approved Unlocking the Power of Batched Video Extraction From TikTok</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/cam-division-is-splitcam-the-1-choice-for-2024/"><u>Cam Division Is SplitCam the #1 Choice for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-dull-to-dynamic-top-11-techniques-for-improved-colors/"><u>From Dull to Dynamic Top 11 Techniques for Improved Colors</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-leveraging-pip-for-multitasking-in-edge-browser/"><u>In 2024, Leveraging PIP for Multitasking in Edge Browser</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-filmmakers-guide-to-capturing-clear-sea-footage/"><u>In 2024, The Filmmaker's Guide to Capturing Clear Sea Footage</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-how-to-restore-functionality-on-a-malfunctioning-dell-keyboardmouse/"><u>Troubleshooting Guide: How To Restore Functionality on a Malfunctioning Dell Keyboard/Mouse</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-how-to-make-a-hyperlapse-video/"><u>[New] 2024 Approved How to Make A Hyperlapse Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-curating-relevant-skills-list-for-2024/"><u>[New] Curating Relevant Skills List for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-how-to-use-aiseesoft-screen-recorder/"><u>[Updated] 2024 Approved How to Use Aiseesoft Screen Recorder</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-androidios-techniques-screening-google-meets-for-2024/"><u>[Updated] Android/iOS Techniques Screening Google Meets for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-from-boring-to-breathtaking-transforming-podcast-blurbs/"><u>[Updated] From Boring to Breathtaking Transforming Podcast Blurbs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-neptune-display-premium-4k-all-in-one-screens/"><u>[Updated] In 2024, Neptune Display Premium 4K All-in-One Screens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-yi-in-focus-the-future-of-4k-filmmaking/"><u>[Updated] In 2024, Yi in Focus The Future of 4K Filmmaking</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transformative-tools-for-uploading-videos-to-twitter-for-2024/"><u>[Updated] Transformative Tools for Uploading Videos to Twitter for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-realme-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-crashes-in-outpost-infinity-siege-for-pc-step-by-step-solutions/"><u>Fix Crashes in Outpost: Infinity Siege for PC – Step-by-Step Solutions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-find-x7-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Oppo Find X7?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-oppo-reno-11-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Oppo Reno 11 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-cutting-edge-imaging-a-shoppers-selection-process-for-2024/"><u>Navigating Cutting-Edge Imaging A Shopper's Selection Process for 2024</u></a></li>
 </ul></div>
 

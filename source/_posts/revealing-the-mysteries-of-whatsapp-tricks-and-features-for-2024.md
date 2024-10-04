@@ -1,7 +1,7 @@
 ---
 title: "\"Revealing the Mysteries of WhatsApp  Tricks & Features for 2024\""
-date: 2024-09-26T03:07:37.794Z
-updated: 2024-09-29T03:07:15.347Z
+date: 2024-09-27T04:07:25.393Z
+updated: 2024-10-03T17:03:39.718Z
 tags: 
   - screen-recording
   - ai video
@@ -103,6 +103,19 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are the Hidden Features of WhatsApp?
 
 Since most of the above-mentioned are owing to the tricks and trades of texting via WhatsApp, let us now jot down a WhatsApp hidden feature list that applies for general usability of the wonder-app. There are useful privacy settings and chat features that can make your user experience a lot more peaceful.
@@ -117,6 +130,13 @@ There are many ways how you can save mobile data consumed by WhatsApp. First, yo
 
 ![Whatsapp Save More Data](https://images.wondershare.com/filmora/article-images/whatsapp-save-more-data.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Source: androidauthority.com
 
 #### 3.Share Your Location Without Ado
@@ -129,13 +149,6 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -146,25 +159,11 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 7.Automatically Delete Messages After 7 Days
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 8.Mute Stories that You Don’t Want to See
 
@@ -173,10 +172,10 @@ If it is annoying to open a loved one’s story and then automatically sliding i
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
@@ -188,6 +187,19 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Source: beebom.com
 
@@ -242,22 +254,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-serpent-soundtrack-comprehensive-guide-to-tts-resources-online/"><u>[New] 2024 Approved Serpent Soundtrack Comprehensive Guide to TTS Resources Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-epic-evolutions-digitizing-decades-of-documentary-photographs-for-2024/"><u>[New] Epic Evolutions Digitizing Decades of Documentary Photographs for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-leaderboards-best-12-action-recorders-including-satellite-positioning/"><u>[New] Leaderboard's Best 12 Action Recorders Including Satellite Positioning</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-meme-manifestation-station-for-2024/"><u>[New] Meme Manifestation Station for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-secure-storage-system-5-ways-to-upload-files/"><u>[New] Secure Storage System 5 Ways to Upload Files</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-high-def-mastery-the-leading-blu-ray-devs/"><u>[Updated] 2024 Approved High-Def Mastery The Leading Blu-Ray Devs</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-laugh-out-loud-for-free-easymemes-tutorial/"><u>[Updated] Laugh Out Loud for Free EasyMemes Tutorial</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-shatter-the-status-quo-with-these-instagram-9-methods-for-stardom/"><u>[Updated] Shatter the Status Quo with These Instagram #9 Methods for Stardom</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-archive-of-yesteryear-how-to-view-facebook-past-content/"><u>[Updated] Unlocking the Archive of Yesteryear How To View Facebook Past Content</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-best-free-premiere-pro-templates-2023/"><u>2024 Approved Best Free Premiere Pro Templates 2023</u></a></li>
-<li><a href="https://win-dash.techidaily.com/asrocks-ab350-pro4-drivers-easy-free-download-for-enhanced-windows-performance/"><u>ASROCK's AB350 Pro4 Drivers: Easy, Free Download for Enhanced Windows Performance</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-motorola-moto-g23-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Motorola Moto G23 Through Google Earth?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bright-beginnings-quick-ways-to-brighten-iphone-clips-and-more/"><u>In 2024, Bright Beginnings Quick Ways to Brighten iPhone Clips and More</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-the-art-of-saturation-and-contrast-in-gopro-editing/"><u>In 2024, The Art of Saturation and Contrast in GoPro Editing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-uncover-top-8-sites-offering-free-3d-text-psd-images-and-files/"><u>In 2024, Uncover Top 8 Sites Offering FREE 3D Text PSD Images and Files</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-elevate-your-video-game-best-4k8k-video-editing-software/"><u>Updated 2024 Approved Elevate Your Video Game Best 4K/8K Video Editing Software</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-boost-speed-control-for-instagram-stories-tempo/"><u>[New] 2024 Approved Boost Speed Control for Instagram Stories Tempo</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-paving-the-way-to-a-more-engaging-profile-adding-linktree-on-tiktok/"><u>[New] 2024 Approved Paving the Way to a More Engaging Profile Adding Linktree on TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-illuminating-craftsmanship-avoiding-common-film-lighting-pitfalls/"><u>[New] Illuminating Craftsmanship Avoiding Common Film-Lighting Pitfalls</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-get-hd-quality-facebook-videos-on-pcmobile/"><u>[New] In 2024, Get HD Quality Facebook Videos on PC/Mobile</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-bite-sized-biographical-look-for-2024/"><u>[Updated] Bite-Sized Biographical Look for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-best-slogan-generator-for-virtual-events/"><u>[Updated] In 2024, Best Slogan Generator for Virtual Events</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-art-of-laughter-no-10-memes-ranked-by-fun/"><u>[Updated] In 2024, The Art of Laughter No. 10 Memes Ranked by Fun</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-your-channel-a-gamers-blueprint-for-success/"><u>2024 Approved Elevating Your Channel A Gamers' Blueprint for Success</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-samsungs-ue590-4k-gamer-monitor/"><u>2024 Approved Exploring Samsung's UE590 4K Gamer Monitor</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-realme-12plus-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Realme 12+ 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-se-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone SE</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-effective-facebook-sessions-a-guide-to-5-key-strategies/"><u>Mastering the Art of Effective Facebook Sessions: A Guide to 5 Key Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-path-to-effective-marketing-best-practices-for-health-promos/"><u>The Path to Effective Marketing Best Practices for Health Promos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-15-excelentes-herramientas-de-diseno-gratis-para-crear-logos-en-computadoras-movavi/"><u>Top 15 Excelentes Herramientas De Diseño Gratis Para Crear Logos en Computadoras - Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/trick-or-treat-unlock-massive-halloween-savings-with-a-free-macxdvd-software-gift-plus-65-70-off/"><u>Trick or Treat: Unlock Massive Halloween Savings with a Free MacXDVD Software Gift + 65-70% Off!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unveiling-the-secrets-to-youtube-comment-insight/"><u>Unveiling the Secrets to YouTube Comment Insight</u></a></li>
 </ul></div>
 
