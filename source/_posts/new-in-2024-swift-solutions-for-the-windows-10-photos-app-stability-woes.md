@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Swift Solutions for the Window's 10 Photos App Stability Woes"
-date: 2024-09-21T16:15:11.159Z
-updated: 2024-09-22T20:28:30.277Z
+date: 2024-10-06T16:32:31.541Z
+updated: 2024-10-09T16:25:40.639Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -57,6 +64,13 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -71,6 +85,13 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -107,10 +128,10 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -118,13 +139,6 @@ Here is how to reinstall the Windows 10 Photos App –
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -151,5 +165,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-master-clearer-photos-unveiling-the-top-10-web-edits/"><u>[New] Master Clearer Photos Unveiling the Top 10 Web Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-shine-bright-with-these-simple-android-video-steps-for-2024/"><u>[New] Shine Bright with These Simple Android Video Steps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-definitive-guide-for-quick-srt-to-txt-con/"><u>[Updated] 2024 Approved The Definitive Guide for Quick SRT to TXT Con</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-optimal-no-cost-android-video-maker-for-2024/"><u>[Updated] Optimal No-Cost Android Video Maker for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-essentials-of-blurring-photo-borders/"><u>[Updated] The Essentials of Blurring Photo Borders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-efficient-closer-viewing-techniques-to-use-in-google-meets/"><u>2024 Approved Efficient Closer Viewing Techniques to Use in Google Meets</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-samsung-galaxy-ring-details-pricing-launch-info-and-latest-updates/"><u>Discover Samsung Galaxy Ring Details - Pricing, Launch Info & Latest Updates</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-on-zte-nubia-flip-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Videos Not Playing on ZTE Nubia Flip 5G?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-innovative-guide-transforming-social-media-sounds-into-mobile-alerts/"><u>In 2024, Innovative Guide Transforming Social Media Sounds Into Mobile Alerts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-liberate-yourself-with-free-movie-player-software/"><u>In 2024, Liberate Yourself with FREE MOVIE PLAYER Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/initial-thoughts-on-the-newly-released-samsung-galaxy-s24-ultra-a-comprehensive-review/"><u>Initial Thoughts on the Newly Released Samsung Galaxy S24 Ultra: A Comprehensive Review</u></a></li>
+</ul></div>
 

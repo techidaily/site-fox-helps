@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In Pursuit with Panasonic’s HX-A1 Wearable Cameras for 2024\""
-date: 2024-09-21T17:18:57.591Z
-updated: 2024-09-22T19:55:40.175Z
+date: 2024-10-05T16:15:15.190Z
+updated: 2024-10-09T16:14:44.693Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specification
 
@@ -106,10 +113,16 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Features
@@ -141,10 +154,16 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -154,6 +173,13 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -178,5 +204,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-cinematicwave-win8-software-for-2024/"><u>[New] CinematicWave Win8 Software for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exceptional-counsel-premium-ringtone-developers/"><u>[New] Exceptional Counsel Premium Ringtone Developers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-identifying-high-impact-hdr-photography-tools-for-2024/"><u>[New] Identifying High-Impact HDR Photography Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-virtualitys-voyage-an-overview/"><u>[New] In 2024, Virtuality’s Voyage An Overview</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-windows-and-mac-call-recordings-explained-20plus-ways-to-go/"><u>[New] In 2024, Windows & Mac Call Recordings Explained - 20+ Ways to Go</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-sticker-perfection-ranking-the-top-10-apps-for-ios-and-android-photos/"><u>[New] Sticker Perfection Ranking the Top 10 Apps for iOS and Android Photos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-iconic-top-tier-virtual-reality-films/"><u>[Updated] Iconic Top-Tier Virtual Reality Films</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-nokia-c22-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Nokia C22 Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-powerful-type-tools-to-transform-visual-narratives/"><u>In 2024, Powerful Type Tools to Transform Visual Narratives</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-consistent-sound-quality-tips-for-balancing-mp4-audio/"><u>Mastering Consistent Sound Quality: Tips for Balancing MP4 Audio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/plotting-your-path-in-the-realm-of-visual-arts-for-2024/"><u>Plotting Your Path in the Realm of Visual Arts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/securing-a-spotlight-with-zoom-and-fb-live-integration/"><u>Securing a Spotlight with ZOOM & FB Live Integration</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transform-your-messaging-setting-up-microsoft-bing-chatbot-on-android-devices/"><u>Transform Your Messaging: Setting Up Microsoft Bing Chatbot on Android Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ultimate-drone-collection-available-now/"><u>Ultimate Drone Collection Available Now</u></a></li>
+</ul></div>
 

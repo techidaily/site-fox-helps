@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unleash Creative Potential  Using StoryRemix for Windows 11'S Photo Videos for 2024\""
-date: 2024-09-21T16:44:53.309Z
-updated: 2024-09-22T18:40:50.611Z
+date: 2024-10-06T16:34:47.855Z
+updated: 2024-10-09T16:53:14.201Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,19 @@ Go to **Start** menu and open **Windows Photos**. you can see videos and photos 
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to create Story Remix automatically and randomly
 
 In this part of the article, we would elaborate creation of Story Remix in different ways. The content is auto-generated or you can manually create it from scratch. The automatic method has themes, transitions, and soundtracks within.
@@ -67,6 +80,13 @@ How to create a Story Remix project automatically –
    3. Give a name and tap on **OK**.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/start-remix-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
    2. You can rearrange the content by tapping **Remix it for me** button.
@@ -93,10 +113,10 @@ Story Remix has 3 major sections namely, media bin consists of files already inc
 In the following sections, we have segregated each editing feature of Story Mix for you to explore –
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Adding a new theme
@@ -109,10 +129,10 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Adding image duration
@@ -123,13 +143,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Adding custom text
 
 1. Choose card from timeline, click ‘Text’ and feed the custom text in the box located at right side. You can simply use animated text styles too.
@@ -139,10 +152,17 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Adding motion
@@ -152,17 +172,17 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to add 3D effects to a Story Remix project
 
@@ -224,5 +244,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-complete-control-over-your-youtube-viewing-experience/"><u>[New] 2024 Approved Complete Control Over Your YouTube Viewing Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-playbook-for-cutting-edge-youtube-studio-video-editing/"><u>[New] 2024 Approved The Ultimate Playbook for Cutting-Edge YouTube Studio Video Editing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-capturing-facebook-hd-videos-for-later-use/"><u>[New] Capturing Facebook HD Videos for Later Use</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-beyond-illusory-boundaries-understanding-the-spectrum-vr-ar-and-mr/"><u>[Updated] 2024 Approved Beyond Illusory Boundaries Understanding the Spectrum (VR, AR, & MR)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-discovering-2023s-best-stories-on-the-worldwide-web/"><u>[Updated] 2024 Approved Discovering 2023'S Best Stories on the Worldwide Web</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-implementing-dynamic-filters-transform-your-videos-digitally/"><u>[Updated] In 2024, Implementing Dynamic Filters Transform Your Videos Digitally</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-return-engineer-toolkit/"><u>[Updated] In 2024, Return Engineer Toolkit</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pinnacle-sound-selections-android-based/"><u>[Updated] Pinnacle Sound Selections, Android-Based</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-tips-for-time-lapping-your-samsung-camera/"><u>2024 Approved Pro Tips for Time-Lapping Your Samsung Camera</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-what-separates-full-immersion-from-panoramic-videos/"><u>2024 Approved What Separates Full Immersion From Panoramic Videos?</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-oneplus-11r-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for OnePlus 11R Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/deciphering-truthcoin-written-into-its-code/"><u>Deciphering TruthCoin' Written Into Its Code</u></a></li>
+<li><a href="https://blog-min.techidaily.com/hd-video-and-audio-transcoder-download-the-ultimate-free-software/"><u>HD Video & Audio Transcoder: Download the Ultimate Free Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/highlighting-heroics-at-the-x-olympics-2022/"><u>Highlighting Heroics at the X-Olympics 2022</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-freeing-up-youtube-views-no-more-grey-lines/"><u>In 2024, Freeing Up YouTube Views No More Grey Lines</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-fixes-for-powerpoint-playback-sounds-issues/"><u>Step-by-Step Fixes for PowerPoint Playback Sounds Issues</u></a></li>
+</ul></div>
 

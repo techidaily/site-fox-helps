@@ -1,7 +1,7 @@
 ---
 title: "[New] Streamlined Audiovisual Sequencing in Audacity"
-date: 2024-09-30T16:47:42.684Z
-updated: 2024-10-04T09:38:50.647Z
+date: 2024-10-07T16:07:19.924Z
+updated: 2024-10-09T16:22:36.634Z
 tags: 
   - screen-recording
   - ai video
@@ -34,10 +34,10 @@ Crossfading process allows two sounds to segue smoothly into one another. Crossf
 When you cross fade music, you cause one piece of audio to fade out—the sound gradually vanishes—at the precise same moment as another piece of audio fades in—the sound gradually manifests. This effect produces a seamless transition between the two songs without any abrupt pauses or quiet in between. The volume of audio in the source files is the sole restriction on the duration of the fade in a digital editor that supports crossfading between two or more files.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. How To Use Crossfading in Audacity
@@ -54,29 +54,22 @@ Step2 Select File, followed by Recent files. The first of the 12 most recent sav
 
 ![select import recent files](https://images.wondershare.com/filmora/article-images/2022/07/select-import-recent-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Use your Selection tool to align the clips so that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
 
 ![crossfade songs audacity](https://images.wondershare.com/filmora/article-images/2022/07/crossfade-songs-audacity.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Using the Time Shift Tool, place your two clips adjacent to one another in order to apply a crossfade across them on the same track. Select the area to be crossfaded using the Selection tool, and then click Effect > Crossfade Clips to combine the sounds you've chosen.
 
 ![combine sound clips audacity](https://images.wondershare.com/filmora/article-images/2022/07/combine-sound-clips-audacity.jpg)
 
 Step5 This project should be exported as an MP3\. Once you've finished editing, choose File > Export > Export as MP3 from the menu. From this point on, a pop-up window with a number of fields will appear, allowing you to choose how the file is saved.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. Alternative Way to Fade Audio
 
@@ -98,6 +91,13 @@ Afterwards, you need to import your files and with the Filmora it’s handy as w
 
 ![install filmora and import audio](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Open Filmora's Audio Editor
 
 Following the import of your media files into Filmora, you must drag the files onto the program's timeline. Your media files may be edited using all available methods in the timeline. Simply right-click on the particular audio file and choose "Edit Audio" from the list to use Filmora's audio editor:
@@ -110,6 +110,13 @@ The primary step in this respect is how to begin fading-in/fading-out your audio
 
 ![use the audio fade in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To do so, center your attention on your audio file inside the timeline; after you've chosen it, the two icons will appear above the audio file. Drag the first one to the length you want to conduct the audio fade-in option, as shown. Hit the other icon and drag it to the required extent in Filmora to complete the fade-out.
 
 ##### Step4 Polish the Audio Further
@@ -118,16 +125,22 @@ Filmora features a built-in video editing toolbox in addition to an audio editor
 
 ![polish the audio further](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step5 Export Your Sound and Video
 
 On that note, if you are happy with how your voice has changed, right now could be the greatest moment to preserve it or perhaps record it. All popular video and audio formats, including MP3, are supported. To do this, click "Export" and select the file format from the Local menu as shown below. You can also customize the final destination of the edited audio file using the settings as shown below:
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs
 
@@ -172,10 +185,10 @@ The primary step in this respect is how to begin fading-in/fading-out your audio
 ![use the audio fade in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To do so, center your attention on your audio file inside the timeline; after you've chosen it, the two icons will appear above the audio file. Drag the first one to the length you want to conduct the audio fade-in option, as shown. Hit the other icon and drag it to the required extent in Filmora to complete the fade-out.
@@ -186,25 +199,24 @@ Filmora features a built-in video editing toolbox in addition to an audio editor
 
 ![polish the audio further](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step5 Export Your Sound and Video
 
 On that note, if you are happy with how your voice has changed, right now could be the greatest moment to preserve it or perhaps record it. All popular video and audio formats, including MP3, are supported. To do this, click "Export" and select the file format from the Local menu as shown below. You can also customize the final destination of the edited audio file using the settings as shown below:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4\. Related FAQs
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. What is crossfade between tracks?
 
@@ -219,10 +231,10 @@ You may utilize crossfade between your combined tracks and convert your audio fi
 Use the Normalize effect to equalize the left and right channels of stereo recordings, set the peak amplitude of a single track, and make several tracks have the same peak amplitude. By doing this, you can be confident that your podcast or audio recording will sound great via headphones.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -253,24 +265,19 @@ In summary, Audacity is a free audio tool that's really simple to use. By utiliz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-dissecting-the-disparities-apples-m1-pro-and-m1-max-for-2024/"><u>[New] Dissecting the Disparities Apple's M1 Pro and M1 Max for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-exploring-advanced-whatsapp-techniques-for-efficiency-for-2024/"><u>[New] Exploring Advanced WhatsApp Techniques for Efficiency for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-flight-a-complete-review-of-the-dji-inspire-2-drone/"><u>[Updated] 2024 Approved Mastering Flight A Complete Review of the DJI Inspire 2 Drone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-rapid-playback-in-spotify-safe-practices-revealed/"><u>[Updated] Mastering Rapid Playback in Spotify Safe Practices Revealed</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-maximizing-harvests-with-ideal-valheim-seeds-for-2024/"><u>[Updated] Maximizing Harvests with Ideal Valheim Seeds for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-impact-of-testimonial-videos-today-for-2024/"><u>[Updated] The Impact of Testimonial Videos Today for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-brief-sequences-lasting-impressions-time-lapse-with-samsung/"><u>2024 Approved Brief Sequences, Lasting Impressions Time-Lapse with Samsung</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-examining-ffmpeg-written-by-user/"><u>2024 Approved Examining FFmpeg' Written by User</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-foremost-audiovideo-makers-online-guidebook/"><u>2024 Approved The Foremost Audio/Video Makers Online Guidebook</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-installation-finding-and-setting-up-new-acer-aspire-driver-software-in-windows-environment/"><u>Easy Installation: Finding and Setting Up New Acer Aspire Driver Software in Windows Environment</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/free-online-conversion-change-nef-images-to-png-format-with-ease/"><u>Free Online Conversion: Change NEF Images to PNG Format with Ease</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/gear-for-capturing-journeys-on-camera-for-2024/"><u>Gear for Capturing Journeys on Camera for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-master-discocast-your-discord-recorder-handbook/"><u>In 2024, Master DiscoCast Your Discord Recorder Handbook</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-present-day-vr-tech-diary/"><u>In 2024, Present-Day VR Tech Diary</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-the-ultimate-drone-accessory-guide-10-must-haves-revealed/"><u>In 2024, The Ultimate Drone Accessory Guide - 10 Must-Haves Revealed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/precision-cuts-and-transitions-for-premier-users/"><u>Precision Cuts & Transitions for Premier Users</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/things-you-must-know-for-screen-mirroring-apple-iphone-8-drfone-by-drfone-ios/"><u>Things You Must Know for Screen Mirroring Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-itel-a60s-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Itel A60s Users</u></a></li>
-<li><a href="https://windows11.techidaily.com/unlocking-windows-10-keys-a-step-by-step-guide/"><u>Unlocking Windows 10 Keys: A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-step-by-step-guide-to-optimal-screen-casting-via-meet/"><u>[New] 2024 Approved Step-by-Step Guide to Optimal Screen Casting via Meet</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-brightening-tactics-for-android-video-enthusiasts-for-2024/"><u>[New] Brightening Tactics for Android Video Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unraveling-the-secrets-of-viral-content-creation/"><u>[Updated] Unraveling the Secrets of Viral Content Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-artisticjoke-maker-share-laughs-online/"><u>2024 Approved ArtisticJoke Maker Share Laughs Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-value-for-money-top-6-budget-4k-projector-models/"><u>2024 Approved Best Value for Money Top 6 Budget 4K Projector Models</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-evaluating-alternatives-to-magixs-acid-pro/"><u>2024 Approved Evaluating Alternatives to Magix's ACID Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-fuel-ambition-with-these-10-movie-masterpieces/"><u>2024 Approved Fuel Ambition with These 10 Movie Masterpieces</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-playful-portraits-how-to-apply-a-cartoon-face-on-snapchat/"><u>2024 Approved Playful Portraits How to Apply a Cartoon Face on Snapchat</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-visualizing-creativity-to-perfection-with-magix-video-pro-x/"><u>2024 Approved Visualizing Creativity to Perfection with Magix Video Pro X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forever-free-mondlys-lifetime-access-plan/"><u>Forever Free - Mondly’s Lifetime Access Plan</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a05-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A05 Lock Screen Password</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-life360-from-tracking-you-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Oppo Reno 9A? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-get-audio-working-in-avidemux-proven-solutions-for-2024/"><u>New Get Audio Working in Avidemux Proven Solutions for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-guide-to-choosing-the-best-hd-video-player-software-for-your-pc-top-seven-options/"><u>Ultimate Guide to Choosing the Best HD Video Player Software for Your PC - Top Seven Options</u></a></li>
 </ul></div>
 

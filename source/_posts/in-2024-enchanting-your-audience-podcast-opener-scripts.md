@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Enchanting Your Audience  Podcast Opener Scripts\""
-date: 2024-09-28T05:27:22.944Z
-updated: 2024-10-04T00:57:23.217Z
+date: 2024-10-08T16:51:13.503Z
+updated: 2024-10-09T17:04:45.670Z
 tags: 
   - screen-recording
   - ai video
@@ -63,31 +63,18 @@ The game is to entice the listener so that he would want more, and for that, we 
 
 We will analyze the intros of the top three podcasts to find out the most important elements that make the introduction snappy enough to capture the audience.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [This American Life](https://www.thisamericanlife.org/1/new-beginnings)
 
 ![this american life](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-1.jpg)
 
-According to the US rankings, "This American Life" is the fourth most popular podcast and focuses on people's real-life stories. This podcast has around 2.2 million listeners. Ira Glass hosts the show, and episodes are released weekly. Ira introduces a new character in each episode and inquires about their background.
-
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+According to the US rankings, "This American Life" is the fourth most popular podcast and focuses on people's real-life stories. This podcast has around 2.2 million listeners. Ira Glass hosts the show, and episodes are released weekly. Ira introduces a new character in each episode and inquires about their background.
 
 ### [My favorite murder](https://www.exactlyrightmedia.com/myfavoritemurder)
 
@@ -119,6 +106,13 @@ Now that we've established which elements are more prominent in the intros of so
 
 If you want the audience to be unable to resist your podcast, design your podcast intro with the following tips in mind.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How long should a podcast intro be?
 
 Your podcast intro should be brief and snappy. The ideal duration for a podcast intro is between 30 to 60 seconds. However, it should not last more than a minute and a half.
@@ -130,6 +124,13 @@ The intro of "This American Life" lasted for sixty seconds, while the intro of s
 Selecting a soundtrack or sound effects for your podcast intro is optional, but it enhances the quality of the content presented. The soundtrack should be chosen carefully as it functions as a logo that presents a brand.
 
 A soundtrack can also give a classy feel to your intro and aid the listeners in vibing to your content. For instance, if you intend to present horror content in your podcast, spooky background music and sound effects can help the listener get into the mood. To avoid copyright issues, you can find free music at the YouTube audio library or Pixabay.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Should you include a call to action in your intro and why?
 
@@ -162,16 +163,22 @@ Let's look at the samples of some of the most popular podcast intros.
 
 Once you've figured out how a good podcast intro should be, the last step would be to glance at the intros of the following popular podcasts to eliminate any further ambiguity.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Crushed - A Comedy Podcast
 
 ![crushed](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Crushed is one of the top comedy podcasts in which people narrate their one-sided love stories to the host. First, let's look at its intro.
 
@@ -194,6 +201,13 @@ Hello! and welcome to —------------ (podcast name); the podcast is about the �
 ### [Global News Podcast](https://www.bbc.co.uk/programmes/p0d9229j)
 
 ![global news podcast](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Global News Podcast is one of the top news podcasts by BBC World Service, and its intro is as follows.
 
@@ -249,13 +263,6 @@ The following program contains adult content, violence, and strong language. The
 
 Despite operating in plain sight for almost —-----, it took a twist of fate for his reign of terror to finally come to an end. And yes, you guessed it, right, ladies and gentlemen, today we will talk about the infamous —------.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [Football Weekly](https://www.theguardian.com/football/series/footballweekly)\- A sports podcast
 
 ![football weekly](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-8.jpg)
@@ -275,6 +282,19 @@ The intro tells the platform, then what will be discussed in the episode, and en
 This is —-------(the podcast's name). Hello and welcome to the —----------; more votes are needed for—-------, this time losing at the bottom of the league (a tagline related to any of the sports teams to hook the audience)
 
 —-------- is at the panel today with us (introduce the guest of the episode). Yesterday's game of —--- was a bummer, and we'll talk about it later in the episode.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final words
 
@@ -325,6 +345,13 @@ A call to action is also effective in establishing familiarity with the listener
 
 For instance, in the intro of "This American Life," Ira Glass uses the phrase, "If you haven't tried the previous episodes yet, you should." reminding the new audience to check the previous episodes as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### When is the right time to introduce yourself and your guests?
 
 Logically it would help if you introduced yourself to the new audience right after introducing the name of your podcast. Introducing yourself is not challenging, but you can use guest introductions to create a buzz that will help you gain your listeners' attention.
@@ -333,13 +360,6 @@ The proper way to introduce your episode guest is to tell your audience about th
 
 Let's look at the samples of some of the most popular podcast intros.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5\. Effective podcast introduction examples
 
 Once you've figured out how a good podcast intro should be, the last step would be to glance at the intros of the following popular podcasts to eliminate any further ambiguity.
@@ -347,13 +367,6 @@ Once you've figured out how a good podcast intro should be, the last step would 
 ### Crushed - A Comedy Podcast
 
 ![crushed](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Crushed is one of the top comedy podcasts in which people narrate their one-sided love stories to the host. First, let's look at its intro.
 
@@ -377,13 +390,6 @@ Hello! and welcome to —------------ (podcast name); the podcast is about the �
 
 ![global news podcast](https://images.wondershare.com/filmora/article-images/2022/12/podcasts-intros-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Global News Podcast is one of the top news podcasts by BBC World Service, and its intro is as follows.
 
 **Global News Podcast's Intro**
@@ -397,13 +403,6 @@ Once again, the introduction is concise and hooks listeners in just 17 seconds. 
 **Free Template for a News Podcast**
 
 Hello! This is the —----- news podcast from the —--------- (introduce the channel). With reports and analyses shown across the world and the latest news —------------ (introduce the purpose of the broadcast), —------- podcasts are supported by —-----------------. (the name of your sponsor, if any)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [The Joe Rogan Experience](https://podcast.app/the-joe-rogan-experience-p15/) \- A culture and society podcast
 
@@ -422,6 +421,13 @@ This podcast's intro is a bit of a freestyle that changes with each episode. It'
 **Free Template for a Culture and Society Podcast**
 
 Hey! What's going on, ladies and gentlemen? This podcast is a —---------------- (explain what the podcast is about). My guest today is —-----, who is a —----- (introduce the guest), and if you are a frequent listener of —------, then you must know that I love talking about life, philosophy, and the differences in society's cultures!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### [Welcome to Your Fantasy](https://podcasts.apple.com/us/podcast/9-where-the-butt-ends/id1517709981?i=1000533849644) \- A crime show podcast
 
@@ -499,24 +505,22 @@ And hopefully, after going over the crux and tips mentioned above, you will be a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-techniques-for-captivating-visual-fb-ads/"><u>[New] 2024 Approved Techniques for Captivating Visual FB Ads</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-capture-master-high-res-screen-record/"><u>[New] In 2024, Capture Master High-Res Screen Record</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-choosing-the-best-action-cam-hero-vs-keymission-170/"><u>[New] In 2024, Choosing the Best Action Cam Hero Vs Keymission 170</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-driving-engagement-from-few-followers-to-million-views/"><u>[New] In 2024, Driving Engagement From Few Followers to Million Views</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-eye-twinkling-jokes-generate-on-kapwing/"><u>[New] In 2024, Eye-Twinkling Jokes Generate on Kapwing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outube-affiliate-marketing-how-to-make-money-with-it-for-2024/"><u>[New] YouTube Affiliate Marketing How to Make Money with It for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-achieving-professional-streams-with-obs-android-style/"><u>[Updated] In 2024, Achieving Professional Streams with OBS, Android Style</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-elevate-your-meetings-with-zooms-filter-capabilities/"><u>[Updated] In 2024, Elevate Your Meetings with Zoom's Filter Capabilities</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-gopro-hero5-black-vs-hero5-session/"><u>[Updated] In 2024, GoPro Hero5 Black Vs Hero5 Session</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>[Updated] In 2024, Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-speak-with-synthetic-voices-chromebooks-leading-online-text-to-speech-apps/"><u>[Updated] Speak with Synthetic Voices Chromebook's Leading Online Text-to-Speech Apps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-tailoring-content-for-snapchats-luminaries-for-2024/"><u>[Updated] Tailoring Content for Snapchat's Luminaries for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-content-downloader-showdown-1-5-best-picks-unveiled/"><u>2024 Approved FB Content Downloader Showdown - #1-5 Best Picks Unveiled</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-10-virtual-reality-headgear-for-smartphones/"><u>Best 10 Virtual Reality Headgear for Smartphones</u></a></li>
-<li><a href="https://program-issues.techidaily.com/bug-squashed-misty-veil-leads-to-pc-malfunction/"><u>Bug Squashed: Misty Veil Leads to PC Malfunction</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-full-rotation-shoots-9-must-follow-rules-for-2024/"><u>Mastering Full-Rotation Shoots 9 Must-Follow Rules for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta-for-2024/"><u>Mastering the Art of Soundtrack Posts A Copyright Primer for Insta for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/superior-text-styling-methods-for-2024/"><u>Superior Text Styling Methods for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-a-glance-at-your-world-freeze-and-save-windows/"><u>[New] 2024 Approved A Glance at Your World Freeze and Save Windows</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-funnies-in-a-flash-top-10-quick-and-quirky-video-concepts-for-youtubers-for-2024/"><u>[New] Funnies in a Flash Top 10 Quick & Quirky Video Concepts for YouTubers for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-initiate-seamless-gaming-streams-mastering-obs-recording-for-2024/"><u>[New] Initiate Seamless Gaming Streams Mastering OBS Recording for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-precision-screen-recorders-for-xbox-gamers-explained/"><u>[New] Precision Screen Recorders for Xbox Gamers Explained</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dive-into-the-positive-side-of-asmr/"><u>2024 Approved Dive Into The Positive Side Of ASMR</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-selection-the-top-11-kid-friendly-waterproof-camcorders/"><u>2024 Approved Expert Selection The Top 11 Kid-Friendly, Waterproof Camcorders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-explore-the-best-spots-for-acquiring-got-tones/"><u>2024 Approved Explore the Best Spots for Acquiring GoT Tones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-wisdom-a-compilation-of-inspiring-thoughts/"><u>2024 Approved Metaverse Wisdom A Compilation of Inspiring Thoughts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secrets-to-preventing-photo-app-problems-in-windows-11/"><u>2024 Approved Secrets to Preventing Photo App Problems in Windows 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-veritable-value-of-voice-podcasters-earnings-analysis/"><u>2024 Approved The Veritable Value of Voice Podcasters’ Earnings Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unlocking-free-secure-vlc-player-access-on-apple-devices/"><u>2024 Approved Unlocking Free, Secure VLC Player Access on Apple Devices</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-13t-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/3-steps-to-create-professional-gopro-vlogs-ultimate-tutorial/"><u>3 Steps to Create Professional Gopro Vlogs Ultimate Tutorial</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/an-experts-guide-to-accumulating-mass-tiktok-videos-effortlessly-for-2024/"><u>An Expert's Guide to Accumulating Mass TikTok Videos Effortlessly for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-image-dimension-changes-for-pcs-and-macbooks/"><u>Mastering Image Dimension Changes for PCs and MacBooks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/secrets-to-stunning-fisheye-sphere-photography-for-2024/"><u>Secrets to Stunning Fisheye Sphere Photography for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-strategies-leveraging-chatgpt-with-the-wolfram-alpha-extension/"><u>Top Strategies: Leveraging ChatGPT with the Wolfram Alpha Extension</u></a></li>
 </ul></div>
 

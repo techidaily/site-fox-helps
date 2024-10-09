@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Tips for Staying Positive in the Face of Critical YouTube Comments"
-date: 2024-10-01T02:06:26.214Z
-updated: 2024-10-03T16:27:35.221Z
+date: 2024-10-08T16:10:20.649Z
+updated: 2024-10-09T16:43:37.222Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ YouTube comments are an opportunity for the site's 1.7 million unique monthly vi
 Not only does it show your fans followers that you care about what they have to say, engaging with comments has they have to say, engaging with comments has the added benefit of boosting you in the YouTube algorithm. Videos with lots of likes, replies and moderation tend to show up higher in search results.
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Advantage of YouTube comments
 
@@ -80,22 +87,15 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 ![sign in youtube account](https://images.wondershare.com/filmora/article-images/2022/11/sign-in-youtube-account.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
 
@@ -107,13 +107,6 @@ Step5 To edit your comment, click on the “vertical ellipsis” (three vertical
 
 Step6 Make the necessary edits and choose “Save”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Highlighted Comments and Replies on YouTube
 
 Among the comments you see on a video, you might notice some that YouTube has labeled “Highlighted Comment.” that label is specific to you, and only appears in your comments list. YouTube that you have a particular interest in a section of comments.
@@ -121,6 +114,13 @@ Among the comments you see on a video, you might notice some that YouTube has la
 For example, you might click on a notification, and YouTube takes you to a particular video. Then, when somebody else views and leaves a comment on that video, YouTube will often add the “Highlighted Comment” label on the comment to make it easy for you to spot it when you next go back to that video.
 
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Deleting YouTube Comments?
 
@@ -141,10 +141,10 @@ Comments history also contains the link to the video where you've left the comme
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -183,22 +183,17 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-expert-strategies-for-an-engaging-zoom-youtube-live-session/"><u>[New] 2024 Approved Expert Strategies for an Engaging Zoom YouTube Live Session</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-drive-dynamics-compiling-the-top-10-windows-and-mac-srt-mods/"><u>[New] In 2024, Drive Dynamics Compiling the Top 10 Windows & Mac SRT Mods</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-sony-bdp-s3700-review-latest-update-summary/"><u>[New] In 2024, Sony BDP-S3700 Review Latest Update Summary</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-inspiring-ideas-gratis-graphics-for-your-channel/"><u>[New] Inspiring Ideas Gratis Graphics for Your Channel</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-12-best-html5-video-players-you-should-know/"><u>[Updated] 12 Best Html5 Video Players You Should Know</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-enhance-performance-with-macos-sierra-upgrade/"><u>[Updated] 2024 Approved Enhance Performance with MacOS Sierra Upgrade</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-demystifying-the-world-of-youtube-and-its-keywords-for-2024/"><u>[Updated] Demystifying the World of YouTube and Its Keywords for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-from-basics-to-mastery-unveiling-timelapse-shooting-techniques-with-gopro-for-2024/"><u>[Updated] From Basics to Mastery Unveiling Timelapse Shooting Techniques with GoPro for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-speed-demos-like-video-duo-for-rapid-growth/"><u>[Updated] In 2024, Instagram Speed Demos Like-Video Duo for Rapid Growth</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-master-the-meter-elevate-your-instagram-metrics-by-1kmnth/"><u>[Updated] In 2024, Master the Meter Elevate Your Instagram Metrics by 1K/Mnth</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-step-by-step-garageband-tutorial-for-podcast-creation/"><u>[Updated] Step-by-Step GarageBand Tutorial for Podcast Creation</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-10-virtual-reality-headgear-for-smartphones-for-2024/"><u>Best 10 Virtual Reality Headgear for Smartphones for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-approaches-to-background-blanketing-in-affinity-photo-for-2024/"><u>Innovative Approaches to Background Blanketing in Affinity Photo for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/synching-release-timings-to-audience-trends-for-2024/"><u>Synching Release Timings to Audience Trends for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-allure-of-tech-mastery-a-detailed-look-at-the-samsung-galaxy-watchs-style-and-innovation/"><u>The Allure of Tech Mastery: A Detailed Look at the Samsung Galaxy Watch's Style & Innovation</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/thriving-on-the-grid-maximizing-your-telegram-impact-for-2024/"><u>Thriving on the Grid Maximizing Your Telegram Impact for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-alienware-aurora-r11-reigns-supreme-in-2nnd-anniversary-pc-review/"><u>Why the Alienware Aurora R11 Reigns Supreme in 2Nnd-Anniversary PC Review!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-analyzing-major-editions-and-phases-of-windows-movie-maker/"><u>[New] Analyzing Major Editions and Phases of Windows Movie Maker</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-clearer-eliminate-backgrounds-effectively/"><u>[Updated] Ultimate Clearer Eliminate Backgrounds Effectively</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/1-say-goodbye-to-messy-inboxes-with-a-simple-strategy-manage-and-organize-without-extra-emails/"><u>1. Say Goodbye to Messy Inboxes with a Simple Strategy: Manage and Organize Without Extra Emails!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-the-innovations-in-iphone-xs-imaging-system/"><u>2024 Approved Discover the Innovations in iPhone X's Imaging System</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-dive-into-the-world-of-time-lagged-footage-with-these-android-tips/"><u>2024 Approved Dive Into the World of Time-Lagged Footage with These Android Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-introduction-to-av1-encoding-techniques/"><u>2024 Approved Introduction to AV1 Encoding Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta/"><u>2024 Approved Mastering the Art of Soundtrack Posts A Copyright Primer for Insta</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pajama-plots-and-prose-critical-review-of-childrens-videos/"><u>2024 Approved Pajama Plots and Prose Critical Review of Children's Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-what-are-the-best-sites-to-download-text-effects/"><u>2024 Approved What Are The Best Sites To Download Text Effects?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/achieve-professionalism-in-sims-4-videography/"><u>Achieve Professionalism in Sims 4 Videography</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpts-boundaries-explored-unanswerable-questions-and-tasks-in-focus/"><u>ChatGPT's Boundaries Explored: Unanswerable Questions and Tasks in Focus</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oneplus-ace-2v-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track OnePlus Ace 2V Location by Number | Dr.fone</u></a></li>
 </ul></div>
 

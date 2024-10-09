@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Spectrum Signatures  Filmmaker's Guide to Adjustment\""
-date: 2024-09-16T20:54:52.850Z
-updated: 2024-09-22T19:41:07.465Z
+date: 2024-10-08T16:42:12.886Z
+updated: 2024-10-09T16:12:44.368Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
@@ -97,6 +104,13 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2Select the specific video portion
 
 #####
@@ -105,9 +119,23 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3Apply the color correction preset that you want then click ok
 
@@ -201,12 +229,21 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-spark-interest-fast-unique-bios-and-hashtags-for-tinder-success/"><u>[New] 2024 Approved Spark Interest Fast Unique Bios and Hashtags for Tinder Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-identifying-premium-hdr-camera-options/"><u>[New] Identifying Premium HDR Camera Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pro-vlc-top-10-hidden-player-powers-for-2024/"><u>[New] Pro-VLC Top 10 Hidden Player Powers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-freed-images-public-domain-canvas/"><u>2024 Approved Freed Images Public Domain Canvas</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beating-the-pressure-with-conversational-ai-insights-from-chatgpt/"><u>Beating the Pressure with Conversational AI: Insights From ChatGPT</u></a></li>
+<li><a href="https://driver-error.techidaily.com/comprehensive-walkthrough-uninstalling-graphics-driver-in-safe-mode-on-window-8-systems/"><u>Comprehensive Walkthrough: Uninstalling Graphics Driver in Safe Mode on Window 8 Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-windows-10s-best-new-applications-and-games/"><u>Explore Windows 10'S Best New Applications & Games</u></a></li>
+<li><a href="https://app-tips.techidaily.com/exploring-rusts-role-in-linux-projects-with-linus-torvalds-a-glimpse-into-his-routine-and-macbook-experience-zdnet/"><u>Exploring Rust's Role in Linux Projects with Linus Torvalds: A Glimpse Into His Routine and MacBook Experience - ZDNet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-infuse-your-iphone-pics-with-movement/"><u>How to Infuse Your iPhone Pics with Movement</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-honor-90-pro-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Honor 90 Pro Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-v30-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Realme V30 Phone without Any Data Loss</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-ensure-lasting-tiktok-videos-proper-saving-on-phones/"><u>In 2024, Ensure Lasting TikTok Videos Proper Saving on Phones</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-poco-c50-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-11-text-duplication-mishap/"><u>Windows 11 Text Duplication Mishap</u></a></li>
+</ul></div>
 

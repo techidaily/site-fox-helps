@@ -1,7 +1,7 @@
 ---
 title: "The Art of Blending Primary Footage with B Roll"
-date: 2024-09-29T00:23:12.067Z
-updated: 2024-10-03T21:09:25.033Z
+date: 2024-10-02T17:09:47.164Z
+updated: 2024-10-09T16:24:02.029Z
 tags: 
   - screen-recording
   - ai video
@@ -45,15 +45,22 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
@@ -61,10 +68,10 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
@@ -72,16 +79,10 @@ Aerial B roll is the solution when you like to show your viewers where your film
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
@@ -107,13 +108,6 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -149,21 +143,22 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-10-iconic-beauty-personalities-to-follow-on-youtube/"><u>[New] 2024 Approved 10 Iconic Beauty Personalities to Follow on YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-discovering-hidden-gems-time-lapse-photography-on-hero5-black/"><u>[New] 2024 Approved Discovering Hidden Gems Time-Lapse Photography on Hero5 Black</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-honoring-artistry-essential-stop-motion-movies-top-15/"><u>[New] Honoring Artistry Essential Stop-Motion Movies (Top 15)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-key-platforms-ranking-the-best-6-sites-for-business-interaction/"><u>[New] Key Platforms Ranking the Best 6 Sites for Business Interaction</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-boost-podcast-visibility-through-strategic-seo-tactics/"><u>[Updated] Boost Podcast Visibility Through Strategic SEO Tactics</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-elevate-your-chuckles-kapwings-meme-designer-for-2024/"><u>[Updated] Elevate Your Chuckles Kapwing's Meme Designer for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-envisioning-the-future-strategies-for-metaverse-brands/"><u>[Updated] Envisioning the Future Strategies for Metaverse Brands</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-creative-chip-success-editors-flourish-on-m1/"><u>[Updated] In 2024, Creative Chip Success Editors Flourish on M1</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-macs-visual-excellence-10-list-of-ultimate-screens/"><u>[Updated] In 2024, Mac's Visual Excellence #10 List of Ultimate Screens</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unleash-potential-with-hero5-black-perfecting-cinematography-skills/"><u>[Updated] In 2024, Unleash Potential with Hero5 Black Perfecting Cinematography Skills</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-figure-skating-highlights-2022-winter-olympics/"><u>2024 Approved Figure Skating Highlights 2022 Winter Olympics</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-many-viewer-thumbs-up-equals-money-youtube-tips/"><u>2024 Approved How Many Viewer Thumbs Up Equals Money? YouTube Tips</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-xiaomi-redmi-note-12-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Xiaomi Redmi Note 12 5G Unlock Without Password</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-embrace-automatic-transcription-for-engaging-presentations/"><u>In 2024, How to Embrace Automatic Transcription for Engaging Presentations</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intel-usb-30-driver-download-for-windows-11-latest-version/"><u>Intel USB 3.0 Driver Download for Windows 11 - Latest Version</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/be-to-audio-gold-prime-10-converter-hits/"><u>YouTube to Audio Gold Prime 10 Converter Hits</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-az-capture-extraordinaire-thorough-app-reviews/"><u>[New] AZ Capture Extraordinaire Thorough App Reviews</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-film-star-access-pass-talent-release/"><u>[New] Film Star Access Pass - Talent Release</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-follow-up-formula-climbing-to-1k-monthly-instagram-likes/"><u>[New] In 2024, The Follow-Up Formula Climbing to 1K Monthly Instagram Likes</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-step-by-step-process-to-revamp-your-youtube-audio-tracks/"><u>[New] Step-by-Step Process to Revamp Your YouTube Audio Tracks</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-present-day-drones-and-their-upcoming-role-evolution/"><u>[Updated] 2024 Approved Present-Day Drones and Their Upcoming Role Evolution</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transforming-business-with-metaverse-ideas/"><u>[Updated] Transforming Business with Metaverse Ideas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-high-staking-rituals-player-views/"><u>2024 Approved HIGH-STAKING RITUALS Player Views</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-precision-sound-transmitter-for-casters/"><u>2024 Approved Precision Sound Transmitter for Casters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-professionals-drone-guide-top-5-recommendations-inside/"><u>2024 Approved Professionals’ Drone Guide - Top 5 Recommendations Inside</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-selecting-the-perfect-day-for-podcast-drops/"><u>2024 Approved Selecting the Perfect Day for Podcast Drops</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-list-of-3d-animation-and-modelling-programs/"><u>2024 Approved The Ultimate List of 3D Animation and Modelling Programs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-toolwiz-visualize-a-comprehensive-2023-evaluation/"><u>2024 Approved Toolwiz Visualize - A Comprehensive 2023 Evaluation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-zenith-prodigy-workshop-scrutiny/"><u>2024 Approved Zenith Prodigy Workshop Scrutiny</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/anonymous-streaming-on-instagram-your-ultimate-guide-to-go-incognito/"><u>Anonymous Streaming on Instagram Your Ultimate Guide to Go Incognito</u></a></li>
+<li><a href="https://techtrends.techidaily.com/best-internet-gateway-device-choices-modems-with-routers-2024-edition/"><u>Best Internet Gateway Device Choices: Modems with Routers, 2024 Edition</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oneplus-open-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on OnePlus Open Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-vivo-v29-pro-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo V29 Pro</u></a></li>
 </ul></div>
 

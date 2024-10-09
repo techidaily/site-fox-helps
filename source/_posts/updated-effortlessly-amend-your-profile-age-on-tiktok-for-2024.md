@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Effortlessly Amend Your Profile Age on TikTok for 2024"
-date: 2024-09-20T20:07:03.140Z
-updated: 2024-09-22T20:13:28.349Z
+date: 2024-10-03T16:13:12.964Z
+updated: 2024-10-09T16:39:05.560Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ Since TikTok has removed the feature to edit your birthdate from its app, you wi
 
 ![select settings and privacy](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Now navigate to the "Support & About" section and tap “Report a Problem.” Press "Account and Profile" on the next screen and tap "Editing Profile."
 
 ![select report a problem option](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-3.jpg)
@@ -50,6 +57,13 @@ Since TikTok has removed the feature to edit your birthdate from its app, you wi
 **Step 3:** Here, choose "Other," and on the next window, press “Need More Help?” It will open a feedback form where you can mention your problem and request the support team to solve it.
 
 ![tap on need more help](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Way 2: Create a New TikTok Account to Change Your Age (Not-Recommended)
 
@@ -70,16 +84,10 @@ If you are underage, you should not try to create a new account with a false age
 ![select social media to sign up](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: TikTok Video Editor – Filmora for Mobile
@@ -94,6 +102,13 @@ With its help, you can trim clips, add transition effects, insert music, and cha
 
 We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Protecting underage teens and kids from the negative side of the internet is important. A simple online search can show many examples where harmful TikTok content affected minors to the extent of severe physical injuries. Thus, you should only learn **how to change your age on TikTok** if you are older than 16.
@@ -103,10 +118,10 @@ Protecting underage teens and kids from the negative side of the internet is imp
 We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,10 +139,10 @@ Protecting underage teens and kids from the negative side of the internet is imp
 ![filmora for mobile features](https://images.wondershare.com/filmora/article-images/2023/02/how-to-change-age-on-tiktok-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 We have prepared you a video to help you better start your video editing journey with Filmora! If you any interests, please don’t miss it:
@@ -158,5 +173,24 @@ Protecting underage teens and kids from the negative side of the internet is imp
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-steer-clear-of-soundtracked-sessions-how-to-mute-participants-in-gomeet/"><u>[New] 2024 Approved Steer Clear of Soundtracked Sessions How to Mute Participants in GoMeet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-utilize-picture-in-picture-mode-efficiently-in-safari/"><u>[New] 2024 Approved Utilize Picture In Picture Mode Efficiently in Safari</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-audio-dimming-the-live-approach/"><u>[New] Audio Dimming The Live Approach</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-design-memes-in-adobe/"><u>[New] Design Memes in Adobe</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-smooth-integration-of-macos-sierra-on-old-systems/"><u>[New] In 2024, Smooth Integration of macOS Sierra on Old Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mac-windows-vmx-substitute-for-2024/"><u>[New] Mac-Windows VMX Substitute for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-resolve-vanished-watch-video-icon-issue-2023/"><u>[New] Resolve Vanished Watch Video Icon Issue, 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-workings-of-drones-an-introduction-for-beginners-for-2024/"><u>[New] The Workings of Drones An Introduction for Beginners for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-a-nostalgic-journey-through-time-with-stop-motion-classics-for-2024/"><u>[Updated] A Nostalgic Journey Through Time with Stop-Motion Classics for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-frame-rate-conversion-20mb-video-specs-for-2024/"><u>[Updated] Frame Rate Conversion 20MB Video Specs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/artists-rejoice-a-detailed-look-at-the-huion-kamvas-gt-191-tablet-more-than-just-a-pen-display/"><u>Artists Rejoice: A Detailed Look at the Huion Kamvas GT-191 Tablet – More Than Just a Pen Display</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-asus-rog-phone-8-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Asus ROG Phone 8 Pro</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-steps-to-download-netflix-films-onto-your-laptop/"><u>Guide: Steps to Download Netflix Films Onto Your Laptop</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-expand-your-gameplay-leading-xbox-drives-reviewed/"><u>In 2024, Expand Your Gameplay Leading Xbox Drives Reviewed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-s24plus-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy S24+ to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/securing-voice-chat-via-xbox-mic-on-windows-11-screens/"><u>Securing Voice Chat via Xbox Mic on Windows 11 Screens</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/speedy-setup-tutorial-latest-version-of-wacom-intuos-brush-manager/"><u>Speedy Setup Tutorial: Latest Version of Wacom Intuos Brush Manager</u></a></li>
+</ul></div>
 
