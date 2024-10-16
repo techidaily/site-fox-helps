@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Leveraging Secondary Footage for Enhanced Storytelling\""
-date: 2024-09-15T20:22:30.144Z
-updated: 2024-09-22T17:14:38.477Z
+date: 2024-10-09T22:48:19.346Z
+updated: 2024-10-15T20:29:33.625Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
@@ -57,27 +64,20 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -86,10 +86,10 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -101,6 +101,19 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -134,5 +147,26 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-add-videos-to-youtube-playlist/"><u>[New] 2024 Approved Add Videos to YouTube Playlist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-how-much-wealth-awaits-one-million-youtube-followers/"><u>[New] 2024 Approved How Much Wealth Awaits One Million YouTube Followers?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-concept-to-reality-polarr-photo-editor-simplified-for-2024/"><u>[New] From Concept to Reality Polarr Photo Editor Simplified for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-depth-review-the-leading-15-tripodsmounts-for-gopro-for-2024/"><u>[New] In-Depth Review The Leading 15 Tripods/Mounts for GoPro for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-content-strategy-through-youtube-metrics/"><u>[Updated] 2024 Approved Elevating Content Strategy Through YouTube Metrics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-google-meet-go-live-your-youtube-broadcast-companion/"><u>[Updated] 2024 Approved Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveiling-the-ultimate-hdr-camera-lineup/"><u>[Updated] 2024 Approved Unveiling the Ultimate HDR Camera Lineup</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-harmonizing-volume-dial-down-with-fl-studio-features-for-2024/"><u>[Updated] Harmonizing Volume Dial-Down with FL Studio Features for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-metaverse-shenanigans-a-treasury-of-hilarity-and-creative-memes-for-2024/"><u>[Updated] Metaverse Shenanigans A Treasury of Hilarity and Creative Memes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-scheduling-virtual-gatherings-with-zoom-an-android-users-handbook/"><u>[Updated] Scheduling Virtual Gatherings with Zoom An Android User's Handbook</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722859202980-evaluating-the-value-of-minecraft-realms-for-players/"><u>Evaluating the Value of Minecraft Realms for Players</u></a></li>
+<li><a href="https://driver-install.techidaily.com/free-easy-installs-canon-printer-drivers-on-pcs/"><u>Free, Easy Installs: Canon Printer Drivers on PCs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/high-performance-graphics-displayed-by-asus-proart-for-2024/"><u>High-Performance Graphics Displayed by ASUS ProArt for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-decoding-the-appeal-what-makes-you-love-filmora-editing/"><u>In 2024, Decoding the Appeal What Makes You Love Filmora Editing?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-snapchat-audio-ensuring-whole-video-playback-every-time/"><u>In 2024, Snapchat Audio Ensuring Whole Video Playback Every Time</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/leveraging-snapchat-for-professional-networking-and-sales-for-2024/"><u>Leveraging Snapchat for Professional Networking & Sales for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/postoperative-monitoring-for-signs-of-infection-or-inflammation-is-crucial-after-ocular-trauma-treatment/"><u>Postoperative Monitoring for Signs of Infection or Inflammation Is Crucial After Ocular Trauma Treatment</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unbeatable-prices-for-top-6-action-cams-under-100/"><u>Unbeatable Prices for Top 6 Action Cams Under $100</u></a></li>
+</ul></div>
 

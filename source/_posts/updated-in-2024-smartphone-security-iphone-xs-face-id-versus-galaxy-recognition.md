@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Smartphone Security  IPhone X’s Face ID Versus Galaxy Recognition\""
-date: 2024-09-12T22:47:08.783Z
-updated: 2024-09-17T17:50:01.059Z
+date: 2024-10-11T23:00:14.028Z
+updated: 2024-10-16T00:28:22.237Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
@@ -71,16 +78,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Safety Issue
@@ -93,22 +94,29 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -133,5 +141,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-vibrant-visions-a-guide-through-the-top-5-color-tvs/"><u>[New] In 2024, Vibrant Visions A Guide Through the Top 5 Color TVs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-tips-for-obtaining-pristine-images-at-no-cost-for-2024/"><u>[New] Top Tips for Obtaining Pristine Images at No Cost for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-elite-10-drone-fleet-capturing-visuals-in-new-light-for-2024/"><u>[Updated] Elite 10-Drone Fleet Capturing Visuals in New Light for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-perfecting-your-podcast-name-strategies-and-ideas/"><u>[Updated] In 2024, Perfecting Your Podcast Name Strategies and Ideas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-jest-jar-your-best-free-meme-source/"><u>[Updated] Jest Jar Your Best Free Meme Source</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-capture-gaming-sessions-in-hd-using-obs/"><u>2024 Approved Capture Gaming Sessions in HD - Using OBS</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-gaming-experience-with-newest-geforce-rtx-3080-ti-drivers-for-windows-11-8-and-7/"><u>Enhance Gaming Experience with Newest GeForce RTX 3080 Ti Drivers for Windows 11, 8 & 7</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-reactivate-speech-recognition-on-microsofts-latest-os/"><u>How to Reactivate Speech Recognition on Microsoft's Latest OS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-online-money-tally-for-youtube-creators/"><u>In 2024, Online Money Tally for YouTube Creators</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/inshots-playlist-prowess-adding-external-music/"><u>InShot's Playlist Prowess Adding External Music</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mint-memes-of-merriment-for-2024/"><u>Mint Memes of Merriment for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/plot-craft-guild-bestowed-batch/"><u>Plot Craft Guild - Bestowed Batch</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/selecting-the-optimal-mac-microphone-recorders-our-expert-picks-of-5-for-2024/"><u>Selecting the Optimal Mac Microphone Recorders Our Expert Picks of 5 for 2024</u></a></li>
+</ul></div>
 

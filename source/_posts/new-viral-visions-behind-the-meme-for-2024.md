@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Viral Visions  Behind the Meme for 2024\""
-date: 2024-09-16T18:19:03.786Z
-updated: 2024-09-22T16:35:11.574Z
+date: 2024-10-13T17:25:27.333Z
+updated: 2024-10-15T22:37:18.818Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ The original photo is the work of Antonio Guillem, who uploaded it on iStock in 
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
 Since then, the meme continues to enjoy mass popularity, including:
@@ -83,11 +90,25 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
@@ -97,6 +118,13 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 ## Part4: Bonjour Bear
@@ -104,10 +132,10 @@ Twitter user @chocos posts the image with Spanish captions, with the woman sure 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
@@ -118,26 +146,12 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
 * A Reddit post by Poonswoggle from April 2020 received 36,500 points within three months. In this version, the user references his struggle with sleeping because of repressed memories.
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part5: FAQs
 
@@ -146,6 +160,13 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
@@ -185,5 +206,26 @@ Therefore, always perform stock image reverse searches to verify the image permi
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-tonal-transformation-for-android-users/"><u>[New] 2024 Approved The Ultimate Tonal Transformation for Android Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-constructing-captivating-podcast-vignettes/"><u>[New] Constructing Captivating Podcast Vignettes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-expert-strategies-for-video-enhancement-vce-22-deep-dive/"><u>[Updated] 2024 Approved Expert Strategies for Video Enhancement - VCE 2.2 Deep Dive</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-where-innovation-meets-vr-watching/"><u>[Updated] 2024 Approved Where Innovation Meets VR Watching</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-a-compreous-guide-to-recording-and-securing-periscope-videos/"><u>[Updated] A Compreous Guide to Recording & Securing Periscope Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-professional-edits-including-sounds-in-premiere-projects-for-2024/"><u>[Updated] Crafting Professional Edits Including Sounds in Premiere Projects for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-inside-metaverse-how-to-build-memes-that-pop-online/"><u>[Updated] Inside Metaverse How to Build Memes That Pop Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-virtual-cosmos-navigating-10-cinematic-worlds-in-science-fiction/"><u>[Updated] Virtual Cosmos Navigating 10 Cinematic Worlds in Science Fiction</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-mp4-video-download-companion-booklet/"><u>2024 Approved MP4 Video Download Companion Booklet</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-in-class-text-tracking-and-animation-software-2023/"><u>Best in Class Text Tracking and Animation Software 2023</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/frequently-asked-questions-essential-insights-on-purchasing-winx-dvd-video-editing-software/"><u>Frequently Asked Questions: Essential Insights on Purchasing WinX DVD Video Editing Software</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-lenovo-thinkphone-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Lenovo ThinkPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestones-a-decade-of-language-revolution/"><u>Mondly Milestones - A Decade of Language Revolution</u></a></li>
+<li><a href="https://win-net.techidaily.com/resolving-the-dilemma-steps-to-solve-airdrop-hanging-in-limbo-on-your-apple-devices/"><u>Resolving the Dilemma: Steps to Solve Airdrop Hanging in Limbo on Your Apple Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/solving-obs-fullscreen-glitches/"><u>Solving OBS Fullscreen Glitches</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/streamers-choice-should-you-opt-for-vlc-or-mpc/"><u>Streamer's Choice Should You Opt for VLC or MPC?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/syncopating-sounds-how-to-edit-music-effectively-in-canva/"><u>Syncopating Sounds How to Edit Music Effectively in Canva</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/unlimited-tiktok-videos-no-watermarks-free-downloads-for-2024/"><u>Unlimited TikTok Videos No Watermarks, Free Downloads for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/video-editing-in-apple-m1-macbook-air/"><u>Video Editing in Apple M1 MacBook Air</u></a></li>
+</ul></div>
 

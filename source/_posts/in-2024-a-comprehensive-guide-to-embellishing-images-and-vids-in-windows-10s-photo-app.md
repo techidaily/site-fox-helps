@@ -1,7 +1,7 @@
 ---
 title: "In 2024, A Comprehensive Guide to Embellishing Images and Vids in Windows 10'S Photo App"
-date: 2024-10-03T17:31:42.986Z
-updated: 2024-10-09T16:47:36.698Z
+date: 2024-10-12T17:51:12.562Z
+updated: 2024-10-15T21:21:03.011Z
 tags: 
   - screen-recording
   - ai video
@@ -57,16 +57,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -80,31 +74,31 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -113,10 +107,16 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -144,21 +144,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlock-8-youtube-fitness-ideas-for-viewers-active-participation/"><u>[New] 2024 Approved Unlock 8 YouTube Fitness Ideas for Viewers' Active Participation</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-cutting-edge-teamblend-skills-for-smoothed-conferencing-borders/"><u>[New] Cutting-Edge Teamblend Skills for Smoothed Conferencing Borders</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-from-jumble-to-flow-kinemasters-editing-masterclass-for-2024/"><u>[New] From Jumble to Flow Kinemaster's Editing Masterclass for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-install-and-upgrade-guide-to-the-latest-macos-sierra-for-2024/"><u>[New] Install and Upgrade Guide to the Latest macOS Sierra for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-steadicams-to-elevate-your-dslr-filming-capabilities/"><u>[New] Top Steadicams to Elevate Your DSLR Filming Capabilities</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/1716069477108-updated-2024-approved-effortlessly-create-a-cross-platform-conversation-space-on-skype-a-detailed-manual-for-users-of-all-os-platforms/"><u>[Updated] 2024 Approved Effortlessly Create a Cross-Platform Conversation Space on Skype A Detailed Manual for Users of All OS Platforms.</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unparalleled-vr-game-setups-top-8-edition/"><u>[Updated] 2024 Approved Unparalleled VR Game Setups Top 8 Edition</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-how-to-add-stickers-to-instagram-story-and-post/"><u>[Updated] How to Add Stickers to Instagram Story and Post?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exhaustive-breakdown-of-vsco-photography-tool/"><u>[Updated] In 2024, Exhaustive Breakdown of VSCO Photography Tool</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-spotlight-on-8-trusted-youtube-growth-services/"><u>[Updated] Spotlight on 8 Trusted Youtube Growth Services</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/how-to-smoothly-transition-sounds-with-audition/"><u>How to Smoothly Transition Sounds with Audition</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-comprehensive-examination-the-future-of-photography-with-aurora-hdr/"><u>In 2024, Comprehensive Examination The Future of Photography with Aurora HDR?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-color-grading-with-ease-a-compreranble-guide-for-pscc-users/"><u>In 2024, Mastering Color Grading with Ease A Compreranble Guide for PSCC Users</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-professional-grade-8-filters-for-live-feeds/"><u>In 2024, Professional-Grade 8 Filters for Live Feeds</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/masterful-fb-watching-essential-top-10-players-for-2024/"><u>Masterful FB Watching Essential Top 10 Players for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-s17-pro-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo S17 Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-digital-file-migration-guide-for-devices-for-2024/"><u>[New] Digital File Migration Guide for Devices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-basic-strategy-revamping-fishy-windowspeak/"><u>[New] In 2024, Basic Strategy Revamping Fishy Windowspeak</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-learning-managing-incremental-sound-gain/"><u>[New] In 2024, Essential Learning Managing Incremental Sound Gain</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tips-for-transforming-twitter-videos-into-audio-songs-mp3/"><u>[New] Tips for Transforming Twitter Videos Into Audio Songs (MP3)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-vintage-visions-post-copyright-era/"><u>[Updated] Vintage Visions Post-Copyright Era</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-record-and-evaluate-speech-files/"><u>2024 Approved Record & Evaluate Speech Files</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/crafting-an-offline-windows-update-plan/"><u>Crafting an Offline Windows Update Plan</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-compreehing-and-engaging-with-your-twitter-archive/"><u>In 2024, Compreehing & Engaging with Your Twitter Archive</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-compendium-for-professionals-in-vivacut-video-editing/"><u>In 2024, The Ultimate Compendium for Professionals in VivaCut Video Editing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-list-of-12-sound-editing-software-options-beyond-audacity/"><u>The Ultimate List of 12 Sound Editing Software Options Beyond Audacity</u></a></li>
 </ul></div>
 

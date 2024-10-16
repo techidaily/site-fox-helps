@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unzip the Scripts  Crafting Subtitles From Compressed Files\""
-date: 2024-09-19T16:34:14.698Z
-updated: 2024-09-22T19:48:36.458Z
+date: 2024-10-08T21:33:47.684Z
+updated: 2024-10-15T21:23:07.127Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ The main reason why .srt subtitle files of a movie are provided in zip files is 
 
 Since you now understand that it's impossible to convert .zip to .srt, the big question is how do you get SRT file out of ZIP? Well, read on to find an answer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Get SRT file in a Zip File without software
 
 There are several reasons ways to get SRT file in a Zip file, and amazingly, you can do so without software. Yes, all you just have to do is to unzip the zip file and extract the SRT file itself.
@@ -70,10 +77,10 @@ Step4 Finally, hit the ‘Save’ button right in front of the SRT file to save 
 ![hit save button](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Extract SRT file in a Zip File on Android or Ios
@@ -92,13 +99,6 @@ Step3 Tap on the ZIP file to preview its content. Then tap ‘Extract’ to extr
 
 ![tap extract to extract srt files](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Finally, tap on ‘Done’ to complete the process.
 
 **For iPhone**
@@ -114,6 +114,13 @@ Step2 Hold down the ZIP file and select ‘Quick Look’ from the pop-up list > 
 Step3 Now, locate the SRT file and use the Share icon at the bottom left corner of your screen to save it to your device. You can open the SRT file afterward!
 
 ![save srt file](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: The Best Way to Edit SRT Subtitles After Extracting them in a Zip
 
@@ -142,6 +149,19 @@ Step2 Use the ‘Import’ button to upload fbe SRT file on your computer or jus
 
 ![use import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced Edit’.
 
 ![select advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-2.jpg)
@@ -155,10 +175,10 @@ Step5 After you've completed the editing process, right-click on the ‘SRT’ f
 ![right click on srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -173,6 +193,13 @@ The main reason why .srt subtitle files of a movie are provided in zip files is 
 
 Since you now understand that it's impossible to convert .zip to .srt, the big question is how do you get SRT file out of ZIP? Well, read on to find an answer.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Get SRT file in a Zip File without software
 
 There are several reasons ways to get SRT file in a Zip file, and amazingly, you can do so without software. Yes, all you just have to do is to unzip the zip file and extract the SRT file itself.
@@ -239,13 +266,6 @@ Step3 Now, locate the SRT file and use the Share icon at the bottom left corner 
 
 ![save srt file](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: The Best Way to Edit SRT Subtitles After Extracting them in a Zip
 
 After you’ve successfully extracted your SRT subtitle from the zip, you might need to edit it to your requirements. In such a case, you need efficient software for that, and [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is the right one for you.
@@ -262,6 +282,13 @@ The software is very straightforward to utilize, and another excellent thing is 
 * Support Subtitles in various languages besides English.
 * Boasts a very clean interface that makes it easy to operate by all users.
 * Lightweight software and it doesn't compromise computer functionality.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Edit SRT with Filmora Software
 
@@ -281,16 +308,16 @@ Step4 Edit the SRT file according to your requirements. You can edit time.code, 
 
 ![edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 After you've completed the editing process, right-click on the ‘SRT’ file from the timeline. Then, choose ‘Export Subtitle File’ from the pop-up list and save it the SRT file to a preferred location on your computer.
 
 ![right click on srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -320,5 +347,24 @@ The article above has covered everything about converting zip to srt with or wit
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-10-memetic-design-innovators-choices/"><u>[New] 2024 Approved 10 Memetic Design Innovators' Choices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tough-titans-tangle-choosing-between-t5-and-sjcam-s6/"><u>[New] 2024 Approved Tough Titans Tangle Choosing Between T5 and SJCAM S6</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-forging-a-future-in-artistic-expression-and-commerce-for-2024/"><u>[New] Forging a Future in Artistic Expression and Commerce for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlock-the-full-potential-of-facebook-the-best-5-chrome-extensions/"><u>[New] In 2024, Unlock the Full Potential of Facebook The Best 5 Chrome Extensions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pro-level-hdr-mastery-your-compre-point-of-entry/"><u>[New] Pro Level HDR Mastery Your Compre Point of Entry</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-createcinema-win8-edition-for-2024/"><u>[Updated] CreateCinema Win8 Edition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-explore-the-top-10-websites-for-no-fee-images/"><u>[Updated] Explore the Top 10 Websites for No-Fee Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-path-to-youtube-stardom-utilizing-sony-vegas-for-professional-cuts-for-2024/"><u>[Updated] The Path to YouTube Stardom Utilizing Sony Vegas for Professional Cuts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-blur-free-photography-ranked-10-best-web-editing-tools/"><u>2024 Approved Blur-Free Photography Ranked 10 Best Web Editing Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-art-of-incorporating-s2t-features-into-ppt/"><u>2024 Approved The Art of Incorporating S2T Features Into PPT</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/6-strong-reasons-ios-app-superiority-in-gpt-domain/"><u>6 Strong Reasons: IOS App Superiority in GPT Domain</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/guida-rapida-al-passaggio-dei-file-da-un-microsd-allaltro-senza-problemi/"><u>Guida Rapida Al Passaggio Dei File Da Un microSD All'altro Senza Problemi</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-revolutionary-entry-tool-for-all-devices-this-year/"><u>In 2024, Revolutionary Entry Tool for All Devices This Year</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transforming-text-the-illustrator-3d-approach/"><u>In 2024, Transforming Text The Illustrator 3D Approach</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/maximize-mac-data-a-deep-dive-into-the-best-recovery-software/"><u>Maximize Mac Data: A Deep Dive Into the Best Recovery Software</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/resolve-wd-my-cloud-on-windows-10-issues-discover-12-effective-solutions/"><u>Resolve WD My Cloud on Windows 10 Issues? Discover 12 Effective Solutions!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/social-media-excellence-a-practical-approach-for-2024/"><u>Social Media Excellence A Practical Approach for 2024</u></a></li>
+</ul></div>
 

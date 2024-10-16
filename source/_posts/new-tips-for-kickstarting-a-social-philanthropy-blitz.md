@@ -1,7 +1,7 @@
 ---
 title: "[New] Tips for Kickstarting a Social Philanthropy Blitz"
-date: 2024-10-05T16:21:49.546Z
-updated: 2024-10-09T16:37:02.316Z
+date: 2024-10-10T18:50:06.219Z
+updated: 2024-10-15T22:14:58.456Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ Really think about what your target audience would find useful or fun, and choos
 
 ![facebook rules for giveaway](https://images.wondershare.com/filmora/article-images/2022/11/facebook-rules-for-giveaway.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When hosting a giveaway on Facebook, it's important to make sure that you are compliant with their rules. Otherwise, your giveaway could be shut down and you could be at risk of being banned from the platform. Here are a few things to keep in mind:
 
 * You must use a third-party app to host your giveaway. Facebook does not allow giveaways to be hosted directly on its platform.
@@ -51,38 +58,39 @@ Following these guidelines will help to ensure that your Facebook giveaway is su
 ![prompt facebook giveaway activity](https://images.wondershare.com/filmora/article-images/2022/11/prompt-facebook-giveaway-activity.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A giveaway is a great way to generate buzz and interest in your product or service. But how do you make sure that people actually see your giveaway? One of the best ways is to promote it on other channels, such as your website or email list. This ensures that your target audience is aware of the giveaway and has a chance to enter.
 
 Additionally, you can use social media to spread the word about your giveaway. By sharing it with your followers and tagging relevant hashtags, you can reach a wider audience and increase the chances of someone taking notice. With a little effort, you can make sure that your next giveaway is a success.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4\. Set a deadline for entering the giveaway
 
 ![set deadline for facebook giveaway](https://images.wondershare.com/filmora/article-images/2022/11/set-deadline-for-facebook-giveaway.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The best way to ensure that your giveaway is successful is to set a deadline for entering. This will help to create a sense of urgency and encourage people to action. It's also important to be clear about what the deadline is.
 
 For example, if you're giving away a prize every day, make sure to specify that entrants must submit their entry by 11:59 PM on the day of the drawing. Finally, don't forget to promote the deadline! Make sure that your social media posts and emails include information about when the giveaway ends.
 
 By taking these simple steps, you can make sure that your giveaway runs smoothly and meets your goals.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5\. Choose a winner randomly from among all entrants
 
@@ -100,19 +108,6 @@ Whichever method you choose, selecting a winner randomly is the best way to ensu
 
 ![contact winner to shipment](https://images.wondershare.com/filmora/article-images/2022/11/contact-winner-to-shipment.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now that you've chosen a winner for your contest, it's time to get their shipping information so you can send them their prize! The good news is that collecting this information is easy - all you need to do is contact the winner and ask for it.
 
 There are a few different ways you can contact the winner. The simplest method is to post a message on the contest page, tagging the winner in the post. This will ensure that they see your message and can respond quickly. You can also send them a direct message if you have their contact information. If not, you can always email them or give them a call.
@@ -120,10 +115,10 @@ There are a few different ways you can contact the winner. The simplest method i
 Once you've got in touch with the winner, just let them know what prize they've won and ask for their shipping address. Most people are happy to provide this information, and it shouldn't take more than a few minutes to collect everything you need. Then you can ship off the prize and everyone will be happy!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 7\. Ship the prize to the winner
@@ -146,22 +141,15 @@ By following these simple steps, you can easily ship prizes to winners without a
 
 ![announce winner on facebook page](https://images.wondershare.com/filmora/article-images/2022/11/announce-winner-on-facebook-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It's time to announce the winners of your latest contest! Make sure to post about it on your Facebook page, and encourage the winners to post a picture with their prize mentioning your page. This is a great way to spread the word about your business and get more people interested in what you have to offer. Plus, it's always nice to give your customers a little extra something to show how much you appreciate their support.
 
 So, go ahead and announce those winners - they're sure to be thrilled, and you're sure to see an uptick in traffic and interest in no time. Thanks for playing!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 9\. Run additional giveaways to keep your fans engaged
@@ -206,21 +194,19 @@ By following these tips, you can run a successful Facebook giveaway that will he
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-best-practices-for-advanced-ae-plug-ins/"><u>[New] In 2024, Best Practices for Advanced AE Plug-Ins</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-vsco-image-enhancement/"><u>[New] Step-by-Step VSCO Image Enhancement</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unleash-creative-potential-using-storyremix-for-windows-11s-photo-videos-for-2024/"><u>[New] Unleash Creative Potential Using StoryRemix for Windows 11'S Photo Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2023-hack-alert-unlocking-your-fb-account/"><u>[Updated] 2023 Hack Alert Unlocking Your FB Account</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-sky-high-speeds-key-moments-in-the-short-tracks-olympics/"><u>[Updated] 2024 Approved Sky-High Speeds Key Moments in the Short Tracks, Olympics</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-best-gaming-streams-a-selection-of-leading-webcams/"><u>[Updated] Best Gaming Streams A Selection of Leading Webcams</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-detailed-review-and-tips-picsart-users/"><u>[Updated] Detailed Review & Tips PicsArt Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-tailoring-your-youtube-videos-with-customized-text-and-link-embeddings/"><u>[Updated] In 2024, Tailoring Your YouTube Videos with Customized Text & Link Embeddings</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-end-to-end-guide-to-picsart/"><u>[Updated] The End-to-End Guide to PicsArt</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-learn-how-to-solve-common-issues-for-youtube-shorts/"><u>2024 Approved Learn How to Solve Common Issues for YouTube Shorts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-review-best-kindle-format-azw3-ebook-readers-available/"><u>Expert Review: Best Kindle Format (.AZW3) eBook Readers Available</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/harnessing-ai-with-ease-your-comprehensive-guide-to-applying-gpt-3-on-the-openai-canvas/"><u>Harnessing AI with Ease: Your Comprehensive Guide to Applying GPT-3 on the OpenAI Canvas</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-tiktok-profile-boost-smartly-insert-linktree-into-about-section/"><u>In 2024, TikTok Profile Boost Smartly Insert Linktree Into About Section</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/integrating-zoom-seamlessly-with-tiktok-live-streams/"><u>Integrating Zoom Seamlessly with TikTok Live Streams</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/rmvb-202/"><u>RMVBファイル強力再生ツールリコメンド - 新しい選択肢202ˈ</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-exodus-uncovering-facebooks-user-drop/"><u>The Hidden Exodus: Uncovering Facebook's User Drop</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-simple-steps-for-clear-ipad-recordings/"><u>[New] 2024 Approved Simple Steps for Clear iPad Recordings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-a-compreshift-guide-to-creating-profitable-and-engaging-youtube-collaborations/"><u>[New] In 2024, A Compreshift Guide to Creating Profitable & Engaging YouTube Collaborations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-sidestep-personalized-podcast-suggestions-in-spotify/"><u>[Updated] 2024 Approved Sidestep Personalized Podcast Suggestions in Spotify</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-automating-your-viewing-on-facebook-a-step-by-step-guide/"><u>2024 Approved Automating Your Viewing on Facebook A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/behind-stock-image-memes-stories-that-stood-the-test-for-2024/"><u>Behind Stock Image Memes Stories That Stood the Test for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/diy-dvd-subtitling-techniques-how-to-force-subtitles-onto-any-movie-for-an-enhanced-viewing-experience/"><u>DIY DVD Subtitling Techniques - How to Force Subtitles Onto Any Movie for an Enhanced Viewing Experience</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-tecno-spark-20-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Tecno Spark 20 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-balancing-width-and-height-for-ultimate-videography/"><u>In 2024, Balancing Width and Height for Ultimate Videography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-elevate-your-photos-free-online-and-app/"><u>In 2024, Elevate Your Photos - FREE Online and App</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-integrating-obs-streams-with-the-worlds-largest-social-network-fb/"><u>In 2024, Integrating OBS Streams with the World's Largest Social Network, FB</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-pursuit-of-perfection-a-complete-sj-cam-s6-review-for-2024/"><u>In Pursuit of Perfection A Complete SJ-CAM S6 Review for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-amazon-fire-hd-10-is-a-perfect-multimedia-choice-for-everyone-in-the-household/"><u>In-Depth Analysis: Why the Amazon Fire HD 10 Is a Perfect Multimedia Choice for Everyone in the Household</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-complete-guide-to-selecting-best-free-srt-translators-online-for-2024/"><u>The Complete Guide to Selecting Best FREE SRT Translators Online for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unveiling-this-years-prime-pc-vr-tech-for-2024/"><u>Unveiling This Year's Prime PC VR Tech for 2024</u></a></li>
 </ul></div>
 

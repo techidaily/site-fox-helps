@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lifting Large Loads - Drone Power Rankings for 2024\""
-date: 2024-09-16T17:52:18.302Z
-updated: 2024-09-17T17:29:24.727Z
+date: 2024-10-14T18:04:38.173Z
+updated: 2024-10-15T22:12:09.444Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
 #### 2\. [DJI S900](https://www.amazon.com/gp/product/B00MEBTDRY/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MEBTDRY&linkId=66e45295337a54bff961119800e62cb4)
@@ -95,6 +102,13 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -113,6 +127,13 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
 #### 4\. [FREEFLY ALTA 8](https://www.amazon.com/gp/product/B01IPYJM8I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IPYJM8I&linkId=94a786b60aab874baf4feb7315107813)
@@ -130,6 +151,13 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -156,18 +184,21 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-creating-captivating-content-for-instagram-for-2024/"><u>[New] Creating Captivating Content for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-exploring-the-best-10-editors-to-craft-professional-reels-for-2024/"><u>[New] Exploring the Best 10 Editors to Craft Professional Reels for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-guiding-through-audio-transition-in-ableton-live/"><u>[Updated] Guiding Through Audio Transition in Ableton Live</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-identifying-the-optimal-cloud-data-vaults/"><u>[Updated] In 2024, Identifying the Optimal Cloud Data Vaults</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-drone-designs-always-on-your-side/"><u>[Updated] Innovative Drone Designs Always on Your Side</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-nocturnal-landscapes-on-your-iphone/"><u>2024 Approved Nocturnal Landscapes on Your iPhone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/deciphering-the-not-found-message-fixing-your-websites-broken-links/"><u>Deciphering the 'Not Found' Message: Fixing Your Website's Broken Links</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exploring-the-best-features-in-the-google-pixel-3-for-authentic-android-users/"><u>Exploring the Best Features in the Google Pixel 3 for Authentic Android Users</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-13-pro-max-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 13 Pro Max Storage Not Loading/Showing | Stellar</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ranking-hexacopter-marvels-10/"><u>In 2024, Ranking Hexacopter Marvels #10</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-gems-from-worldwide-cinemas/"><u>Language Gems From Worldwide Cinemas</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-collection-of-ps5-adornments/"><u>The Ultimate Collection of PS5 Adornments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/youtube-video-upgrades-how-to-add-precise-times-for-2024/"><u>YouTube Video Upgrades How to Add Precise Times for 2024</u></a></li>
+</ul></div>
 

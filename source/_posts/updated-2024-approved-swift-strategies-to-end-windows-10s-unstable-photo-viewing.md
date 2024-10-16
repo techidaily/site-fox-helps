@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Swift Strategies to End Windows 10'S Unstable Photo Viewing\""
-date: 2024-09-11T17:57:04.273Z
-updated: 2024-09-17T17:30:09.624Z
+date: 2024-10-08T23:22:56.404Z
+updated: 2024-10-15T17:25:56.265Z
 tags: 
   - screen-recording
   - ai video
@@ -58,8 +58,22 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -96,10 +110,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -113,18 +127,18 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -151,5 +165,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-ultimate-game-series-parallels-not-gta-v-edition/"><u>[New] 2024 Approved Ultimate Game Series Parallels - Not GTA V Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-clarity-in-cinema-in-depth-review-of-lgs-digital-display-the-4k-monitor-31mu97-b/"><u>[New] In 2024, Clarity in Cinema - In-Depth Review of LG's Digital Display, The 4K Monitor 31MU97-B</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-enhancing-igtv-content-editing-titles-and-descriptions/"><u>[New] In 2024, Enhancing IGTV Content Editing Titles & Descriptions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premium-6-solutions-for-multilingual-videos-for-2024/"><u>[New] Premium 6 Solutions for Multilingual Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-testing-the-strength-of-apples-m1-in-professional-video-editing/"><u>[Updated] Testing the Strength of Apple's M1 in Professional Video Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultra-30-action-camera-by-garmin-detailed-reviews-and-features/"><u>[Updated] Ultra 30 Action Camera by Garmin – Detailed Reviews & Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-framingfraction-analysis/"><u>2024 Approved FramingFraction Analysis</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/6-from-just-599/"><u>6 - From Just $599</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/craft-compelling-video-content-using-windows-photos-and-story-remix/"><u>Craft Compelling Video Content Using Windows Photos & Story Remix</u></a></li>
+<li><a href="https://driver-error.techidaily.com/driver-inaccessible-bcm20702a0-error/"><u>Driver Inaccessible: BCM20702A0 Error</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/personalized-whatsapp-tones-on-iphoneandroid-devices-for-2024/"><u>Personalized WhatsApp Tones on iPhone/Android Devices for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/slapstick-selection-twitters-funny-threads-for-2024/"><u>Slapstick Selection Twitter's Funny Threads for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/spectral-stories-telling-tales-through-color-for-2024/"><u>Spectral Stories Telling Tales Through Color for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-xiaomi-13t-pro-by-drfone-android/"><u>Top 10 Password Cracking Tools For Xiaomi 13T Pro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-asus-rog-phone-8-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Asus ROG Phone 8 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+</ul></div>
 

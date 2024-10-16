@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Expert Tips on Mastering the Preview Application on Mac"
-date: 2024-10-04T17:04:34.882Z
-updated: 2024-10-09T17:06:55.662Z
+date: 2024-10-13T19:51:32.939Z
+updated: 2024-10-15T20:31:05.689Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -75,6 +68,13 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -93,10 +93,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -144,10 +144,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -167,10 +167,16 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -244,22 +250,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-breaking-down-average-podcaster-salary-for-2024/"><u>[New] Breaking Down Average Podcaster Salary for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-essential-guide-to-selecting-the-best-8-open-source-calls-for-2024/"><u>[New] Essential Guide to Selecting the Best 8 Open Source Calls for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[New] In 2024, Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-envisioned-worlds-await-equip-yourself-with-these-7-devices/"><u>[New] In 2024, Envisioned Worlds Await Equip Yourself with These 7 Devices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-exploring-soft-cessation-of-audio-tracks-with-audacity/"><u>[Updated] 2024 Approved Exploring Soft Cessation of Audio Tracks with Audacity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-excellence-professional-editing-techniques-revealed/"><u>[Updated] 2024 Approved Instagram Excellence Professional Editing Techniques Revealed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-thrilling-rides-recorded-top-action-cam-gear-for-23-bikers/"><u>[Updated] 2024 Approved Thrilling Rides Recorded – Top Action Cam Gear for '23 Bikers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-select-the-superior-a-guide-to-8-outstanding-free-android-mp3-downloaders/"><u>[Updated] In 2024, Select the Superior A Guide to 8 Outstanding Free Android MP3 Downloaders</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/affordable-gaming-accessories-corsairs-restored-legacy-lineup-amazes-with-budget-friendly-options/"><u>Affordable Gaming Accessories: Corsair’s Restored Legacy Lineup Amazes with Budget-Friendly Options</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/exploring-the-infinite-a-look-at-lgs-vr-technology-for-2024/"><u>Exploring the Infinite A Look at LG's VR Technology for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-rapid-capture-visuals-and-voices-together/"><u>In 2024, Rapid Capture Visuals & Voices Together</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-avi-to-gif-filmora-guide-for-pcmac/"><u>Mastering AVI to GIF Filmora Guide for PC/Mac</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-faster-gameplay-a-professionals-guide-to-fixing-sims-4-latency-for-windows-users-insights-from-2024/"><u>Mastering Faster Gameplay: A Professional's Guide to Fixing Sims 4 Latency for Windows Users - Insights From 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/speedy-solutions-overcome-shader-troubles-in-star-wars-battlefront-ii-effortlessly/"><u>Speedy Solutions: Overcome Shader Troubles in Star Wars Battlefront II Effortlessly</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-astro-a10s-audio-issues-solutions-for-a-broken-mic/"><u>Troubleshooting Your Astro A10's Audio Issues - Solutions for a Broken Mic</u></a></li>
-<li><a href="https://techidaily.com/unlock-android-phone-if-you-dont-have-realme-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Realme fingerprint</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/zip-archive-handling-for-srt-output-generation/"><u>Zip Archive Handling for SRT Output Generation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-wearable-camera-innovations/"><u>[New] Best Wearable Camera Innovations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-digital-photo-management-incorporating-dates-seamlessly/"><u>[New] In 2024, Digital Photo Management Incorporating Dates Seamlessly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-implementing-soft-decline-in-logic-pro-audio/"><u>[New] In 2024, Implementing Soft Decline in Logic Pro Audio</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pixels-in-perfection-tweeting-at-full-hd-quality/"><u>[New] In 2024, Pixels in Perfection Tweeting at Full HD Quality</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-video-plus-comprehensive-live-channel-access/"><u>[New] In 2024, Prime Video Plus Comprehensive Live Channel Access</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-cinemagraph-guide-top-5-must-know-tactics/"><u>[Updated] 2024 Approved The Ultimate Cinemagraph Guide - Top 5 Must-Know Tactics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-epic-comic-strip-crafting-app-for-2024/"><u>[Updated] Epic Comic Strip Crafting App for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-obs-and-streamlabs-showdown-best-livestream-tool-compared-for-2024/"><u>[Updated] OBS and Streamlabs Showdown – Best Livestream Tool Compared for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-concept-to-screen-writing-a-winning-docu-script/"><u>From Concept to Screen Writing a Winning Docu-Script</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-a25-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy A25 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-exploring-the-prime-linux-screenshot-applications/"><u>In 2024, Exploring the Prime Linux Screenshot Applications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-influence-of-soundtracks-on-a-teasers-audience-reception/"><u>In 2024, The Influence of Soundtracks on a Teaser's Audience Reception</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-who-takes-the-crown-av1-or-vp9/"><u>In 2024, Who Takes The Crown? AV1 or VP9?</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-poco-c51-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Poco C51</u></a></li>
+<li><a href="https://win-dash.techidaily.com/revamping-your-microsoft-mouse-experience-with-a-fresh-driver-update-on-windows/"><u>Revamping Your Microsoft Mouse Experience with a Fresh Driver Update on Windows</u></a></li>
 </ul></div>
 

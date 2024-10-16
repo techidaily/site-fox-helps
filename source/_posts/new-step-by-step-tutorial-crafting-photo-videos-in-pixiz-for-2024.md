@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Tutorial  Crafting Photo Videos in Pixiz for 2024\""
-date: 2024-09-16T20:53:30.631Z
-updated: 2024-09-17T19:25:31.541Z
+date: 2024-10-14T19:49:24.758Z
+updated: 2024-10-15T18:56:50.681Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ Don't know about Pixiz? Let me introduce you! Pixiz is an online photo editor pl
 * Short videos only
 * Not much customizable
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you make photo videos using Pixiz?
 
 So let's discuss how to make a slideshow using Pixiz Online. You have to follow these steps, and your fantastic photo video will be ready.
@@ -64,6 +71,13 @@ Step2Now select any slideshow template by clicking on it.
 Step3Click on the select photo option and choose a photo.
 
 ![choose a photo](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4You can add more photos, in the same way, one by one (till the maximum number). Check below if the template you've chosen has the option to control the effect and speed (optional). Then, click on the **Go** button.
 
@@ -83,13 +97,6 @@ The powerful video editing program Filmora is offered by Wondershare. It offers 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How do you make photo videos using Filmora?
 
 Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from official website and click the setup wait till it install.
@@ -101,6 +108,13 @@ Step2Now **open** **Filmora** and **click** **new project**.
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
@@ -115,10 +129,10 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
@@ -126,16 +140,10 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step8You can **double-click** the music to open the **settings box** and make changes.
@@ -168,6 +176,13 @@ Step2Now **open** **Filmora** and **click** **new project**.
 
 ![open filmora](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
@@ -181,10 +196,10 @@ Step5**Click** on the **Title** option in the top right and select the **title t
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
@@ -196,16 +211,10 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step8You can **double-click** the music to open the **settings box** and make changes.
@@ -250,5 +259,22 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-instantaneous-facial-obscuring-technique/"><u>[New] 2024 Approved Instantaneous Facial Obscuring Technique</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chucklechasm-exciting-places-to-get-comical-calls/"><u>[New] ChuckleChasm Exciting Places to Get Comical Calls</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-installing-tiktok-your-path-to-joyful-macbook-experience/"><u>[New] In 2024, Installing TikTok Your Path to Joyful MacBook Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-sequel-of-seconds-measuring-20mb-footage/"><u>[New] Sequel of Seconds Measuring 20MB Footage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-audio-accomplishment-iphone-as-a-podcast-hub/"><u>[Updated] 2024 Approved Audio Accomplishment IPhone as a Podcast Hub</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-maximizing-facebook-favorites-perfecting-square-video-crafting/"><u>[Updated] 2024 Approved Maximizing Facebook Favorites Perfecting Square Video Crafting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-tips-to-rectify-broken-airdrop-connectivity-across-apple-gadgets/"><u>[Updated] 2024 Approved Tips to Rectify Broken AirDrop Connectivity Across Apple Gadgets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-achieving-profitability-at-half-a-million-viewers/"><u>[Updated] In 2024, Achieving Profitability at Half a Million Viewers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-photoshop-stabilizers-role-crucial-for-creatives/"><u>[Updated] Photoshop Stabilizer's Role - Crucial for Creatives?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-sideways-instagram-videos-an-enigma-or-bug-in-2024/"><u>[Updated] Sideways Instagram Videos An Enigma or Bug, In 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/crafting-squares-for-viral-videos-in-a-social-media-world/"><u>Crafting Squares for Viral Videos in a Social Media World</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-samsung-850-evo-firmware-and-device-drivers-download/"><u>Latest Samsung 850 EVO Firmware and Device Drivers Download</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-list-8-ranked-android-video-tile-maker-options-freepaid-for-2024/"><u>The Ultimate List #8 Ranked Android Video Tile Maker Options (Free/Paid) for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-starting-dolby-digital-and-dolby-pro-logic-ii-sound-in-windows-11-systems/"><u>Troubleshooting Guide: Starting Dolby Digital and Dolby Pro Logic II Sound in Windows 11 Systems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-whatsapps-compatibility-with-various-video-formats/"><u>Understanding WhatsApp's Compatibility with Various Video Formats</u></a></li>
+</ul></div>
 
