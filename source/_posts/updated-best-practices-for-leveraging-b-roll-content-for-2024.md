@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Best Practices for Leveraging B-Roll Content for 2024\""
-date: 2024-10-11T22:14:48.323Z
-updated: 2024-10-15T16:18:16.624Z
+date: 2024-10-19T03:55:38.284Z
+updated: 2024-10-21T01:29:54.748Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -51,13 +51,6 @@ Now that there are so many stock footage platforms, you have a lot of choices wh
 The ideal way to use B roll is to put it behind interviews. This kind of footage can be used in three ways: as establishing shots, cutaways, and transitions. Most of the time, the first few minutes of an interview or video help set the scene with "establishing shots."
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. What types of b roll are there?
 
@@ -80,16 +73,16 @@ B roll footage can be used to tell a story that supports the narrative of your v
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
+<span id="1983474">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -105,15 +98,22 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -149,14 +149,21 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-how-to-record-professional-audio-in-audacity-for-2024/"><u>[New] How To Record Professional Audio In Audacity for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-find-your-perfect-match-gear-vr-compatible-phones-2023/"><u>[New] In 2024, Find Your Perfect Match Gear VR-Compatible Phones 2023</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-instantly-examine-windows-documents-efficiently/"><u>[New] Instantly Examine Windows Documents Efficiently</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/action-plan-conquering-error-0x800700e1-in-windows-11-systems/"><u>Action Plan: Conquering Error 0X800700E1 in Windows 11 Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/driving-results-with-key-business-meta-tools-and-strategies/"><u>Driving Results with Key Business Meta Tools and Strategies</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/expert-in-multimedia-solutions-discover-digiarty-your-premier-partner/"><u>Expert in Multimedia Solutions - Discover Digiarty, Your Premier Partner</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/how-long-is-a-video-at-20-megabits-in-2024/"><u>How Long Is a Video at 20 Megabits, In 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-erase-private-data-from-iphone-6s-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Private Data From iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-concentrate-on-core-affinity-photo-trick/"><u>In 2024, Concentrate on Core - Affinity Photo Trick</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-secure-transfer-of-twitter-video-files-to-android/"><u>[New] 2024 Approved Secure Transfer of Twitter Video Files to Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-secrets-to-skyrocketing-your-subscriber-count/"><u>[Updated] In 2024, Secrets to Skyrocketing Your Subscriber Count</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-focus-effects-iphone-vs-android-photo-solutions-for-2024/"><u>Best Focus Effects IPhone vs Android Photo Solutions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-steadicams-for-dsrl-filming-for-2024/"><u>Best Steadicams for DSRL Filming for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/critical-analysis-the-innovations-in-dji-phantom-3-professional/"><u>Critical Analysis The Innovations in DJI Phantom 3 Professional</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/deploying-artifice-intelligence-via-web-browsers-using-agentgpt/"><u>Deploying Artifice Intelligence via Web Browsers Using AgentGPT</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/enjoyable-footage-recorder-test/"><u>Enjoyable Footage Recorder Test</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-iphone-photo-tricks-to-transform-your-landscapes-for-2024/"><u>Essential iPhone Photo Tricks to Transform Your Landscapes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-list-8-leading-tools-for-video-translation-mastery-for-2024/"><u>Essential List 8 Leading Tools for Video Translation Mastery for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-steps-to-prep-your-oculus-rift-zone-for-2024/"><u>Essential Steps to Prep Your Oculus Rift Zone for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-remove-image-background-in-photopea-for-2024/"><u>How to Remove Image Background In Photopea for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-hack-the-art-world-essential-free-3d-psd-files/"><u>In 2024, Hack the Art World Essential Free 3D PSD Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-samsung-image-maker-insights-and-overview-2023/"><u>In 2024, Samsung Image Maker Insights & Overview 2023</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-art-of-podcast-imagery-creating-memorable-graphics-for-2024/"><u>The Art of Podcast Imagery Creating Memorable Graphics for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/uncovering-the-cause-of-asymmetrical-volume-in-apple-earphones-and-fixes/"><u>Uncovering the Cause of Asymmetrical Volume in Apple Earphones and Fixes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/winx-mediatrans-itunes-iphoneipad/"><u>WinX MediaTrans - 超越iTunes的完美解答！更輕鬆在電腦上控制 iPhone/iPad</u></a></li>
 </ul></div>
 

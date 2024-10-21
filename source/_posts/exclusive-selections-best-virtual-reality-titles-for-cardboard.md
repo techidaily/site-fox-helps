@@ -1,7 +1,7 @@
 ---
 title: "\"Exclusive Selections  Best Virtual Reality Titles for Cardboard\""
-date: 2024-09-10T23:23:55.923Z
-updated: 2024-09-17T21:21:48.078Z
+date: 2024-10-20T08:35:15.822Z
+updated: 2024-10-21T13:21:49.737Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,13 @@ Chair in a Room is a horror game for the Google Cardboard. You play a lawyer who
 
 If you want a good scare, then this is the VR game that you should play. You will feel your heart pounding as you progress through the game. It really feels like it was made for VR and not just a port. On the downside, you need a fast smartphone and good headphones to enjoy the game. It was designed for the Nexus 5 and above, and devices with lower specs might have trouble running the game.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. BombSquad VR for Cardboard
 
 BombSquad VR for Cardboard is an arcade game where players must avoid getting hit by bombs, and at the same time capture flags. Up to eight players can play at the same time. To play the game, you need a gamepad or another Android device to act as a controller. While it costs $2.99, you also get the BombSquad Pro that allows you to play the non-VR version of the game. The game features networked multiplayer mode, advanced ragdoll face-plant physics, lots of explosions, pirates, barbarians, ninja, and chefs.
@@ -54,10 +61,10 @@ BAMF VR is a simple game that only requires you to push a single button. The obj
 BAMF VR is one of the best VR games for the Google Cardboard. While it is simple, it has imaginative puzzles. There are no downsides to the game; except players want more levels because it is easy to beat the game.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4. Sisters
@@ -67,6 +74,13 @@ VR is the best medium for horror games. You just need to seat back and look arou
 It has simple look based controls that will allow players to pick up and play the game. It has a scary digitally painted environment that will truly immerse you into the game. And combined with the spooky soundtrack, it feels like you are really there.
 
 If you want to be scared, then go play Sisters. It is best to prank your friends who think that VR games are not that scary. However, there are reports that it keeps on crashing on low-end Android phones.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Waa! VR
 
@@ -96,10 +110,10 @@ Waa! is a VR game that kids will enjoy. The gameplay is simple and just right fo
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -125,5 +139,17 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-where-to-find-budget-friendly-gopros-online-for-2024/"><u>[New] Where to Find Budget-Friendly GoPros Online for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-digital-cash-kings-leading-youtube-creators/"><u>[Updated] 2024 Approved Digital Cash Kings Leading YouTube Creators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-exclusive-top-8-gear-in-the-vr-sphere/"><u>[Updated] Exclusive Top 8 Gear in the VR Sphere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2023s-top-free-premiere-pro-masterpieces-for-2024/"><u>2023'S Top Free Premiere Pro Masterpieces for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-metaverse-joke-ology-building-your-own-hilarious-memes/"><u>2024 Approved Metaverse Joke-Ology Building Your Own Hilarious Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-perfect-photo-placement-on-windows-machines/"><u>2024 Approved Perfect Photo Placement on Windows Machines</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unraveling-sierras-icloud-full-access-guide/"><u>2024 Approved Unraveling Sierra's iCloud Full Access Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/device-based-digital-recording-pcmac-plus-phone-edition-for-2024/"><u>Device-Based Digital Recording PC/Mac + Phone Edition for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-nailing-the-perfect-timelapse-with-ios-devices/"><u>In 2024, Nailing the Perfect Timelapse with iOS Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maxoak-185wh-50000mah-power-bank-evaluation-your-ultimate-charging-companion/"><u>MaxOak 185Wh / 50,000mAh Power Bank Evaluation - Your Ultimate Charging Companion</u></a></li>
+</ul></div>
 

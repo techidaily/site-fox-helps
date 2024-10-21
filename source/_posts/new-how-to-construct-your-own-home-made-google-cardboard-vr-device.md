@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Construct Your Own Home-Made Google Cardboard VR Device\""
-date: 2024-10-11T21:04:50.404Z
-updated: 2024-10-15T16:25:45.925Z
+date: 2024-10-19T08:01:07.816Z
+updated: 2024-10-21T08:02:23.020Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -104,16 +104,16 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -141,16 +141,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-aggregate-video-pieces-into-lists/"><u>[New] In 2024, Aggregate Video Pieces Into Lists</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-streamlining-video-conferencing-combining-skype-and-zoom-effortlessly/"><u>[New] Streamlining Video Conferencing Combining Skype & Zoom Effortlessly</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-video-sharing-platform-showdown-which-is-ideal-for-your-individual-usage/"><u>[Updated] 2024 Approved Video Sharing Platform Showdown Which Is Ideal for Your Individual Usage?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-power-of-hashtags-in-growing-your-instagram-reel-presence/"><u>[Updated] The Power of Hashtags in Growing Your Instagram Reel Presence</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-dark-heroity-meets-radiant-righteousness/"><u>2024 Approved Dark Heroity Meets Radiant Righteousness</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-advice-resolving-the-problem-of-lost-sounds-in-bluetooth-devices/"><u>Expert Advice: Resolving the Problem of Lost Sounds in Bluetooth Devices</u></a></li>
-<li><a href="https://games-able.techidaily.com/exposing-pseudo-promotional-gaming-content/"><u>Exposing Pseudo Promotional Gaming Content</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-next-gen-webcams-top-5-featuring-premium-audio-capabilities/"><u>In 2024, Next-Gen Webcams Top 5 Featuring Premium Audio Capabilities</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/swiftly-switch-songs-in-yt-playlist-heres-how-for-2024/"><u>Swiftly Switch Songs in YT Playlist, Here's How for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/toolwiz-photos-app-complete-review-2023-for-2024/"><u>Toolwiz Photos App - Complete Review 2023 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/turning-chaos-into-clarity-in-your-burdened-tiktok-archive-for-2024/"><u>Turning Chaos Into Clarity in Your Burdened TikTok Archive for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-discovering-tomtoms-adventurecam-revolution-2023-edition/"><u>[New] 2024 Approved Discovering TomTom’s AdventureCam Revolution - 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-videos-which-aspect-ratio-fits/"><u>[New] 2024 Approved Facebook Videos Which Aspect Ratio Fits?</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-mastery-of-video-sharing-a-guide-to-utilizing-zoom-on-the-youtube-platform/"><u>[New] 2024 Approved Mastery of Video Sharing A Guide to Utilizing Zoom on the YouTube Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mirth-mechanics-gratis-tools-to-amuse-and-entertain-for-2024/"><u>[New] Mirth Mechanics Gratis Tools to Amuse and Entertain for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-simplify-multitasking-on-iphone-activatedeactivate-youtubes-pip-feature-for-2024/"><u>[New] Simplify Multitasking on iPhone Activate/Deactivate YouTube's PIP Feature for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-how-to-sendtransfer-large-video-files-from-iphone-to-mac/"><u>[Updated] How to Send/Transfer Large Video Files From iPhone to Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-av1-and-vp9-face-off-which-succeeds-more/"><u>[Updated] In 2024, AV1 and VP9 Face-Off Which Succeeds More?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-pioneering-maker-tools-for-your-next-ios-or-android-video/"><u>[Updated] Pioneering Maker Tools For Your Next iOS or Android Video</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-the-power-of-videos-to-drive-fb-traffic-for-2024/"><u>[Updated] Unlocking the Power of Videos to Drive FB Traffic for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/boost-your-gaming-experience-eliminating-stutters-and-increasing-frame-rate/"><u>Boost Your Gaming Experience: Eliminating Stutters and Increasing Frame Rate</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/breeze-past-a-frozen-100-windows-update-solutions-explored/"><u>Breeze Past a Frozen 100% Windows Update - Solutions Explored</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-generating-podcast-identity-the-top-ai-naming-software/"><u>In 2024, Generating Podcast Identity The Top AI Naming Software</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Life360 Learn How Everything Works On Apple iPhone 8 | Dr.fone</u></a></li>
 </ul></div>
 

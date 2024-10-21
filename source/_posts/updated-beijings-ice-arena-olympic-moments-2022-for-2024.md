@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beijing's Ice Arena  Olympic Moments, 2022 for 2024\""
-date: 2024-10-09T17:41:56.739Z
-updated: 2024-10-16T00:32:39.728Z
+date: 2024-10-19T21:11:04.832Z
+updated: 2024-10-20T20:05:30.857Z
 tags: 
   - screen-recording
   - ai video
@@ -36,25 +36,19 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Nathan Chen Breaks World Record
@@ -65,26 +59,26 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
@@ -92,13 +86,6 @@ She lost her balance before she could cross the finishing line and she slid acro
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
@@ -108,33 +95,20 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
-Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
-
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
 Yan Wengang becomes the first medalist from China in a sliding sport. In a four-run total time of 4:01.77, he secured himself a bronze medal. The gold and silver went to Christopher Grotheer and Alex Jung of Germany. With the victory of Wengwang, there was a good feat for China as the nation sent its first skeleton athlete to the Olympics only 4 years ago.
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
@@ -154,6 +128,13 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
@@ -161,6 +142,13 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
@@ -189,24 +177,24 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-conquering-challenges-expert-gopro-tips/"><u>[New] 2024 Approved Conquering Challenges Expert GoPro Tips</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-enhance-documentation-with-auto-transcribe-in-microsoft-word/"><u>[New] Enhance Documentation with Auto-Transcribe in Microsoft Word</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-is-aurora-hdr-a-step-forward-in-quality-viewing/"><u>[New] In 2024, Is Aurora HDR a Step Forward in Quality Viewing?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unlocking-social-media-potential-a-guide-to-video-marketing-on-fb-for-2024/"><u>[New] Unlocking Social Media Potential A Guide to Video Marketing on FB for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-detailed-overview-of-xvision-labs-comprehensive-study/"><u>[Updated] 2024 Approved Detailed Overview of XVision Lab's Comprehensive Study</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mac-video-excellence-the-creme-de-la-liste-for-sierra-users/"><u>[Updated] 2024 Approved Mac Video Excellence The Crème De La Liste for Sierra Users</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-best-tvs-to-accompany-your-highest-rated-consoles/"><u>[Updated] Best TVs to Accompany Your Highest Rated Consoles</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-nikon-d500-4k-performance/"><u>[Updated] In 2024, The Ultimate Guide to Nikon D500 4K Performance</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-keep-it-secret-live-stream-on-instagram-anonymously/"><u>[Updated] Keep It Secret Live Stream on Instagram Anonymously</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-launching-your-first-product-critique-network-a-step-by-step-guide-for-2024/"><u>[Updated] Launching Your First Product Critique Network A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-top-10-windows-camera-apps-reviewed/"><u>[Updated] The Top 10 Windows Camera Apps - Reviewed</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-embark-on-a-metaverse-adventure-with-these-top-8-helmets-and-headsets/"><u>2024 Approved Embark on a Metaverse Adventure with These Top 8 Helmets & Headsets</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-honor-x50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-galaxy-s24-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Galaxy S24?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-max-360-vs-hero-11-evaluating-the-best-gopro-for-action-videos/"><u>In 2024, Max 360 Vs. Hero 11 Evaluating the Best GoPro for Action Videos</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/installation-blueprint-hp-officejet-pro-in-personal-computer/"><u>Installation Blueprint: HP OfficeJet Pro in Personal Computer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/maximizing-social-sharing-uploading-360-degree-images-on-mobile-platforms-for-2024/"><u>Maximizing Social Sharing Uploading 360-Degree Images on Mobile Platforms for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/refined-retakes-how-to-crop-and-perfect-iphone-shots-for-2024/"><u>Refined Retakes How to Crop and Perfect iPhone Shots for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721267227791-retrieve-lost-iphone-files-with-our-top-tier-data-rescue-application-purchase-online/"><u>Retrieve Lost iPhone Files with Our Top-Tier Data Rescue Application – Purchase Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-chip-synchrony-the-new-era-of-fluid-video-editing-experience/"><u>[New] 2024 Approved Chip Synchrony The New Era of Fluid Video Editing Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-peering-through-hololens-a-peek-at-next-gen-interaction/"><u>[New] 2024 Approved Peering Through HoloLens A Peek at Next-Gen Interaction</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-masterclass-streamlining-your-video-uploads-on-tiktok-macwindows/"><u>[New] In 2024, Masterclass Streamlining Your Video Uploads on TikTok (Mac/Windows)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-camera-brands-for-future-musical-video-production/"><u>[New] Top Camera Brands for Future Musical Video Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-upcoming-assessment-varied-perspectives-for-2024/"><u>[New] Upcoming Assessment Varied Perspectives for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-full-feature-analysis-videon-plus-suite-the-edit-experience/"><u>[Updated] 2024 Approved Full Feature Analysis Videon Plus Suite – The Edit Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-picks-optimal-sites-for-snagging-snapchat-alert-tunes/"><u>[Updated] In 2024, Top Picks Optimal Sites for Snagging Snapchat Alert Tunes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-royale-royalty-leading-gaming-showdowns/"><u>[Updated] Royale Royalty Leading Gaming Showdowns</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-11-techniques-for-stunning-color-balance/"><u>[Updated] Top 11 Techniques for Stunning Color Balance</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiled-top-6-tools-to-purify-signature-images-online/"><u>[Updated] Unveiled Top 6 Tools to Purify Signature Images Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-secrets-of-a-captivating-end-episode-note/"><u>2024 Approved Unlocking the Secrets of a Captivating End-Episode Note</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-adjust-frame-rate-on-your-story-feed-in-instagram-for-2024/"><u>How to Adjust Frame Rate on Your Story Feed in Instagram for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-find-out-what-powershell-version-is-installed-with-windows-1/"><u>How to Find Out What PowerShell Version Is Installed with Windows 1지</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-do-not-have-sufficient-access-to-uninstall-error-in-windows-11-and-11/"><u>How to Fix the “Do Not Have Sufficient Access to Uninstall” Error in Windows 11 & 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-data-from-iphone-xs-max-using-stellar-data-recovery-for-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Data from iPhone XS Max using Stellar Data Recovery for iPhone? | Stellar</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/introducing-the-qualcomm-snapdragon-development-board-bridging-microsoft-windows-and-arm-technology/"><u>Introducing the Qualcomm Snapdragon Development Board: Bridging Microsoft Windows and ARM Technology</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-hidden-navigation-shortcuts-learn-how-to-enable-and-use-your-devices-discreet-path-bar/"><u>Master Hidden Navigation Shortcuts: Learn How to Enable and Use Your Device's Discreet Path Bar</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/nightly-serenity-with-asmr-top-choices-to-listen-to/"><u>Nightly Serenity with ASMR Top Choices to Listen To</u></a></li>
+<li><a href="https://win-able.techidaily.com/quick-fixes-for-when-your-chrome-keeps-crashing-on-windows-10/"><u>Quick Fixes for When Your Chrome Keeps Crashing on Windows 10</u></a></li>
 </ul></div>
 

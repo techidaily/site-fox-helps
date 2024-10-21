@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Peek Inside  How Do VR Headsets Connect?\""
-date: 2024-10-09T18:17:52.764Z
-updated: 2024-10-15T19:40:43.190Z
+date: 2024-10-17T05:16:37.045Z
+updated: 2024-10-21T04:25:05.225Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/e3894a6ad1afb8650d841abb2ecac55565ace18e9
 ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  HTC Vive VR headset is made in collaboration with Valve and it plugs directly into PCs and uses Valve’s humongous gaming ecosystem. The headset has over 70 sensors to allow for 360 degrees head tracking and it also boasts of a 90Hz refresh rate responsible for keeping down the latency, which in turn saves the users from suffering motions sickness. This headset is currently available for purchase from $799.
@@ -66,14 +66,14 @@ thumbnail: https://thmb.techidaily.com/e3894a6ad1afb8650d841abb2ecac55565ace18e9
 
 ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
 
- The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
-
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
 
 ### [Oculus Rift](https://www.oculus.com/rift/  )
 
@@ -81,24 +81,24 @@ thumbnail: https://thmb.techidaily.com/e3894a6ad1afb8650d841abb2ecac55565ace18e9
 
  Oculus Rift headset was responsible for the current hysteria in virtual reality. The Rift plugs into the computer’s USB and DVI ports and tracks the movements of the head to provide 3D displays on its stereo screens. The consumer edition of the Rift comes with a 2160 x 1200 resolution as well as a refresh rate of 90Hz. The Rift matches HTC Vive in terms of the refresh rate, but lags behind Sony’s PlayStation VR, though it is a pretty advanced VR headset in terms of the technology used.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [Sony PlayStation VR](https://www.playstation.com/en-us/explore/playstation-vr/  )
 
 ![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### [Google Cardboard](https://vr.google.com/cardboard/  )
@@ -136,17 +136,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mirthful-mayhem-makers/"><u>[New] 2024 Approved Mirthful Mayhem Makers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-windows-11-photos-setup-guide-adding-aesthetic-overlays-and-music/"><u>[New] 2024 Approved Windows 11 Photos Setup Guide Adding Aesthetic Overlays & Music</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-asmr-explained-why-it-might-be-good-for-you/"><u>[New] In 2024, ASMR Explained Why It Might Be Good For You</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-insights-on-forging-youtube-sponsorship-bonds-using-famebit/"><u>[New] In 2024, Expert Insights on Forging YouTube Sponsorship Bonds Using FameBit</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-exploring-all-windows-movie-maker-editions/"><u>[New] In 2024, Exploring All Windows Movie Maker Editions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-guide-to-utilizing-zero-cost-clocks/"><u>2024 Approved The Ultimate Guide to Utilizing Zero-Cost Clocks</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/dvdattachment-to-copirate-dvd-to-mp4and/"><u>DVDフォームATTACHMENT TO COPIRATE: 無料で簡単なDVD to MP4変換ガイド&最適ツールリスト</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hawkui-car-glitches-step-by-step-fix-guide/"><u>Hawkui Car Glitches - Step-by-Step Fix Guide</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-vivo-v29-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Vivo V29 Devices | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722974717880-quick-download-hp-envy-5055-laptop-drivers-get-them-fast/"><u>Quick Download: HP ENVY 5055 Laptop Drivers – Get Them Fast</u></a></li>
-<li><a href="https://blog-min.techidaily.com/universal-video-editor-suite-with-high-definition-support-compatible-with-iphones-blackberrys-and-nokia-phones/"><u>Universal Video Editor Suite with High Definition Support Compatible with iPhones, BlackBerrys, and Nokia Phones</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-yourself-from-video-edges-on-youtube/"><u>[New] 2024 Approved Free Yourself From Video Edges on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-themes-for-dynamic-youtuber-profiles/"><u>[Updated] Free Themes for Dynamic YouTuber Profiles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-journey-through-the-top-10-sites-offering-an-array-of-impressive-3d-texts/"><u>[Updated] Journey Through The Top 10 Sites Offering an Array of Impressive 3D Texts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/clipcreatorassessment-full-dissection/"><u>ClipCreatorAssessment – Full Dissection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/crafting-memes-that-stand-out-the-9gag-way/"><u>Crafting Memes that Stand Out The 9GAG Way</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/disentangling-fisheye-photos-from-gopro-footage/"><u>Disentangling Fisheye Photos From GoPro Footage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/dissecting-the-sony-s6700-enhancements/"><u>Dissecting the Sony S6700 Enhancements</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/elite-cinematic-promo-reels/"><u>Elite Cinematic Promo Reels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-techniques-to-enhance-instagram-reels-with-sounds-for-2024/"><u>Essential Techniques to Enhance Instagram Reels with Sounds for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-overcome-blue-screen-of-death-in-windows-10-after-a-system-update/"><u>How to Overcome Blue Screen of Death in Windows 10 After a System Update</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-huawei-nova-y91-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-7-and-10-troubleshooting-fix-plugged-in-but-non-charging-problems/"><u>Windows 7 & 10 Troubleshooting: Fix 'Plugged In' But Non-Charging Problems</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/zdnets-ultimate-strategy-for-uncovering-and-eradicating-spy-applications-on-your-smartphone/"><u>ZDNet's Ultimate Strategy for Uncovering and Eradicating Spy Applications on Your Smartphone</u></a></li>
 </ul></div>
 

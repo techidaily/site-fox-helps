@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Mac Preview  A Compreranary Reference Guide\""
-date: 2024-09-14T23:04:41.381Z
-updated: 2024-09-17T23:03:20.750Z
+date: 2024-10-20T05:54:53.755Z
+updated: 2024-10-21T09:37:01.014Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -70,16 +77,10 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -97,13 +98,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -133,6 +127,13 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -150,10 +151,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -241,5 +242,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-advanced-tips-for-recording-google-voice-dialogues-for-2024/"><u>[New] Advanced Tips for Recording Google Voice Dialogues for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-understanding-the-basics-of-motion-design-for-2024/"><u>[New] Understanding the Basics of Motion Design for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unmatched-download-experience-with-our-top-tools-list/"><u>[Updated] 2024 Approved Unmatched Download Experience with Our Top Tools List</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-clearview-resolution-amplifier-cross-platform-edition/"><u>[Updated] ClearView Resolution Amplifier Cross-Platform Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-gesture-control-a-comprehensive-overview/"><u>2024 Approved Mastering Gesture Control A Comprehensive Overview</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-personalizing-your-android-a-step-by-step-guide-to-ringtone-and-sound-settings/"><u>2024 Approved Personalizing Your Android A Step-by-Step Guide to Ringtone & Sound Settings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-definitive-handbook-to-reacting-on-youtube-tweets/"><u>2024 Approved The Definitive Handbook to Reacting on YouTube Tweets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-mvps-of-frugal-filmmaking-tech/"><u>2024 Approved The MVPs of Frugal Filmmaking Tech</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-the-secrets-of-whatsapp-audio-conversations/"><u>2024 Approved Unveiling the Secrets of WhatsApp Audio Conversations</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-engagement-todays-must-use-instagram-hashtags/"><u>In 2024, Elevate Engagement Today's Must-Use Instagram Hashtags</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/metaverse-metaphors-discovering-6-detailed-instances/"><u>Metaverse Metaphors Discovering 6 Detailed Instances</u></a></li>
+</ul></div>
 

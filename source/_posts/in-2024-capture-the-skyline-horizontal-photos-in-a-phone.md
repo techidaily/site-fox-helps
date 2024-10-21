@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Capture the Skyline  Horizontal Photos in a Phone\""
-date: 2024-09-16T22:10:51.566Z
-updated: 2024-09-17T19:02:50.699Z
+date: 2024-10-16T07:46:19.779Z
+updated: 2024-10-20T21:41:49.068Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -67,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -74,10 +88,10 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -90,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -119,5 +133,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-fusing-iphones-audio-and-visuals-together/"><u>[New] In 2024, Fusing iPhones' Audio and Visuals Together</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-timing-analysis-of-a-20mb-film/"><u>[New] In 2024, Timing Analysis of a 20MB Film</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-skys-brilliance-top-10-hd-renditions-websites/"><u>[New] Sky's Brilliance Top 10 HD Renditions Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-instantpodstreams-a-step-by-step-approach-to-live-broadcasting/"><u>[Updated] 2024 Approved InstantPodStreams A Step-by-Step Approach to Live Broadcasting</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-premier-video-converters-for-tweeting-videos/"><u>[Updated] Premier Video Converters for Tweeting Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-key-to-combining-linktree-and-tiktok-biographies/"><u>[Updated] The Key to Combining Linktree and TikTok Biographies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transform-your-snapchat-storytelling-learn-to-zoom-like-pros-for-2024/"><u>[Updated] Transform Your Snapchat Storytelling Learn to Zoom Like Pros for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-engaging-video-summaries-for-books/"><u>In 2024, Engaging Video Summaries for Books</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-a78-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Oppo A78 5G?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-ps4-screen-recording-techniques-for-professional-gamers/"><u>In 2024, Ps4 Screen Recording Techniques for Professional Gamers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-depth-look-at-facetune-a-photographers-best-friend-for-2024/"><u>In-Depth Look at Facetune A Photographer’s Best Friend for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-why-football-manager-2022-release-delayed/"><u>Solved: Why Football Manager 2022 Release Delayed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-apple-iphone-se-2022-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On Apple iPhone SE (2022) You Should Try Out</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-auto-correct-snafus-on-your-iphone-6-proven-techniques-for-accurate-typing/"><u>Troubleshoot Auto-Correct Snafus on Your iPhone: 6 Proven Techniques for Accurate Typing</u></a></li>
+</ul></div>
 

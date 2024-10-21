@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Guide to DIY VR Headgear  Crafting a Personalized Google Model\""
-date: 2024-09-11T10:27:45.587Z
-updated: 2024-09-12T10:27:45.587Z
+date: 2024-10-16T01:00:11.716Z
+updated: 2024-10-21T01:58:34.979Z
 tags: 
   - screen-recording
   - ai video
@@ -33,28 +33,15 @@ thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Steps for DIY VR
 
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -72,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -91,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -117,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -146,5 +133,18 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-enhancing-your-social-media-footprint-upload-success-tips-for-stories/"><u>[New] 2024 Approved Enhancing Your Social Media Footprint Upload Success Tips for Stories</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-windows-best-chat-tools-ranked-3-1/"><u>[New] In 2024, Windows' Best Chat Tools Ranked #3-#1</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevate-engagement-4-steps-to-add-fb-story-link-for-2024/"><u>[Updated] Elevate Engagement 4 Steps to Add FB Story Link for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-deciphering-hand-tracking-methodologies/"><u>2024 Approved Deciphering Hand Tracking Methodologies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-effortless-playback-of-srt-files-across-computers/"><u>2024 Approved Effortless Playback of SRT Files Across Computers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-integrating-advanced-zoom-features-on-tiktok/"><u>2024 Approved Integrating Advanced Zoom Features on TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-adobe-cloud-insights-and-best-non-adobe-choices/"><u>2024 Approved Navigating Adobe Cloud, Insights & Best Non-Adobe Choices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-oppo-find-x7-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Oppo Find X7 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-inside-the-immersive-evolution-vrs-present-state-and-foreseen-obstacles/"><u>In 2024, Inside the Immersive Evolution VR's Present State and Foreseen Obstacles</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-from-viral-tiktok-to-custom-phone-ringtones/"><u>In 2024, Step-by-Step From Viral TikTok to Custom Phone Ringtones</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/prepare-your-computer-with-the-next-gen-copilotplus-desktops/"><u>Prepare Your Computer with the Next-Gen 'Copilot+ Desktops'</u></a></li>
+</ul></div>
 
