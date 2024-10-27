@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Urban and Rural Carry Capabilities  Top 10 Drones\""
-date: 2024-09-11T10:23:40.953Z
-updated: 2024-09-12T10:23:40.953Z
+date: 2024-10-20T18:08:33.601Z
+updated: 2024-10-27T06:38:33.682Z
 tags: 
   - screen-recording
   - ai video
@@ -35,13 +35,6 @@ With this rising need of consumers needing more than just a [flying camera](http
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Top 10 Heavy lift drones
 
 Here are the best heavy lifting drones available in 2020, broken into over-10 kg and under-10 kg payloads.
@@ -69,10 +62,10 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
@@ -109,6 +102,13 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -122,16 +122,10 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
@@ -141,10 +135,10 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
@@ -161,31 +155,11 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -210,5 +184,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-blurry-photos-top-tools-reviewed-for-2024/"><u>[New] Blurry Photos Top Tools Reviewed for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-innovative-approaches-for-podcast-cover-art-mastery/"><u>[New] In 2024, Innovative Approaches for Podcast Cover Art Mastery</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-iphone-laughs-and-lightheartedness/"><u>[New] IPhone Laughs & Lightheartedness</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-lg-flat-screen-revisited-the-2023-update-deep-dive/"><u>[New] LG Flat-Screen Revisited The 2023 Update Deep Dive</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-smooth-cinematography-ideal-stabilizer-tools-for-vloggers/"><u>[Updated] 2024 Approved Smooth Cinematography Ideal Stabilizer Tools for Vloggers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-success-with-these-15-youtube-introduction-plans/"><u>[Updated] Crafting Success with These 15 YouTube Introduction Plans</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-decoding-the-art-of-capturing-live-streaming-windowsmaciosandroid/"><u>[Updated] In 2024, Decoding the Art of Capturing Live Streaming - Windows/Mac/iOS/Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-instagram-a-list-playbook-unlock-the-secrets-to-fame-and-fortune-for-2024/"><u>[Updated] Instagram A-List Playbook Unlock the Secrets to Fame and Fortune for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-perfecting-the-introduction-writing-impressive-summaries-for-2024/"><u>[Updated] Perfecting the Introduction Writing Impressive Summaries for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tips-for-turning-off-automatic-podcast-adds-on-spotify/"><u>[Updated] Tips for Turning Off Automatic Podcast Adds on Spotify</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-transforming-vimeo-streams-into-reusable-mp3-audio/"><u>2024 Approved Transforming Vimeo Streams Into Reusable MP3 Audio</u></a></li>
+<li><a href="https://win-dash.techidaily.com/2024instagram/"><u>2024年のトレンド：パソコンからInstagram動画をダウンロードする究極ガイド</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/aomeiandamoeicom/"><u>AOMEI製品サポート&ヘルプについamoei.com サポートセンター</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ideal-applications-to-elevate-your-vtubers-sound-identity-for-2024/"><u>Ideal Applications to Elevate Your Vtuber's Sound Identity for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-samsung-galaxy-a23-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Samsung Galaxy A23 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-fcpx-power-user-unlock-40-time-saving-keyboard-shortcuts-for-2024/"><u>New FCPX Power User Unlock 40 Time-Saving Keyboard Shortcuts for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-definitive-manual-on-hand-based-tracking-for-2024/"><u>The Definitive Manual on Hand-Based Tracking for 2024</u></a></li>
+</ul></div>
 

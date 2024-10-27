@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Panasonic HX-A1  Revolutionizing Wearable Cameras for the Outdoors\""
-date: 2024-10-16T15:26:34.254Z
-updated: 2024-10-21T06:13:35.467Z
+date: 2024-10-22T05:00:02.057Z
+updated: 2024-10-26T17:56:46.882Z
 tags: 
   - screen-recording
   - ai video
@@ -44,16 +44,10 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specification
@@ -119,10 +113,10 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Features
@@ -154,10 +148,10 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -169,10 +163,10 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -200,21 +194,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-writers-workshop-for-podcast-creators-examples-included/"><u>[New] 2024 Approved The Writers' Workshop for Podcast Creators (Examples Included)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-best-box-personalizing-online-spots-unique-heartfelt-gestures-for-2024/"><u>[New] Best Box-Personalizing Online Spots Unique, Heartfelt Gestures for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-generating-funny-images-through-adobe-for-2024/"><u>[New] Generating Funny Images Through Adobe for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-navigating-network-settings-in-mixer-macos/"><u>[New] In 2024, Navigating Network Settings in Mixer macOS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nstant-methods-for-jumbled-youtube-queue-management/"><u>[New] Instant Methods for Jumbled YouTube Queue Management</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-through-interrupted-streams-on-social-media/"><u>[Updated] 2024 Approved Navigating Through Interrupted Streams on Social Media</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveiling-youtubes-finest-story-sages-and-weavers-in-23/"><u>[Updated] 2024 Approved Unveiling YouTube's Finest Story Sages and Weavers in '23</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-modernized-guide-of-queries-for-engaging-podcast-discussions/"><u>[Updated] In 2024, Modernized Guide of Queries for Engaging Podcast Discussions</u></a></li>
-<li><a href="https://fox-place.techidaily.com/1-free-quicktime-recording-capture-videos-and-audios-at-no-cost/"><u>1. Free QuickTime Recording: Capture Videos and Audios at No Cost</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/how-to-turnout-video-on-your-android-device/"><u>How to Turnout Video on Your Android Device</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-starting-from-scratch-motion-graphics-essentials/"><u>In 2024, Starting From Scratch Motion Graphics Essentials</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-do-you-want-to-make-video-metadata-on-mac-here-you-will-know-8-best-video-metadata-editors-for-mac-they-are-easy-to-use-for-beginners-check-it-o/"><u>New In 2024, Do You Want to Make Video Metadata on Mac? Here You Will Know 8 Best Video Metadata Editors for Mac. They Are Easy to Use for Beginners. Check It Out</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-tips-mastering-windows-11s-file-explorer/"><u>Quick Tips: Mastering Windows 11'S File Explorer</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/forming-raw-footage-expert-pc-editing-tips-for-youtube-creators-for-2024/"><u>Transforming Raw Footage Expert PC Editing Tips for YouTube Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-comprehensive-list-of-8-prime-youtube-to-avi-tools/"><u>[New] 2024 Approved Comprehensive List of 8 Prime YouTube-to-AVI Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-garmin-virb-ultra-30-your-companion-for-outdoor-capture/"><u>[New] 2024 Approved Garmin VIRB Ultra 30 – Your Companion for Outdoor Capture</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-master-racing-must-try-bicycle-titles/"><u>[New] 2024 Approved Master Racing Must-Try Bicycle Titles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-maximizing-your-viewing-experience-top-10-ios-video-apps/"><u>[New] In 2024, Maximizing Your Viewing Experience Top 10 iOS Video Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-speedy-fb-uploads-how-to-get-there-fastest/"><u>[New] In 2024, Speedy FB Uploads How to Get There Fastest</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-vibrant-visions-a-guide-through-the-top-5-color-tvs/"><u>[New] In 2024, Vibrant Visions A Guide Through the Top 5 Color TVs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-batch-background-erasure-in-affinity-photo/"><u>[New] Mastering Batch Background Erasure in Affinity Photo</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-the-world-of-streamed-games/"><u>[New] Navigating the World of Streamed Games</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photoshop-stabilizers-role-crucial-for-creatives/"><u>[New] Photoshop Stabilizer's Role - Crucial for Creatives?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-pinnacle-selections-prolific-iphone-tone-innovators-for-2024/"><u>[New] Pinnacle Selections Prolific iPhone Tone Innovators for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-tips-for-obtaining-pristine-images-at-no-cost-for-2024/"><u>[New] Top Tips for Obtaining Pristine Images at No Cost for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elite-5-screen-selections-ps5s-partner/"><u>[Updated] 2024 Approved Elite 5 Screen Selections PS5's Partner</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-understanding-asmrs-health-perks/"><u>[Updated] In 2024, Understanding ASMR's Health Perks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-jest-jar-your-best-free-meme-source/"><u>[Updated] Jest Jar Your Best Free Meme Source</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-vivo-t2-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Vivo T2 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/quick-guide-swift-recovery-of-your-iphone-using-icloud-without-a-time-consuming-process/"><u>Quick Guide: Swift Recovery of Your iPhone Using iCloud Without a Time-Consuming Process</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Transform Communication  Top Free Mac Text-to-Speech Software Rankings\""
-date: 2024-09-11T10:26:24.175Z
-updated: 2024-09-12T10:26:24.175Z
+date: 2024-10-21T16:19:32.478Z
+updated: 2024-10-26T21:30:42.678Z
 tags: 
   - screen-recording
   - ai video
@@ -37,19 +37,6 @@ Below are the best speech to text apps on Mac you might have missed since the be
 
 ![top 4 filmora](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora version 13.
@@ -117,29 +104,9 @@ Follow these steps to enable Apple Dictation on your Mac:
 
 Please note that you need to speak your punctuations loudly when using Apple Dictation. Otherwise, the app will consider them as regular words.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Top 5 Dragon for Mac
 
 ![top 5 dragon for mac](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Dragon Dictate is arguably the best dictation software currently on the market. According to most users, its accuracy and feature sets are next to none. For example, the Smart Format Rules learns how you represent dates, numbers, and abbreviations, resulting in less editing work for you. The Dragon Dictate app is free to download from the Apple Store.
 
@@ -147,7 +114,21 @@ Dragon for Mac users report a dictation accuracy of nearly 99%, which is excelle
 
 Unfortunately, you cannot get a stand-alone dragon app for Mac. This is because Nuance discontinued its development in 2018\. In addition, Microsoft's acquisition of the company in 2021 proves that the decision is permanent. However, you can still use the Windows version of Dragon through Parallels, which allows you to run macOS and Windows simultaneously. In addition, this method also works for M1 Macs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 6: FAQs
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Is there a difference between voice recognition and speech to text?
 
@@ -160,13 +141,6 @@ Most users report better speech to text accuracy when using headsets compared to
 ### Can speech to text apps automatically translate a transcribed text?
 
 Yes, they can. Apps such as Google's Speech to Text include a translation feature in their functionality. However, you will need the Google Chrome browser to access Speech to text. This is because the service is only available to active google account holders.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How much faster is speech to text faster than typing?
 
@@ -181,17 +155,10 @@ A 2017 Stanford study states that speech to text is about[three times faster tha
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: Top 1 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) (Free trial)
@@ -199,10 +166,16 @@ A 2017 Stanford study states that speech to text is about[three times faster tha
 ![top 4 filmora](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
@@ -223,6 +196,13 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 ![top 2 microsoft word](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Another option to consider is speech to text Microsoft Word Mac. The app is free to use and relies on Microsoft Azure Speech Services to transcribe text. Below are the requirements to use speech to text word mac.
 
 * An external microphone for your Mac desktop, or you can use your built-in microphone for your MacBook. This is because speech to text on Microsoft word mac only allows input with a microphone rather than an audio file upload.
@@ -241,13 +221,6 @@ Once you have everything set up, follow these steps to use speech to text on Wor
 
 ![top 3 google docs](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Google Docs is arguably the market's most accurate free speech to text service. In addition, it allows you to transcribe your voice to text and format documents with your voice. However, you can only use the service through the Chrome browser.
 
 Follow these steps to activate Google Docs voice typing on your Mac device:
@@ -259,16 +232,16 @@ Follow these steps to activate Google Docs voice typing on your Mac device:
 
 Google Docs speech to text is available in 71 languages. In addition, it supports simple commands such as 'create a bulleted list,' which are unavailable on other speech to text apps. As such, it is one of the market's most popular voice typing apps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Top 4 Built-in Mac Dictation Feature
 
 ![top 1 built in mac dictation feature](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Did you know your Mac device comes with a built-in speech to text feature? So whether you use a laptop or desktop, you can generate text from your voice through your device's microphone. Officially known as Dictation, the app allows you to transcribe text anywhere you can type it. So, for example, you can use Apple Dictation for your messaging and word processing apps.
 
@@ -290,13 +263,6 @@ Please note that you need to speak your punctuations loudly when using Apple Dic
 
 ![top 5 dragon for mac](https://images.wondershare.com/filmora/article-images/2022/07/dragon-for-mac-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Dragon Dictate is arguably the best dictation software currently on the market. According to most users, its accuracy and feature sets are next to none. For example, the Smart Format Rules learns how you represent dates, numbers, and abbreviations, resulting in less editing work for you. The Dragon Dictate app is free to download from the Apple Store.
 
 Dragon for Mac users report a dictation accuracy of nearly 99%, which is excellent in the speech to text software category. All of Nuance's Dragon products use deep learning technology to capture your accent and cadence. As such, the app gets better at transcribing your text as you continue using it. In addition, dragon for Mac professional allows you to transcribe audio clips from uploaded files. For example, you can import audio from your iPhone to your Dragon Dictate workspace and transcribe it hassle-free.
@@ -304,10 +270,10 @@ Dragon for Mac users report a dictation accuracy of nearly 99%, which is excelle
 Unfortunately, you cannot get a stand-alone dragon app for Mac. This is because Nuance discontinued its development in 2018\. In addition, Microsoft's acquisition of the company in 2021 proves that the decision is permanent. However, you can still use the Windows version of Dragon through Parallels, which allows you to run macOS and Windows simultaneously. In addition, this method also works for M1 Macs.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: FAQs
@@ -316,40 +282,20 @@ Unfortunately, you cannot get a stand-alone dragon app for Mac. This is because 
 
 Voice recognition software allows your device to capture your accent and tone and then stores that data for different functions, such as user logins and speech to text functionality. For example, Siri will ask you to repeat a sentence several times as one of the setup steps.
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Which is the best external device for the speech to text service?
 
 Most users report better speech to text accuracy when using headsets compared to using an external microphone. This is because the microphone is much closer to your mouth, so your voice is less affected by external noise.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Can speech to text apps automatically translate a transcribed text?
 
 Yes, they can. Apps such as Google's Speech to Text include a translation feature in their functionality. However, you will need the Google Chrome browser to access Speech to text. This is because the service is only available to active google account holders.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How much faster is speech to text faster than typing?
 
@@ -381,5 +327,26 @@ A 2017 Stanford study states that speech to text is about[three times faster tha
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-analyzing-lightroom-for-mobile-a-detailed-exploration/"><u>[New] 2024 Approved Analyzing Lightroom for Mobile A Detailed Exploration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-embedding-apples-music-in-videos/"><u>[New] 2024 Approved Embedding Apple's Music in Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-focus-on-you-iphone-and-android-photo-trimmers/"><u>[New] 2024 Approved Focus On You IPhone & Android Photo Trimmers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-raw-footage-to-highlight-hits-for-2024/"><u>[New] From Raw Footage to Highlight Hits for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-hacky-podcast-transmission-tactic/"><u>[New] Hacky Podcast Transmission Tactic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-celestial-wonders-at-your-fingertips-hd-sky-website-guide/"><u>[New] In 2024, Celestial Wonders at Your Fingertips - HD Sky Website Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-precise-plot-points-in-a-snapshot/"><u>[New] In 2024, Precise Plot Points in a Snapshot</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visionary-artists-top-5-innovative-photographers-plus-videographers-w-music/"><u>[New] Visionary Artists Top 5 Innovative Photographers + Videographers W/ Music</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-top-6-digital-engagement-channels-for-companies/"><u>[Updated] In 2024, Essential Top 6 Digital Engagement Channels for Companies</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-definitive-guide-to-adding-closed-captions-in-vimeo-footage/"><u>[Updated] In 2024, The Definitive Guide to Adding Closed Captions in Vimeo Footage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-initially-yours-the-ultimate-gear-list-for-gopros-for-2024/"><u>[Updated] Initially Yours The Ultimate Gear List for GoPros for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-recording-slideshow-via-webcam-for-2024/"><u>[Updated] Step-by-Step Recording Slideshow via Webcam for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1726030286414-pc-2024/"><u>「インスタフィードから直接PCへ: 2024年版、ダウンロードガイド」</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/birkac-ozellikleki-movavi-kavramasini-anlatmak-ve-hesaplama-sistemleriyle-ilgili-sorular/"><u>Birkaç Özellikleki Movavi Kavramasını Anlatmak Ve Hesaplama Sistemleriyle İlgili Sorular</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/google-io-2023-reveals-stunning-new-capabilities-in-bard-ai-discover-these-top-7-innovations/"><u>Google I/O 2023 Reveals Stunning New Capabilities in BARD AI: Discover These Top 7 Innovations</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-vivo-v29-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Vivo V29? Fixed | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/premiering-popularity-amazon-prime-tweets-of-23/"><u>Premiering Popularity Amazon Prime Tweets of '23</u></a></li>
+<li><a href="https://win-lab.techidaily.com/swf-online-swf-movavi/"><u>SWF 파일을 원격으로 제공하는 무료 Online SWF 변환 도구 - Movavi</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/top-techniques-in-documenting-real-time-sporting-broadcasts-for-2024/"><u>Top Techniques in Documenting Real-Time Sporting Broadcasts for 2024</u></a></li>
+</ul></div>
 

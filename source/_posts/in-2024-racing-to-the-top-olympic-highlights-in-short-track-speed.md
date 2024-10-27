@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Racing to the Top  Olympic Highlights in Short Track Speed\""
-date: 2024-10-19T19:44:03.569Z
-updated: 2024-10-21T14:15:26.700Z
+date: 2024-10-26T03:38:20.945Z
+updated: 2024-10-27T11:10:43.272Z
 tags: 
   - screen-recording
   - ai video
@@ -38,16 +38,16 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
@@ -55,43 +55,37 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -104,13 +98,6 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -154,6 +141,13 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -177,16 +171,21 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-leading-no-cost-screen-recorders-for-windows-top-5-list/"><u>[New] Leading No-Cost Screen Recorders For Windows – Top 5 List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-emerging-influencers-marketplace-8-quick-win-practices/"><u>[Updated] 2024 Approved Emerging Influencers' Marketplace 8 Quick-Win Practices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-picsart-revamp-explained-in-depth-review-and-step-by-step-tutorial-update/"><u>[Updated] 2024 Approved PicsArt Revamp Explained In-Depth Review & Step-by-Step Tutorial Update</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-editors-edge-adding-sleek-fades-to-your-work/"><u>[Updated] 2024 Approved The Editor's Edge Adding Sleek Fades to Your Work</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-balancing-focus-zooming-tips-for-clear-instagram-stories/"><u>[Updated] Balancing Focus Zooming Tips for Clear Instagram Stories</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-step-by-step-guide-to-android-movie-upturning/"><u>[Updated] Step-by-Step Guide to Android Movie Upturning</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-unveiling-advantages-comprehen/"><u>2024 Approved Unveiling Advantages Comprehen</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/gamers-guide-to-affordable-performance-the-top-2024-graphic-card-reviews/"><u>Gamers' Guide to Affordable Performance: The Top 2024 Graphic Card Reviews</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-honor-70-lite-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Honor 70 Lite 5G without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/organize-ideas-efficiently-with-mematic/"><u>Organize Ideas Efficiently with Mematic</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/switching-to-nocturnal-display-a-how-to-for-iphones/"><u>Switching to Nocturnal Display: A How-To for iPhones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2023s-ultimate-toolwiz-photo-suite-analysis/"><u>[New] 2023'S Ultimate Toolwiz Photo Suite Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-scriptwriters-playbook-for-2024/"><u>[New] A Scriptwriter's Playbook for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-protect-your-live-streams-the-periscope-video-howto-for-2024/"><u>[New] Protect Your Live Streams The Periscope Video HowTo for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-seeking-the-perfect-samsung-gear-360-replacement-our-list-of-2023s-best-cameras/"><u>[New] Seeking the Perfect Samsung Gear 360 Replacement Our List of 2023'S Best Cameras</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-x-marked-moments-in-the-22-snowboard-games/"><u>[New] X-Marked Moments in the '22 Snowboard Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-clear-audio-crystal-clear-view-premium-webcams-for-podcasts/"><u>[Updated] 2024 Approved Clear Audio, Crystal-Clear View Premium Webcams for Podcasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-decoding-the-functions-of-a-virtual-reality-helmet/"><u>[Updated] Decoding The Functions Of A Virtual Reality Helmet</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-busting-myths-essential-facts-on-instagrams-reels/"><u>[Updated] In 2024, Busting Myths Essential Facts on Instagram's Reels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-elevating-your-drone-racing-game-and-discovering-elite-fpv-uavs/"><u>[Updated] In 2024, Elevating Your Drone Racing Game & Discovering Elite FPV UAVs</u></a></li>
+<li><a href="https://win-premium.techidaily.com/complete-guide-mastering-system-backups-with-norton-ghost-on-windows-111087/"><u>Complete Guide: Mastering System Backups with Norton Ghost on Windows 11/10/8/7</u></a></li>
+<li><a href="https://driver-error.techidaily.com/device-compatibility-flaws-wudfrd-loading-issue-id-219/"><u>Device Compatibility Flaws, WudfRd Loading Issue ID: 219</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-gigabyte-nic-driver-to-optimize-your-internet-connection/"><u>Download the Newest Gigabyte NIC Driver to Optimize Your Internet Connection</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-personalize-videos-adding-captions-in-the-photos-app-for-2024/"><u>How to Personalize Videos Adding Captions in the Photos App for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-samsung-galaxy-s23-fe-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Samsung Galaxy S23 FE to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/photographs-dancing-to-musical-rhythms/"><u>Photographs Dancing to Musical Rhythms</u></a></li>
 </ul></div>
 

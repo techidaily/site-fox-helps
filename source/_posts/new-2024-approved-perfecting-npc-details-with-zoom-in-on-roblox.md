@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Perfecting NPC Details with Zoom In on Roblox\""
-date: 2024-10-15T14:02:08.035Z
-updated: 2024-10-21T01:29:00.362Z
+date: 2024-10-23T19:23:33.930Z
+updated: 2024-10-27T11:25:19.940Z
 tags: 
   - screen-recording
   - ai video
@@ -56,26 +56,32 @@ Step1Go to the Roblox website in your favourite web browser by opening it. Start
 ![start testing game session roblox](https://images.wondershare.com/filmora/article-images/2022/07/start-testing-game-session-roblox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2Once your gaming session has begun, you may zoom by using the wheel while moving ahead. Once again, if you scroll all the way down, this action will put you in first person perspective. Now all you have to do is use your cursor to scroll ahead to zoom in.
 
 ![zoom in with cursoe scroll](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-with-cursoe-scroll.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3When the game's map is in your field of vision and you reach the maximum zoom level, just scroll backward with your mouse to zoom out. It will be essential to do the opposite operation, namely scroll the other direction, to zoom out on your character, in order to zoom in.
 
 Step4In order to play at your selected zoom level, scroll backwards and forth. Because your character will be presented in such tiny type, it will be challenging to play comfortably and see it clearly. Therefore, maintaining balance is crucial in order to have the zoom adjusted to your preferred playing style.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Way 3\. Use Xbox Controller Thumbsticks to Zoom
 
@@ -92,10 +98,10 @@ Step2Zoom in by pressing forward on the right thumbstick that has been clicked d
 ![press forward right thumbstick](https://images.wondershare.com/filmora/article-images/2022/07/press-forward-right-thumbstick.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
@@ -111,10 +117,10 @@ Step1Open the Roblox app, sign in, and then start a test gaming session. The fir
 ![zoom in roblox teblet](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-roblox-teblet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2To zoom, just use two fingers and slide them apart (for zooming in) or together (for zooming out) like you would to do so on a smartphone (zoom out).
@@ -161,19 +167,24 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-funny-carousel-image-builder-for-2024/"><u>[New] Funny Carousel Image Builder for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-sudden-pc-cuts-off-windows-11/"><u>[RESOLVED] Sudden PC Cuts Off: Windows 11</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-creative-overhaul-with-tiktok-effects/"><u>[Updated] 2024 Approved Creative Overhaul with TikTok Effects</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-building-buzz-with-your-own-podcast-channel-for-2024/"><u>[Updated] Building Buzz with Your Own Podcast Channel for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-most-massive-lifting-machines-in-the-sky/"><u>[Updated] The Most Massive Lifting Machines in the Sky</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1-apples-next-move-unveiling-the-secure-os-designed-for-cutting-edge-ai-operations-in-their-data-facilities-insights-from-tech-sphere/"><u>1. Apple's Next Move: Unveiling the Secure OS Designed for Cutting-Edge AI Operations in Their Data Facilities | Insights From Tech Sphere</u></a></li>
-<li><a href="https://win-tips.techidaily.com/1-comment-realiser-une-mise-a-niveau-de-votre-sistema-operativo-windows-7/"><u>1. Comment Réaliser Une Mise À Niveau De Votre Sistema Operativo Windows 7 ?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-complete-laptop-and-mobile-manual-for-old-fb-stories/"><u>In 2024, The Complete Laptop & Mobile Manual for Old FB Stories</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-your-pin-library-top-5-free-downloader-software-online/"><u>In 2024, Your Pin Library Top 5 Free Downloader Software Online</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015821825-laptop-audio-not-working-solve-the-silent-problem-today/"><u>Laptop Audio Not Working? Solve the Silent Problem Today!</u></a></li>
-<li><a href="https://win11.techidaily.com/mending-your-silent-windows-headset-mic/"><u>Mending Your Silent Windows Headset Mic</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-razers-synapse-setbacks-on-latest-oses/"><u>Overcoming Razer's Synapse Setbacks on Latest OSes</u></a></li>
-<li><a href="https://driver-error.techidaily.com/revealing-ms-bda-through-visual-rendering-insight/"><u>Revealing MS BDA Through Visual Rendering Insight</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-videographers-packing-essentials-kit/"><u>The Videographer's Packing Essentials Kit</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-why-photo-booth-videos-freeze-suddenly/"><u>[New] Exploring Why Photo Booth Videos Freeze Suddenly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-13-quick-and-simple-income-ideas-for-reddit-novices/"><u>[New] In 2024, 13 Quick and Simple Income Ideas for Reddit Novices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-social-synergy-blueprint-for-ig-and-tiktok-pairing-for-2024/"><u>[New] Social Synergy Blueprint for IG & TikTok Pairing for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-fb-chronicles-merging-music-and-memories/"><u>[Updated] 2024 Approved FB Chronicles Merging Music and Memories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-inside-the-mindset-of-a-photographer-polarrs-editing-techniques/"><u>[Updated] 2024 Approved Inside the Mindset of a Photographer Polarr’s Editing Techniques</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-leading-5-drones-the-ultimate-professional-buy-guide/"><u>[Updated] 2024 Approved Leading 5 Drones - The Ultimate Professional Buy Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-streamlined-shots-in-the-sea-7-easy-to-follow-steps/"><u>[Updated] 2024 Approved Streamlined Shots in the Sea 7 Easy-to-Follow Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-art-of-close-up-meetings-in-ms-teams/"><u>[Updated] 2024 Approved The Art of Close-Up Meetings in MS Teams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-simplified-processes-generating-your-podcasts-rss-feed/"><u>[Updated] In 2024, Simplified Processes Generating Your Podcast's RSS Feed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-accessories-to-elevate-your-sj4000-experience/"><u>[Updated] In 2024, Top Accessories to Elevate Your SJ4000 Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-audio-made-simple-for-imovie-editors/"><u>[Updated] YouTube Audio, Made Simple for iMovie Editors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/achieve-stardom-in-the-digital-world-by-growing-your-facebook-followers/"><u>Achieve Stardom in the Digital World by Growing Your Facebook Followers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/adapting-to-change-the-impact-of-quarantine-on-modern-working-practices/"><u>Adapting to Change: The Impact of Quarantine on Modern Working Practices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Infinix Zero 5G 2023 Turbo?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-hubsan-h501s-exploration-the-ultimate-fpv-experience/"><u>In 2024, Hubsan H501S Exploration The Ultimate FPV Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-podcast-renaming-made-easy-with-these-ai-tools/"><u>In 2024, Podcast Renaming Made Easy with These AI Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/settembre-2024-le-ricette-segrete-e-gratuite-per-schiarire-i-video-nel-modo-migliore-partecipate-ora/"><u>Settembre 2024: Le Ricette Segrete E Gratuite per Schiarire I Video Nel Modo Migliore - Partecipate Ora!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sign-up-now-enjoy-96-off-on-lifetime-mondly-access/"><u>Sign Up Now, Enjoy 96% OFF on Lifetime Mondly Access!</u></a></li>
 </ul></div>
 
