@@ -1,7 +1,7 @@
 ---
 title: "[New] Aerial Adventures with Husqvarna's X4 FPV Quadcopter"
-date: 2024-10-21T21:51:05.814Z
-updated: 2024-10-26T20:39:25.485Z
+date: 2024-10-25T18:40:01.016Z
+updated: 2024-11-01T16:19:07.416Z
 tags: 
   - screen-recording
   - ai video
@@ -63,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
 
  Hubsan H105S X4 is one of the best drone unit with reasonable price range. It is simply the best package with all advanced features including built in GPS. Even if you are a beginner then you will find this drone a good starter.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Complete Review for Hubsan H501S X4
 
 #### 1. Basic Specs info
@@ -121,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
 ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
@@ -134,10 +127,10 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
 ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
@@ -145,6 +138,13 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
 #### 7. Camera
 
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
 
@@ -155,10 +155,10 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -186,14 +186,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-dynamic-movement-analysis-a-complete-examination/"><u>[New] 2024 Approved Dynamic Movement Analysis A Complete Examination</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-quick-and-easy-the-top-ten-for-youtube-mpeg-transformation-for-2024/"><u>[New] Quick and Easy The Top Ten for YouTube MPEG Transformation for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-art-of-sustaining-snapstreaks-for-hours-on-end/"><u>[New] The Art of Sustaining Snapstreaks for Hours on End</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-achieving-effortless-seams-in-inshot-videos-for-2024/"><u>[Updated] Achieving Effortless Seams in Inshot Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-correct-disconnected-instagram-stories-for-2024/"><u>[Updated] Correct Disconnected Instagram Stories for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-optimal-room-decorations-for-livestreams/"><u>[Updated] In 2024, Optimal Room Decorations for Livestreams</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-recording-hulu-episodes-on-multiple-devices/"><u>[Updated] In 2024, The Ultimate Guide to Recording Hulu Episodes on Multiple Devices</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/cracking-the-code-exploring-openai-chiefs-appeal-for-increased-supervision-of-ai-technologies/"><u>Cracking The Code: Exploring OpenAI Chief's Appeal for Increased Supervision of AI Technologies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unveil-your-world-in-wide-angle-iosandroid-photo-integration-on-social-media/"><u>In 2024, Unveil Your World in Wide Angle IOS/Android Photo Integration on Social Media</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-effortless-facebook-live-streams-from-your-smartphone-for-2024/"><u>[New] Effortless Facebook Live Streams From Your Smartphone for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-vimeo-record-features/"><u>[New] In 2024, The Ultimate Guide to Vimeo Record Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-boosting-vfx-efficiency-with-free-lut-downloads/"><u>2024 Approved Boosting VFX Efficiency with FREE LUT Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-economical-dslrs-for-the-cost-conscious/"><u>2024 Approved Economical DSLRs for the Cost-Conscious</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elite-ringtones-selection-high-quality-sites/"><u>2024 Approved Elite Ringtones Selection High-Quality Sites</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-tech-savvy-gamers-hosting-smarter-views/"><u>2024 Approved Tech-Savvy Gamers Hosting Smarter Views</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-science-behind-auto-hdr-and-cameras-ai-powered-shooting-modes/"><u>2024 Approved The Science Behind Auto HDR and Camera's AI-Powered Shooting Modes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-the-magic-crafting-animated-gifs-with-ease/"><u>2024 Approved Unveiling the Magic Crafting Animated GIFs with Ease</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/amplify-your-photography-with-these-top-notch-pixlr-tricks/"><u>Amplify Your Photography with These Top-Notch Pixlr Tricks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-motorola-moto-g14-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Motorola Moto G14</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-tecno-pova-5-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-nokia-c22-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Nokia C22</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/hdd2/"><u>デルHDDの正確なコピー制作手順：2通り</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "How to Get Up Close with Video Chat Colleagues"
-date: 2024-10-23T17:14:49.714Z
-updated: 2024-10-27T02:04:35.749Z
+date: 2024-10-29T21:03:05.362Z
+updated: 2024-11-01T19:16:30.015Z
 tags: 
   - screen-recording
   - ai video
@@ -44,16 +44,10 @@ Step1 Set up a video conferencing setup and start a conference in your web brows
 ![setup google meet](https://images.wondershare.com/filmora/article-images/2022/07/setup-google-meet.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Hover over the shared screen and click the Pin symbol to save it. Go to the "Webcam Settings" window, pick the "Camera Control" option at the top, then select the webcam from the drop-down list.
@@ -64,6 +58,13 @@ Step3 The "Layout" option is next to the slider; click it. Adjust it in the dire
 
 ![layout options google meet](https://images.wondershare.com/filmora/article-images/2022/07/layout-options-google-meet.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Change your Layout to "Focus" in the Meet Menu (three dots). By repeatedly hitting CTRL+ minus (-), you can zoom out (!). The Meet controls at the bottom get smaller as a result. With CTRL+0, you may subsequently reverse your zoom.
 
 Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full screen mode may be ended.
@@ -71,17 +72,10 @@ Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full sc
 ![full screen mode google meet](https://images.wondershare.com/filmora/article-images/2022/07/full-screen-mode-google-meet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Tips and tricks to use Google Meet
@@ -98,10 +92,10 @@ Those who have a Google Account are able to start a meeting. It's simple to make
 * Users of Google Meet will be able to pin many individuals to the top of their tiled screen. This will be especially useful if you have meetings where two or three people talk the majority of the time.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -138,21 +132,18 @@ You may show additional information on your Google Meet by zooming in and out. O
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-navigate-the-clouds-and-crowd-fb-livestreams-via-dji/"><u>[New] 2024 Approved Navigate the Clouds and Crowd FB Livestreams via DJI</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-screen-shot-entire-page-view/"><u>[New] 2024 Approved Screen Shot Entire Page View</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-experience-realities-unveiled-vr-tour-essentials-for-2024/"><u>[New] Experience Realities Unveiled VR Tour Essentials for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-picks-of-the-year-premium-google-cardboard-vr-gaming/"><u>[New] Picks of the Year Premium Google Cardboard VR Gaming</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-cinematic-mastery-starts-here-the-best-cameras-of-all-levels/"><u>[Updated] 2024 Approved Cinematic Mastery Starts Here The Best Cameras of All Levels</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-art-of-high-dynamic-range-pro-photoshop-techniques/"><u>[Updated] 2024 Approved The Art of High Dynamic Range Pro Photoshop Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-boost-your-photo-skills-with-these-top-pixlr-tricks-for-2024/"><u>[Updated] Boost Your Photo Skills with These Top Pixlr Tricks for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-perfect-your-xbox-footage-4-recording-strategies-revealed/"><u>[Updated] In 2024, Perfect Your Xbox Footage 4 Recording Strategies Revealed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-jokes-in-jams-best-funny-video-concepts-under-five-minutes/"><u>[Updated] Jokes in Jams Best Funny Video Concepts Under Five Minutes</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-to-turn-on-chatgpts-new-beta-web-browsing-and-plugins-features/"><u>How to Turn on ChatGPT's New Beta Web Browsing and Plugins Features</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-icy-illusions-reveling-at-beijings-olympic-event-2022/"><u>In 2024, Icy Illusions Reveling at Beijing's Olympic Event, 2022</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-photojester-snapyour-chuckles/"><u>In 2024, PhotoJester SnapYour Chuckles</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-portable-shake-reducer-for-clear-video-capture/"><u>In 2024, Ultimate Portable Shake Reducer for Clear Video Capture</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/navigating-troublesome-glitches-pro-tips-for-a-smooth-biomutant-experience-on-pc/"><u>Navigating Troublesome Glitches: Pro Tips for a Smooth Biomutant Experience on PC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-v30-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo V30 Phone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-ranking-apple-watch-screen-guard-exclusive-review-of-the-ideal-picks-insights/"><u>Top-Ranking Apple Watch Screen Guard: Exclusive Review of the Ideal Picks - Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mirror-image-flipping-youtube-videos-online/"><u>[New] 2024 Approved Mirror Image Flipping YouTube Videos Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-become-a-canvas-connoisseur-with-these-10-tips-for-2024/"><u>[New] Become a Canvas Connoisseur with These 10 Tips for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-detailed-audit-unveiling-the-dji-inspire-1-for-2024/"><u>[New] Detailed Audit Unveiling the DJI Inspire 1 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-your-media-with-vlcs-secret-features/"><u>[New] Mastering Your Media with VLC's Secret Features</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-vidvault-screen-recording-review-for-2efficiency-seekers/"><u>[Updated] 2024 Approved 'VidVault' Screen Recording Review for 2Efficiency Seekers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-into-every-detail-a-deep-dive-into-dji-phantom-4/"><u>[Updated] 2024 Approved Into Every Detail A Deep Dive Into DJI Phantom 4</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unlock-full-screen-potential-on-youtube-videos/"><u>[Updated] 2024 Approved Unlock Full Screen Potential on YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-your-youtube-music-collection-a-detailed-guide/"><u>[Updated] 2024 Approved Unlocking Your YouTube Music Collection A Detailed Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/deciding-audio-platforms-podcasts-or-youtube-for-2024/"><u>Deciding Audio Platforms Podcasts or YouTube for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-infinix-hot-30-5g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Infinix Hot 30 5G</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-apple-iphone-12-mini-look-no-further-drfone-by-drfone-virtual-ios/"><u>Looking For A Location Changer On Apple iPhone 12 mini? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-programming-explore-best-rated-e-learning-platforms/"><u>Mastering Programming: Explore Best-Rated E-Learning Platforms</u></a></li>
 </ul></div>
 

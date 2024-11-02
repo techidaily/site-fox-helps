@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Restore Windows Photo Viewer in Windows 10\""
-date: 2024-10-25T19:11:38.019Z
-updated: 2024-10-27T11:51:41.859Z
+date: 2024-10-28T17:22:26.265Z
+updated: 2024-11-01T18:02:26.181Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
@@ -89,35 +96,15 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -125,13 +112,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,19 +153,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-crafting-cinematic-experiences-on-your-desktop-with-windows-hdr/"><u>[New] 2024 Approved Crafting Cinematic Experiences on Your Desktop with Windows HDR</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-freeze-frame-like-a-pro-easy-steps-to-amazing-slow-mo-videos-on-android/"><u>[New] Freeze Frame Like a Pro Easy Steps to Amazing Slow Mo Videos on Android</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-optimizing-vimeo-media-velocity/"><u>[Updated] 2024 Approved Optimizing Vimeo Media Velocity</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-high-definition-options-best-4k-camera-support-systems-for-2024/"><u>[Updated] High Definition Options Best 4K Camera Support Systems for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-10-premier-choices-for-no-cost-screen-recording-tools/"><u>[Updated] In 2024, 10 Premier Choices for No-Cost Screen Recording Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-image-curves-in-adobe-photoshop/"><u>[Updated] In 2024, Mastering Image Curves in Adobe Photoshop</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-secrets-of-av1-codec-mastery/"><u>[Updated] In 2024, Unveiling the Secrets of AV1 Codec Mastery</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-music-manifesto-constructing-your-signature-youtube-playlists/"><u>2024 Approved Music Manifesto Constructing Your Signature YouTube Playlists</u></a></li>
-<li><a href="https://windows11.techidaily.com/discovering-the-power-of-wintoys-a-step-by-step-analysis-for-windows-users/"><u>Discovering the Power of WinToys: A Step-by-Step Analysis for Windows Users</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-update-your-pc-with-the-latest-microsoft-sound-card-drivers-for-windows-systems/"><u>How to Update Your PC with the Latest Microsoft Sound Card Drivers for Windows Systems</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-samsung-galaxy-z-flip-5-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Samsung Galaxy Z Flip 5 Phone? Unlock It Now</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-revolutionizing-smartphone-photography-iphone-xs-features-explored/"><u>In 2024, Revolutionizing Smartphone Photography IPhone X's Features Explored</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/transformar-mp4-en-mp3-sin-costo-guias-actualizadas-para-obtener-el-mejor-sonido/"><u>Transformar MP4 en MP3 Sin Costo: Guías Actualizadas Para Obtener El Mejor Sonido</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixed-fnaf-security-breach-crashing-on-pc/"><u>[FIXED] FNAF Security Breach Crashing on PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-insights-streamlining-filters-integration-in-media-production/"><u>[New] Expert Insights Streamlining Filters Integration in Media Production</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-6-sites-boosting-corporate-engagement/"><u>[New] Premier 6 Sites Boosting Corporate Engagement</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-decoding-automatic-clips-in-imovie/"><u>2024 Approved Decoding Automatic Clips in iMovie</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-harness-lightrooms-power-to-create-dynamic-hdr-photos/"><u>2024 Approved Harness Lightroom's Power to Create Dynamic HDR Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-mastering-elegant-mosaic-imagery-fusions/"><u>2024 Approved Mastering Elegant Mosaic Imagery Fusions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimizing-your-creative-process-windows-movie-maker-on-windows-8-unveiled/"><u>2024 Approved Optimizing Your Creative Process Windows Movie Maker on Windows 8 Unveiled</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-essential-guide-to-mixing-linktree-and-tiktok-bios/"><u>2024 Approved The Essential Guide to Mixing Linktree and TikTok Bios</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-wizards-whisper-are-voice-changer-apps-actual-magic-unveil-other-choices/"><u>2024 Approved Wizard's Whisper Are Voice Changer Apps Actual Magic? Unveil Other Choices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-nokia-xr21-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Nokia XR21 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/dialogue-design-mastery-using-gpt-to-build-unique-bots/"><u>Dialogue Design Mastery: Using GPT to Build Unique Bots</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-11-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone 11</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-the-issue-how-to-get-your-teams-webcam-functioning-again-on-windows-11-10-and-7/"><u>Solving the Issue: How to Get Your Team's Webcam Functioning Again on Windows 11, 10 & 7</u></a></li>
 </ul></div>
 

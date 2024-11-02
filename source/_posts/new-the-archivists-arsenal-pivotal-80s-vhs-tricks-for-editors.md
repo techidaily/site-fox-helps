@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Archivist’s Arsenal  Pivotal 80S VHS Tricks for Editors\""
-date: 2024-10-24T02:28:21.265Z
-updated: 2024-10-27T01:21:59.384Z
+date: 2024-10-29T16:12:35.804Z
+updated: 2024-11-02T00:39:21.324Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,13 @@ The VHS effects are not a technology but a technique you can use in post product
 ### Advanced Editing Tools
 
 Along with the advent of video editing software, the procedure through which you can apply VHS has become more accessible and advanced. It is an optimized and efficient procedure and integrates several plugins to boost your productivity. The advanced editing tools also let users fine-tune the look and manage preferences.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Quality of Effects
 
@@ -72,10 +79,10 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 ![vhs glitches music video](https://images.wondershare.com/filmora/article-images/2023/vhs-glitches-music-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. VHS Madness Logo Reveal
@@ -109,10 +116,10 @@ Are you creating a real-life horror movie? Do you wish to make it unrealisticall
 ![vhs horror trailers and titles](https://images.wondershare.com/filmora/article-images/2023/vhs-horror-trailers-and-titles.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Wicked Urban Opener
@@ -139,24 +146,31 @@ The VHS-integrated videos are not completed without the 80s effects. With [80’
 
 ![80s intro](https://images.wondershare.com/filmora/article-images/2023/80s-intro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 12\. TV Distort Loop Pack
 
 Many videographers use 80 VHS filters to create smooth distortion in videos. Luckily, you have the [TV Distort Loop Pack](https://elements.envato.com/tv-distort-loop-pack-ZYFFG4F?%5Fga=2.235164545.1638816870.1686914298-229458477.1686810746) through which you can add distortion lines in videos. It is perfect for movies displayed on big screens. This turns out to be an ideal addition for those who intend to create videos while expressing nostalgia.
 
 ![tv distort loop pack](https://images.wondershare.com/filmora/article-images/2023/tv-distort-loop-pack.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Wondershare Filmora: Using VHS Effects to Create Videos
 
 Now that you are aware of the VHS effects, you must be looking for a video editor to apply this. The industry-grade video editor through which you can apply 80s VHS effects in videos is [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). One of the best things about Filmora is it comprehends more than 100 VHS effects for the ease of the users.
 
 Moreover, it is also feature-rich software, which you can use to modify your simple videos to a further extent. The built-in templates of Filmora let you create optimistically impressive videos without investing extra time and effort. You can also access all your previous projects from its Cloud Project feature.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add VHS Effects in Videos with Filmora
 
@@ -167,6 +181,19 @@ Here is the procedure for adding the 80s video camera effect in videos with Wond
 [Add VHS Effects in Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -208,13 +235,6 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 
 ![vhs transition](https://images.wondershare.com/filmora/article-images/2023/vhs-transition.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. VHS Glitches Music Video
 
 [VHS Glitches Music Video](https://elements.envato.com/vhs-glitches-music-video-A3CXY4S?irgwc=1&clickid=VRbwqXTAKxyNR3CzNTQzc24XUkFxRhTlUS4M0k0&iradid=298927&utm%5Fcampaign=elements%5Faf%5F312283&iradtype=ONLINE%5FTRACKING%5FLINK&irmptype=mediapartner&utm%5Fmedium=affiliate&utm%5Fsource=impact%5Fradius&mp=justcreative) is known to be the simplest and most significant effect in the videos. As the name indicates, you can use it to add glitch effects to the videos. Moreover, this effect can also be used in animation videos. This effect also offers the capability to sync with the audio in the video.
@@ -234,10 +254,10 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 ![vhs toolkit for after effects](https://images.wondershare.com/filmora/article-images/2023/vhs-toolkit-for-after-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Retro Rider
@@ -251,13 +271,6 @@ VHS never forgets any type of video and offers - [Retro Rider](https://elements.
 For old-school kids, [Glitch Opener VHS](https://elements.envato.com/glitch-opener-vhs-NJV452C?%5Fga=2.265245839.1638816870.1686914298-229458477.1686810746) high-quality effect can add amazing effects to videos and can refresh your memories. There is no need to use external plugins to get creative with this effect. The distortion of this effect is so smooth that you will not face the need to add other elements in videos.
 
 ![glitch opener vhs](https://images.wondershare.com/filmora/article-images/2023/glitch-opener-vhs.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. VHS Horror Trailers and Titles
 
@@ -277,13 +290,6 @@ If you are looking for a noise-flexible package, you can use [VHS Noise](https:/
 
 ![vhs noise](https://images.wondershare.com/filmora/article-images/2023/vhs-noise.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. Rampant VHS Effect
 
 In [Rampant VHS Effect](https://rampantdesigntools.com/product/rampant-vhs-effect-premiere-pro-template/) template, you can find tons of cool VHS effects to give a cinematic look to the videos. As it is compatible with both Mac and Windows, you will not face any restrictions with this. Moreover, it is also available in HD quality, so the video integrated with this effect will have reliable quality.
@@ -295,13 +301,6 @@ In [Rampant VHS Effect](https://rampantdesigntools.com/product/rampant-vhs-effec
 The VHS-integrated videos are not completed without the 80s effects. With [80’s Intro](https://elements.envato.com/80s-intro-VKFQ7A5?irgwc=1&clickid=VRbwqXTAKxyNR3CzNTQzc24XUkFxRB2JUS4M0k0&iradid=298927&utm%5Fcampaign=elements%5Faf%5F312283&iradtype=ONLINE%5FTRACKING%5FLINK&irmptype=mediapartner&utm%5Fmedium=affiliate&utm%5Fsource=impact%5Fradius&mp=justcreative), you can create the intros just as they were created in VHS launch years. It also works as a perfect video opener and can be used in business videos. It can be the perfect addition to an explainer video for some products having old ties.
 
 ![80s intro](https://images.wondershare.com/filmora/article-images/2023/80s-intro.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 12\. TV Distort Loop Pack
 
@@ -324,6 +323,13 @@ Here is the procedure for adding the 80s video camera effect in videos with Wond
 [Add VHS Effects in Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -383,20 +389,24 @@ To apply the **80s VHS effects**, you can take assistance from Wondershare Filmo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-blur-out-not-into-discovering-photo-clarity-web-tools/"><u>[New] Blur Out, Not Into! Discovering Photo Clarity Web Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-imagery-inspiration-skillful-grading-techniques-for-2024/"><u>[New] Imagery Inspiration Skillful Grading Techniques for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-advanced-techniques-for-using-live-photos-in-mobile-devices/"><u>[New] In 2024, Advanced Techniques for Using Live Photos in Mobile Devices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-convert-srt-fastly-a-compreenas-the-minute-blueprint-2023/"><u>[New] In 2024, Convert SRT Fastly A Compreenas-the-Minute Blueprint 2023</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-art-of-video-storytelling-integrating-audio-narration/"><u>[New] In 2024, The Art of Video Storytelling Integrating Audio Narration</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-animatedapp-full-guide-and-review-24-overview/"><u>[Updated] 2024 Approved AnimatedApp Full Guide & Review '24 Overview</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-building-impressive-instagram-story-bookmarks/"><u>[Updated] 2024 Approved Building Impressive Instagram Story Bookmarks</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-enhanced-cutting-techniques-for-professional-vimeo-media/"><u>2024 Approved Enhanced Cutting Techniques for Professional Vimeo Media</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-master-the-art-of-photo-display-with-best-frames/"><u>2024 Approved Master the Art of Photo Display with Best Frames</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/authoritative-guide-to-premium-auto-camera-tech-for-2024/"><u>Authoritative Guide to Premium Auto Camera Tech for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of Apple iPhone SE (2022)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-ultimate-students-guide-to-historical-channels-1-10/"><u>In 2024, Ultimate Students' Guide to Historical Channels #1-10</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unexpected-vertical-tilt-in-instagram-vids-why/"><u>In 2024, Unexpected Vertical Tilt in Instagram Vids? Why?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/navigating-azure-speech-recognition-efficiently-for-2024/"><u>Navigating Azure Speech Recognition Efficiently for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/no-cost-entertainment-with-xbox-discounts/"><u>No-Cost Entertainment with Xbox Discounts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-invent-iconic-image-jokes/"><u>[New] Invent Iconic Image Jokes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-maximizing-color-grading-efficiency-with-obs-and-lut-techniques-for-2024/"><u>[New] Maximizing Color Grading Efficiency with OBS and LUT Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-photo-perfection-best-practices-for-integrating-frames-online/"><u>[New] Photo Perfection Best Practices for Integrating Frames Online</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-professional-minecraft-videography-methods/"><u>[New] Professional Minecraft Videography Methods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-step-by-step-audacity-crossfading-process-for-2024/"><u>[New] Step-by-Step Audacity Crossfading Process for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-free-easy-to-use-srt-translation-services-explored-for-2024/"><u>[New] Top Free, Easy-to-Use SRT Translation Services Explored for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visionary-chip-uninterrupted-editing-on-the-newest-tech-for-2024/"><u>[New] Visionary Chip Uninterrupted Editing on the Newest Tech for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-amd-gpu-update-analysis-and-installation/"><u>[Updated] 2024 Approved AMD GPU Update Analysis & Installation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[Updated] 2024 Approved Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-art-of-solo-audio-stardom-stepwise-creation-for-2024/"><u>[Updated] The Art of Solo Audio Stardom Stepwise Creation for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-is-it-legal-to-record-youtube/"><u>2024 Approved Is It Legal to Record YouTube?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-turn-your-iphone-images-upside-down-with-precision/"><u>2024 Approved Turn Your iPhone Images Upside Down with Precision</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/fast-techniques-to-recover-deleted-reddit-posts-for-2024/"><u>Fast Techniques to Recover Deleted Reddit Posts for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-record-calls-on-windows/"><u>How to Record Calls on Windows</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/pushing-boundaries-innovative-memes-with-kinemaster-for-2024/"><u>Pushing Boundaries Innovative Memes with KineMaster for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-the-issue-when-your-outlook-fails-to-launch/"><u>Solving the Issue When Your Outlook Fails to Launch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-motorola-one-hyper-evaluation-an-impressive-mid-range-contender-with-stellar-features/"><u>The Motorola One Hyper Evaluation: An Impressive Mid-Range Contender with Stellar Features</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/top-free-video-editors-for-32-bit-windows-computers-for-2024/"><u>Top Free Video Editors for 32-Bit Windows Computers for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-your-gmails-potential-with-easy-alias-creation-techniques/"><u>Unlocking Your Gmail's Potential with Easy Alias Creation Techniques</u></a></li>
 </ul></div>
 

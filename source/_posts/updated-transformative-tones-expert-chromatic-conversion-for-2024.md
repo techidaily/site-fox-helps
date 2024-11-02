@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transformative Tones  Expert Chromatic Conversion for 2024\""
-date: 2024-10-21T03:31:52.997Z
-updated: 2024-10-27T08:08:41.036Z
+date: 2024-10-25T23:55:07.372Z
+updated: 2024-11-02T03:46:32.719Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ Another way to change the color of the shirt is by navigating to the “Solid Co
 
 ![select hue or color mode](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Tips 2: Use Black and White Colors
 
 Another option in Adobe Photoshop photo color editor to add black or white color to the shirt is by using the "Hue and Saturation Adjustment Layer.” For this, you need to create a group and then apply a layer mask to it by reducing its saturation. After that, you can apply a hue and saturation adjustment layer to it to have a white or black effect on the shirt.
@@ -53,18 +60,18 @@ Now do the tuning by navigating to the layer mask and also select the layers. Af
 
 ![use sliders to black or white](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Tip 3: Add Color to White Object
 
 If you want to add color to your black or white shirt, you can do it by “Hue and Saturation Adjustment Layer.” On this layer, tap on “Colorize” and choose the color you want to add. Another technique is to create a “Fill Adjustment Layer” and then change the blending mode into “Multiple.” Now, click on the “Color Picker,” and you can pick and choose your preferred color. If you want to add a dark color rather than a subtle color, change the mode to “Screen.”
 
 ![ pick the color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Tip 4: Use Direct Selection Color Picker
 
@@ -75,10 +82,10 @@ At the bottom of the options, you can see two points that will tell you about yo
 ![ change specific color to another color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Tip 5: Choose Object Color Range
@@ -87,6 +94,13 @@ Do you want to change the color of a specific part of the image? You can do this
 
 ![access color range option](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After clicking on the color range option, a pop-up window will appear from which tap on “Selection.” You can view your image on the preview window and can select the whole back using the “Selection” tool.
 
 ![select complete object](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-7.jpg)
@@ -94,19 +108,6 @@ After clicking on the color range option, a pop-up window will appear from which
 Afterward, create a group in which add layers, mask, and adjustment layers to change the saturation, color, and brightness of the selected area accurately. To only change the color, drag the sliders of hue to do it instantly.
 
 ![change hue for changing color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Tip 6: Use Blend IF
 
@@ -117,32 +118,26 @@ Similarly, if you drag the “Blend IF” sliders towards white pints, it can hi
 ![select the channel color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This method only hides color based on their luminance values; however, this loads the entire layer when loading the active pixels. Regardless, this can be changed into transparency. For this, you need to select the layer by right-clicking and selecting the option of “Convert to Smart Object.”
 
 ![convert to smart object](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It helps the user create transparency across the layer. After hiding the layer and coming back to another object-specific layer, you can create a certain change in effect through adjustment layers. For instance, you can create a “Hue and Saturation” adjustment layer. With the above settings, Photoshop applies this as a layer mask for you. Use the sliders across the set layer to change the color across the selected areas.
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
@@ -152,22 +147,15 @@ To change the color, navigate to this tool and upload the images. Then, head to 
 
 ![select source color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To increase or decrease the intensity of your color, use the “Tolerance” option, and drag it accordingly. If you want to change the hue of the source color, click on the box next to “Target Color.” If you have accidentally applied any color on some part, you can head to erase tab and can remove the alterations from the brush.
 
 ![choose target color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -198,18 +186,18 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-complete-guide-mastering-voice-recognition-in-google-documents/"><u>[New] 2024 Approved Complete Guide Mastering Voice Recognition in Google Documents</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solved-black-desert-online-crashing-on-pc/"><u>[Solved] Black Desert Online Crashing on PC</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-bandicam-revolutionizing-screen-capture-for-modern-media/"><u>[Updated] 2024 Approved Bandicam Revolutionizing Screen Capture for Modern Media</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-essential-tips-to-create-impressive-auditory-openers/"><u>[Updated] 2024 Approved Essential Tips to Create Impressive Auditory Openers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-how-to-edit-drone-videos-for-2024/"><u>[Updated] How to Edit Drone Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unleash-the-potential-of-pip-in-microsoft-edge-browser/"><u>[Updated] In 2024, Unleash the Potential of PIP in Microsoft Edge Browser</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-vids-unpacked-whats-inside/"><u>Flash Vids Unpacked What's Inside?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-seamless-tiktok-content-for-twitter-audience/"><u>In 2024, Seamless TikTok Content for Twitter Audience</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/perfect-cone-view-mounts-vr/"><u>Perfect Cone View Mounts VR</u></a></li>
-<li><a href="https://driver-install.techidaily.com/revitalize-pc-performance-windows-11-thinkpad-drivers/"><u>Revitalize PC Performance - Windows 11 Thinkpad Drivers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/synergistic-campaigns-brands-and-youtube-hand-in-hand/"><u>Synergistic Campaigns Brands & YouTube Hand in Hand</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-list-of-affordable-powerhouse-gaming-laptops-for-less-than-1500/"><u>Ultimate List of Affordable Powerhouse Gaming Laptops for Less than $1,500</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/unlock-professional-editing-techniques-in-fcp-for-2024/"><u>Unlock Professional Editing Techniques in FCP for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-camera-powerhouse-selecting-the-10-best-4k-phones/"><u>[New] In 2024, Camera Powerhouse Selecting the 10 Best 4K Phones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-seeing-beyond-our-elite-rankings-of-camera-lenses-1-10/"><u>[New] In 2024, Seeing Beyond Our Elite Rankings of Camera Lenses #1-10</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-selecting-the-perfect-timing-for-b-roll-insertion/"><u>[New] Selecting the Perfect Timing for B Roll Insertion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-android-and-ios-leaders-in-asmr-content/"><u>[Updated] 2024 Approved Android & iOS Leaders in ASMR Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-combining-youtube-videos-for-seamless-playback/"><u>[Updated] 2024 Approved Combining YouTube Videos for Seamless Playback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-financial-motives-in-consumer-video-evaluations/"><u>[Updated] In 2024, Financial Motives in Consumer Video Evaluations?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-syncing-vimeo-and-instagram-the-ultimate-guide/"><u>[Updated] In 2024, Syncing Vimeo and Instagram The Ultimate Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-foundations-of-virtual-storytelling/"><u>[Updated] Unveiling the Foundations of Virtual Storytelling</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-ultimate-tips-for-instagram-video-reverse-playback/"><u>2024 Approved Ultimate Tips for Instagram Video Reverse Playback</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exploring-gopros-peak-adapters-the-ultimate-6-selection-guide/"><u>Exploring GoPro's Peak Adapters The Ultimate 6 Selection Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-produce-a-trending-solo-podcast-series/"><u>How To Produce A Trending Solo Podcast Series</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/master-blending-techniques-for-clips-harmony-for-2024/"><u>Master Blending Techniques for Clips Harmony for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pedal-to-the-metal-with-kids-a-comprehvew-of-the-holy-stone-cartoon-race-car-toy/"><u>Pedal to the Metal with Kids - A Comprehvew of the Holy Stone Cartoon Race Car Toy</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Reviving Photo Viewer on Win 11 - Methods Explained for 2024\""
-date: 2024-10-22T08:32:41.468Z
-updated: 2024-10-27T09:42:53.466Z
+date: 2024-10-30T23:15:11.827Z
+updated: 2024-11-01T20:34:13.986Z
 tags: 
   - screen-recording
   - ai video
@@ -70,9 +70,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -88,35 +102,15 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -125,14 +119,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -159,22 +153,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-a-visual-extravaganza-detailed-examination-of-lg-ud88-uhd-tv/"><u>[New] A Visual Extravaganza Detailed Examination of LG UD88-UHD TV</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-devices-needed-for-documenting-trips/"><u>[New] Devices Needed for Documenting Trips</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-enhancing-engagement-how-to-use-background-footage-for-2024/"><u>[New] Enhancing Engagement How to Use Background Footage for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-harmonizing-visual-media-and-audio-through-premiere-pros-features-for-2024/"><u>[New] Harmonizing Visual Media and Audio Through Premiere Pro's Features for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-boost-creativity-and-engagement-10-best-sources-of-free-slide-show-patterns/"><u>[New] In 2024, Boost Creativity and Engagement - 10 Best Sources of Free Slide Show Patterns</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-excellence-in-dialogue-and-plot-hub/"><u>[New] In 2024, Excellence in Dialogue & Plot Hub</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-snap-to-perfection-editing-strategies-that-work-wonders/"><u>[New] In 2024, Snap to Perfection Editing Strategies That Work Wonders</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-pioneering-gear-for-ultimate-vr-glove-experience-for-2024/"><u>[New] Pioneering Gear for Ultimate VR Glove Experience for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boost-engagement-and-growth-unlocking-youtube-analytics-via-social-blade/"><u>[Updated] 2024 Approved Boost Engagement and Growth - Unlocking YouTube Analytics via Social Blade</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-innovative-leaders-in-hexadrones-10/"><u>[Updated] 2024 Approved Innovative Leaders in HexaDrones - 10</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-gamers-screen-guide-best-monitors-at-4k-quality/"><u>2024 Approved Top Gamers' Screen Guide Best Monitors at 4K Quality</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-mp4-to-3gp-converter-effortless-online-format-switching-with-movavi/"><u>Free MP4 to 3Gp Converter - Effortless Online Format Switching with Movavi</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/harnessing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker/"><u>Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker</u></a></li>
-<li><a href="https://extra-information.techidaily.com/honoring-artistry-essential-stop-motion-movies-top-15/"><u>Honoring Artistry Essential Stop-Motion Movies (Top 15)</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-realme-gt-5-pro-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Realme GT 5 Pro? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/mac-mastery-enhance-storage-and-quality-with-dvd-shrink-the-ultimate-guide-to-dvd-ripping-and-compression/"><u>Mac Mastery: Enhance Storage and Quality with DVD Shrink - The Ultimate Guide to DVD Ripping & Compression</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-jaycut-essentials-learn-how-to-use-free-online-video-editing-software-like-a-pro-for-2024/"><u>New Jaycut Essentials Learn How to Use Free Online Video Editing Software Like a Pro for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-essential-tips-for-organizing-online-gatherings-google-meet/"><u>[New] Essential Tips for Organizing Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-excellent-free-memes-at-your-fingertips/"><u>[New] In 2024, Excellent FREE Memes at Your Fingertips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-videos-enhance-your-watch-time/"><u>[Updated] 2024 Approved Instagram Videos Enhance Your Watch Time</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-excellent-webcams-for-clear-podcast-broadcasts-for-2024/"><u>[Updated] Excellent Webcams for Clear Podcast Broadcasts for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-stream-control-tactics-10-ways-to-unwind-live-play/"><u>[Updated] In 2024, Stream Control Tactics 10 Ways to Unwind Live Play</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-proiphone-macro-techniques-achieving-professional-quality-for-2024/"><u>[Updated] Proiphone Macro Techniques Achieving Professional Quality for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-guide-to-online-photo-cropting-accuracy/"><u>2024 Approved The Ultimate Guide to Online Photo Cropting Accuracy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-tips-for-dimming-windows-and-mac-music-volume/"><u>2024 Approved Tips for Dimming Windows & Mac Music Volume</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-prism-of-design-from-theory-to-practice/"><u>A Prism of Design From Theory to Practice</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-oppo-find-n3-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupt MP4,MOV,AVI video files of Oppo Find N3</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/clear-the-chaos-edit-and-cull-your-bulky-tiktok-collections/"><u>Clear the Chaos Edit & Cull Your Bulky TikTok Collections</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-the-latest-in-computing-toms-hardware-hub/"><u>Discover the Latest in Computing - Tom's Hardware Hub</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-strategies-to-amplify-zoomed-participants-in-google-meet/"><u>In 2024, Proven Strategies to Amplify Zoomed Participants in Google Meet</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-the-art-of-sharing-high-resolution-videos-on-whatsapp-explore-three-strategies-for-success/"><u>Mastering the Art of Sharing High-Resolution Videos on WhatsApp - Explore Three Strategies for Success</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/maximize-mind-capacity-instantly-and-cost-free-on-new-lg-gram-styles-see-how-you-can-double-your-memory-now/"><u>Maximize Mind Capacity Instantly & Cost-Free on New LG Gram Styles - See How You Can Double Your Memory Now!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/modern-uses-of-drones-to-coming-innovations-for-2024/"><u>Modern Uses of Drones to Coming Innovations for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-7-wma-to-mp3-converter-tools-compatible-with-pc-mac-and-web-browsers/"><u>Top 7 WMA to MP3 Converter Tools Compatible with PC, Mac, & Web Browsers</u></a></li>
 </ul></div>
 
