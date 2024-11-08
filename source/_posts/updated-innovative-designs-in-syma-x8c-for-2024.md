@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Innovative Designs in Syma X8C for 2024"
-date: 2024-09-11T10:15:26.677Z
-updated: 2024-09-12T10:15:26.677Z
+date: 2024-10-31T23:52:34.980Z
+updated: 2024-11-08T01:37:38.260Z
 tags: 
   - screen-recording
   - ai video
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 
 **You may also like:** [Full review for Syma X5C >>](HTTPS://filmora.wondershare.com/drones/syma-x5c-drone-review.html)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Pros and Cons of Syma X8C
 
 **Pros:**
@@ -62,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -80,19 +80,6 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -110,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -123,20 +110,13 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -145,10 +125,10 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -174,5 +154,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-boost-your-content-visibility-facebook-video-tips-and-tricks/"><u>[New] 2024 Approved Boost Your Content Visibility Facebook Video Tips and Tricks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-game-ahead-with-funimates-easy-apk-instructions/"><u>[New] 2024 Approved Game Ahead with Funimate's Easy APK Instructions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mix-memes-with-a-smile/"><u>[New] 2024 Approved Mix Memes with a Smile</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-enhance-spark-ar-graphics-the-importance-of-customized-lut-usage/"><u>[New] Enhance Spark AR Graphics The Importance of Customized LUT Usage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-remove-image-background-in-photopea/"><u>[New] How to Remove Image Background In Photopea</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-leveraging-unwanted-scenes-for-creative-outcomes/"><u>[New] In 2024, Leveraging Unwanted Scenes for Creative Outcomes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-navigating-video-conferencing-with-ease-on-your-win10-pc-for-2024/"><u>[New] Navigating Video Conferencing with Ease on Your Win10 PC for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-art-of-converting-still-images-into-engaging-videos-with-pixiz/"><u>[New] Unveiling the Art of Converting Still Images Into Engaging Videos with Pixiz</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-convert-a-spotify-playlist-to-youtube-music-for-2024/"><u>[Updated] How to Convert A Spotify Playlist To YouTube Music for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-maximize-mobile-movie-brilliance-with-these-four-methods/"><u>[Updated] Maximize Mobile Movie Brilliance with These Four Methods</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-ranking-of-free-easy-to-use-image-overlay-apps-on-smartphones/"><u>[Updated] Ranking of Free, Easy-to-Use Image Overlay Apps on Smartphones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-seizing-youtubes-algorithm-advantage-with-smart-seo-tactics/"><u>[Updated] Seizing YouTube's Algorithm Advantage with Smart SEO Tactics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-understanding-instagrams-video-limit-policy-for-2024/"><u>[Updated] Understanding Instagram's Video Limit Policy for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/extreme-mugurisu-amber-strawberry-edition-vs-kryonaut-battling-for-the-best-pineapple-scented-thermal-paste/"><u>Extreme MUGURISU Amber Strawberry Edition Vs. Kryonaut - Battling for the Best Pineapple Scented Thermal Paste</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-balance-of-serene-visuals/"><u>In 2024, The Balance of Serene Visuals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-top-batteries-and-chargers-for-gopro-hero5-official-and-counterfeits/"><u>In 2024, Top Batteries and Chargers for GoPro Hero5 – Official & Counterfeits</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-meizu-21-pro-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Meizu 21 Pro Device</u></a></li>
+</ul></div>
 

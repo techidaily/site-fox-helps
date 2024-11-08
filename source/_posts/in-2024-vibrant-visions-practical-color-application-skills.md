@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Vibrant Visions  Practical Color Application Skills\""
-date: 2024-10-30T01:06:31.477Z
-updated: 2024-11-02T01:26:20.056Z
+date: 2024-10-31T21:25:39.798Z
+updated: 2024-11-07T23:15:01.723Z
 tags: 
   - screen-recording
   - ai video
@@ -33,45 +33,39 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -88,10 +82,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -103,10 +97,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -143,24 +137,14 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-identifying-top-economical-iosandroid-live-streaming-tools/"><u>[New] 2024 Approved Identifying Top Economical iOS/Android Live Streaming Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-off-facebook-activity-expose-is-it-worth-the-scrutiny/"><u>[New] 2024 Approved Off-Facebook Activity Exposé - Is It Worth The Scrutiny?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-complete-picture-toolwizs-app-masterclass/"><u>[New] 2024 Approved The Complete Picture Toolwiz's App Masterclass</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-assemble-movies-into-efficient-watchlists-for-2024/"><u>[New] Assemble Movies Into Efficient Watchlists for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-investigating-the-underreported-drawbacks-of-vr/"><u>[New] In 2024, Investigating the Underreported Drawbacks of VR</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-create-digital-humor-kapwings-meme-builder/"><u>[Updated] 2024 Approved Create Digital Humor Kapwing's Meme Builder</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-assessing-magixs-multimedia-capabilities/"><u>[Updated] Assessing MAGIX's Multimedia Capabilities</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-kinemaster-insider-the-art-of-seamless-video-transitions/"><u>[Updated] In 2024, Kinemaster Insider The Art of Seamless Video Transitions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-paving-pathways-in-pixels-the-leading-vr-treadmills-reviewed/"><u>[Updated] Paving Pathways in Pixels The Leading VR Treadmills Reviewed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-transforming-video-aesthetics-on-tiktok-dual-approach-for-2024/"><u>[Updated] Transforming Video Aesthetics on TikTok (Dual Approach) for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unbeatable-wingspan-top-10-durable-aerial-vehicles/"><u>[Updated] Unbeatable Wingspan Top 10 Durable Aerial Vehicles</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/beginners-vlogging-toolkit-gear-and-software-for-2024/"><u>Beginner's Vlogging Toolkit Gear and Software for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/discover-the-ultimate-selection-3d-animation-software-for-free-in-2/"><u>Discover the Ultimate Selection: 3D Animation Software for Free in 2</u></a></li>
-<li><a href="https://extra-information.techidaily.com/foundation-principles-of-tale-telling/"><u>Foundation Principles of Tale-Telling</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-2-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Lava Blaze 2 Pro Phone without Any Data Loss</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ize-youtube-traffic-top-viewing-times-for-2024/"><u>Maximize YouTube Traffic Top Viewing Times for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/navigating-movaviss-legal-framework-for-lump-sum-and-return-of-capital-payments-in-pensions/"><u>Navigating Movavis's Legal Framework for Lump Sum and Return of Capital Payments in Pensions</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-oppo-find-n3-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Oppo Find N3</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/sony-bdp-s3700-overhaul-a-new-perspective-review/"><u>Sony BDP-S3700 Overhaul A New Perspective Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-comprehensive-scrutiny-gear-360s-virtual-reality-capability/"><u>[New] In 2024, Comprehensive Scrutiny Gear 360'S Virtual Reality Capability</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-extracting-image-files-from-youtube-browser-based-os-techniques/"><u>[New] In 2024, Extracting Image Files From Youtube Browser-Based, OS Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vanguard-devices-frontline-computing-titans-for-2024/"><u>[New] Vanguard Devices Frontline Computing Titans for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-bio-link-addition-on-tiktok/"><u>[Updated] 2024 Approved Mastering Bio Link Addition on TikTok</u></a></li>
+<li><a href="https://app-tips.techidaily.com/exploring-the-chilly-response-of-corporations-to-the-sizzling-potential-of-5g-technology/"><u>Exploring the Chilly Response of Corporations to the Sizzling Potential of 5G Technology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-quietly-dismiss-youtube-video-teasers/"><u>How to Quietly Dismiss YouTube Video Teasers</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-tailor-your-text-to-voice-top-5-cloud-services-for-chrome-os-sound-transformation/"><u>In 2024, Tailor Your Text to Voice Top 5 Cloud Services for Chrome OS Sound Transformation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skagen-falster-2-assessment-elegant-substitute-for-the-iconic-apple-device/"><u>Skagen Falster 2 Assessment: Elegant Substitute for the Iconic Apple Device</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Strategic Insights on Making Persuasive Client-Centered Videos\""
-date: 2024-09-11T10:14:27.727Z
-updated: 2024-09-12T10:14:27.727Z
+date: 2024-11-02T01:52:46.076Z
+updated: 2024-11-07T17:12:29.813Z
 tags: 
   - screen-recording
   - ai video
@@ -32,16 +32,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ask Authentic Questions
@@ -54,10 +48,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Include Strong Opinions
@@ -65,16 +59,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Use the word “I”.
@@ -87,6 +75,13 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
 
 When asking someone for their thoughts on a topic or issue, there's always going to be some variation in how people respond. Some will talk about personal experiences; others will talk about what they've learned from others' experiences; still, others might share some advice for future generations who might encounter similar problems. The key here is that your main objective is not necessarily the information itself (though this can help), but rather the emotion behind it—what effect does this experience have on your audience?
@@ -97,44 +92,24 @@ Asking open-ended questions allows people greater freedom when responding—and 
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -143,13 +118,6 @@ If someone says "I love this product," but then shows their eyes darting around 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -183,5 +151,22 @@ If you're looking to boost your sales with testimonial videos, then you need to 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-finding-the-best-gaming-keys-at-unbeatable-prices-less-than-100/"><u>[New] 2024 Approved Finding the Best Gaming Keys at Unbeatable Prices Less than $100</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-a-comprehensive-guide-to-penning-appealing-vlog-narratives-for-2024/"><u>[New] A Comprehensive Guide to Penning Appealing Vlog Narratives for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-elite-compilation-9-online-mic-recorders-ranked/"><u>[New] In 2024, The Elite Compilation 9 Online Mic Recorders Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-novice-necessities-your-first-steps-in-gopro-world/"><u>[Updated] 2024 Approved Novice Necessities - Your First Steps in GoPro World</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-decoding-the-principles-of-mixed-reality-for-2024/"><u>[Updated] Decoding the Principles of Mixed Reality for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dji-protech-fpv-eyewear-inspection-report/"><u>[Updated] DJI ProTech FPV Eyewear Inspection Report</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-frame-perfection-ultimate-picks-for-photographic-lenses/"><u>[Updated] Frame Perfection Ultimate Picks for Photographic Lenses</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-wrap-up-strategies-free-youtube-end-screens-tutorial/"><u>[Updated] In 2024, Channel Wrap-Up Strategies - Free YouTube End Screens Tutorial</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-engage-broadly-embedding-twitch-videos-on-fb/"><u>[Updated] In 2024, Engage Broadly Embedding Twitch Videos on FB</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-virtual-reality-vistas-exploring-sci-fi-worlds-in-top-movies/"><u>[Updated] Virtual Reality Vistas Exploring Sci-Fi Worlds in Top Movies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-guide-to-amplifying-your-video-presence-with-seo-tips/"><u>2024 Approved Guide to Amplifying Your Video Presence with SEO Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-idea-to-implementation-guiding-vendors-in-youtube-sponsorships/"><u>From Idea to Implementation Guiding Vendors in Youtube Sponsorships</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-eras-endwatchers-top-youtube-viewership/"><u>In 2024, Era's Endwatchers Top YouTube Viewership</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-oral-outputs-the-ultimate-list-for-offline-transcription-apps/"><u>In 2024, Oral Outputs The Ultimate List for Offline Transcription Apps</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-mac-users-install-lumafusion-or-find-equivalent-video-editors/"><u>New In 2024, Mac Users Install Lumafusion or Find Equivalent Video Editors</u></a></li>
+</ul></div>
 

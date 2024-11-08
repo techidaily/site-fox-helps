@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Leveraging Unwanted Scenes for Creative Outcomes"
-date: 2024-10-30T16:29:27.457Z
-updated: 2024-11-02T01:01:09.850Z
+date: 2024-11-06T16:07:34.339Z
+updated: 2024-11-07T18:29:24.460Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -52,6 +52,13 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
@@ -59,6 +66,13 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -73,10 +87,10 @@ B roll footage can be used to tell a story that supports the narrative of your v
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -84,13 +98,6 @@ This particular kind of B roll film is captured without any direction being give
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -101,13 +108,6 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,21 +143,15 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-capture-and-store-videos-effortlessly-with-our-top-list/"><u>[New] 2024 Approved Capture & Store Videos Effortlessly with Our Top List</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-harnessing-the-benefits-with-creative-commons-licenses-for-2024/"><u>[New] Harnessing the Benefits with Creative Commons Licenses for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>[New] In 2024, Audio Experts' Choice Best 6 Microphone Picks for Online Broadcasting</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-creating-a-decreasing-volume-effect-in-audacity/"><u>[Updated] 2024 Approved Creating a Decreasing Volume Effect in Audacity</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-explore-free-virtual-music-pulse-analyzers/"><u>[Updated] In 2024, Explore Free, Virtual Music Pulse Analyzers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-the-noobs-guide-to-recording-twitch-games-for-2024/"><u>[Updated] The Noob's Guide to Recording Twitch Games for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-web-based-gag-generator/"><u>[Updated] Web-Based Gag Generator</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-perfecting-your-tiktok-videos-incorporating-clear-audio-narration/"><u>2024 Approved Perfecting Your TikTok Videos Incorporating Clear Audio Narration</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-rhythm-and-reels-for-music-masters-on-ig/"><u>2024 Approved Rhythm & Reels for Music Masters on IG</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/fast-guide-transforming-images-into-youtube-desktop-thumbnails/"><u>Fast Guide Transforming Images Into YouTube Desktop Thumbnails</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-locate-the-best-bargains-on-gopro-cameras/"><u>In 2024, Locate the Best Bargains on GoPro Cameras</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/m1-vs-m2-ipad-pro-showdown-finding-the-best-device-to-suit-your-preferences/"><u>M1 Vs. M2 iPad Pro Showdown: Finding the Best Device to Suit Your Preferences</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/movavis-no-cost-solution-for-changing-audio-file-types-convert-asf-to-mp3-online/"><u>Movavi's No-Cost Solution for Changing Audio File Types - Convert ASF to MP3 Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/peering-into-the-future-lg-tv-bp550-2023-review-for-2024/"><u>Peering Into the Future LG TV BP550 2023 Review for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/quick-access-to-files-on-windows-os/"><u>Quick Access to Files on Windows OS</u></a></li>
-<li><a href="https://techidaily.com/ways-to-fix-the-failed-to-parse-the-corrupted-excel-2021-file-error-by-stellar-guide/"><u>Ways to Fix the Failed to Parse the Corrupted Excel 2021 File Error</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-transform-images-into-captivating-gifs/"><u>[New] 2024 Approved Transform Images Into Captivating GIFs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elite-gamers-showcase-premium-setups-unveiled/"><u>[New] In 2024, Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pioneering-the-soundtrack-adding-editing-and-cropping-music/"><u>[New] Pioneering the Soundtrack Adding, Editing, and Cropping Music</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unraveling-rtmp-streams-overcoming-premieres-export-hurdle/"><u>[Updated] In 2024, Unraveling RTMP Streams Overcoming Premiere's Export Hurdle</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-low-budget-camera-buys-roundup/"><u>[Updated] Low-Budget Camera Buys Roundup</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amds-ryzen-9000-hit-by-delay-chipmaker-halts-shipments-for-intense-quality-assurance-checks-promises-august-launch/"><u>AMD's Ryzen 9000 Hit by Delay: Chipmaker Halts Shipments for Intense Quality Assurance Checks, Promises August Launch</u></a></li>
+<li><a href="https://games-able.techidaily.com/channel-management-excellence-perfecting-blockunblock-techniques-on-twitch/"><u>Channel Management Excellence: Perfecting Block/Unblock Techniques on Twitch</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-navigating-the-maze-to-find-your-ideal-4k-screen/"><u>In 2024, Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-the-world-of-laughter-how-to-create-memes-on-9gag/"><u>In 2024, Navigating the World of Laughter How to Create Memes on 9GAG</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-windows-fingertip-writing-options/"><u>Unlocking Windows' Fingertip Writing Options</u></a></li>
 </ul></div>
 

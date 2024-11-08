@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Step-by-Step Approach to Typography Addition in AE\""
-date: 2024-10-27T01:38:09.257Z
-updated: 2024-11-01T21:07:32.152Z
+date: 2024-11-03T00:12:22.607Z
+updated: 2024-11-08T01:09:08.660Z
 tags: 
   - screen-recording
   - ai video
@@ -48,18 +48,18 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -69,15 +69,22 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
@@ -103,13 +110,6 @@ These features also include adding texts and changing the fonts of those texts o
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 The article discussed the detailed process of **how to add font to Adobe After Effects** application. The descriptive process of adding texts to video projects using After Effects have also been discussed throughout the article and the available alternatives that can help users with the same feature. I also discussed the various types of fonts that are available to the users in the application interface. These fonts are very easy to access and use. I hope this article will help in easing up the whole process of video editing using After Effects.
@@ -124,19 +124,19 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,20 +166,20 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-comparing-bites-new-insights-on-hero5-and-yi-4k-cameras/"><u>[New] Comparing Bites New Insights on Hero5 & Yi 4K Cameras</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-elite-camera-lineup-for-total-sphere-coverage/"><u>[New] In 2024, Elite Camera Lineup for Total Sphere Coverage</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhancing-your-creative-vision-iphones-new-camera-tools/"><u>[New] In 2024, Enhancing Your Creative Vision IPhone's New Camera Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-master-hashtag-dynamics-on-igtv-for-follower-surge/"><u>[New] In 2024, Master Hashtag Dynamics on IGTV for Follower Surge</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/everaging-imovie-features-to-upgrade-your-youtube-content-quality/"><u>[New] Leveraging iMovie Features to Upgrade Your YouTube Content Quality</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-magic-behind-melodies-an-analysis-of-magix-music-maker/"><u>[New] Magic Behind Melodies An Analysis of Magix Music Maker</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-nextgen-tv-including-the-best-local-channels-online/"><u>[Updated] 2024 Approved NextGen TV Including the Best Local Channels Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-android-3d-player-showcase/"><u>[Updated] 2024 Approved Ultimate Android 3D Player Showcase</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-tiktok-content-mastery-learn-to-alter-digit-scenes-effectively/"><u>[Updated] In 2024, TikTok Content Mastery Learn to Alter Digit Scenes Effectively</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-lightning-speed-seamless-transformation-from-srt-to-text-format-for-2024/"><u>[Updated] Lightning Speed Seamless Transformation From SRT to Text Format for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/est-ce-que-movavi-est-un-logiciel-web-securise-et-quels-sont-ses-avantages-en-matiere-de-protection/"><u>Est-Ce Que Movavi Est Un Logiciel Web Sécurisé Et Quels Sont Ses Avantages en Matière De Protection?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-tecno-camon-30-pro-5g-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my Tecno Camon 30 Pro 5G</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-movie-power-up-10-titles-for-a-higher-purpose/"><u>In 2024, Movie Power-Up 10 Titles for a Higher Purpose</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/master-manual-time-adjustment-in-windows-systems/"><u>Master Manual Time Adjustment in Windows Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevate-your-mobile-music-collection-with-inshot/"><u>[New] 2024 Approved Elevate Your Mobile Music Collection with InShot</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715860826995-new-capture-and-store-screen-content-free/"><u>[New] Capture and Store Screen Content, FREE!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elite-cost-effective-asmr-recording-devices-unveiled-for-2024/"><u>[New] Elite Cost-Effective ASMR Recording Devices Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-top-15-facebook-strategies-for-maximizing-online-selling-power/"><u>[New] In 2024, Top 15 Facebook Strategies for Maximizing Online Selling Power</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-innovative-photo-display-solutions-for-2024/"><u>[New] Innovative Photo Display Solutions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-essence-of-dji-inspire-2-distilled/"><u>[Updated] 2024 Approved The Essence of DJI Inspire 2 Distilled</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-top-tier-auditory-theatre-plays/"><u>[Updated] 2024 Approved Top-Tier Auditory Theatre Plays</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-xiaomi-redmi-note-12r-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi Redmi Note 12R Fingerprint Lock</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-iphone-12-mini-lock-screen-by-drfone-ios/"><u>Complete Guide For iPhone 12 mini Lock Screen</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/de-gray-extended-volume-options-in-windows-discmgmt/"><u>De-Gray Extended Volume Options in Windows DiscMgmt</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-7-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 7 to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-sony-snapshot-standstill-no-video-viewing/"><u>In 2024, Sony Snapshot Standstill No Video Viewing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-standout-20-anime-melodies-at-the-start/"><u>In 2024, Standout 20 Anime Melodies at the Start</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-beginners-path-to-professional-windows-10-video-production/"><u>In 2024, The Beginner's Path to Professional Windows 10 Video Production</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-strategies-to-eliminate-lag-and-boost-performance-in-video-games-on-personal-computers/"><u>Step-by-Step Strategies to Eliminate Lag and Boost Performance in Video Games on Personal Computers</u></a></li>
 </ul></div>
 

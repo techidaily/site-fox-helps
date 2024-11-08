@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quick DIY Filming Fixes  The Top 5 Hacks to Try Now\""
-date: 2024-10-27T01:18:56.645Z
-updated: 2024-11-02T01:33:20.442Z
+date: 2024-11-05T23:42:22.118Z
+updated: 2024-11-07T19:14:49.978Z
 tags: 
   - screen-recording
   - ai video
@@ -31,18 +31,18 @@ When we set up the light near the subject, the light might be leaked onto the ba
 
 On film sets and studios, the professionals use flags to absorb and make shapes of light. A flag is a thick black fabric that does not reflect light. To make your flag at home, you can try cardboard and a black t-shirt.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. A Cardboard
 
 You can buy it from a nearby stationery store. Ensure the cardboard is not too big to fit the t-shirt around the board.
 
 ![cardboard used for diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. A Black T-shirt
 
@@ -50,16 +50,16 @@ For the black t-shirt, you can use an old t-shirt that you don't wear anymore. Y
 
 ![black t-shirt for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After managing all the required things, you must wrap and secure the t-shirt around the board. If the size of the t-shirt is larger than cardboard, tie the sleeves to secure the t-shirt. Or you can also use tape to secure the t-shirt and fasten it on the backside.
 
 ![process for making diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
 
@@ -69,18 +69,18 @@ After filming the video, see the precise results before using the flag, when the
 
 ![results after using diy flag for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. Hack. DIY Black Wrap or Cinewrap
 
 The black wrap is used in professional studios and set up to block and shape light. You can block light by directly giving shape to LED lightbulbs. The black wrap is made mainly of aluminum, so it's easy to provide forms for different lights.
 
 The aluminum foils used in households have the same characteristics as a black wrap, so that you can use it as an alternative. Look at the following requirement to make it! To make a black wrap, you need two household tools. There is no need to get pricey things from the market. For this, follow the below outlines of the tools!
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. A Light Bulb
 
@@ -89,10 +89,10 @@ You can take any LED bulb present at our home. Ensure that the bulb size is mana
 ![lightbulb used for cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Foil Paper
@@ -109,13 +109,6 @@ Step2 Then, you need to install the bulb on the lamp.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** During wrapping, you don't have to allow the foil to touch the bottom part of the bulb.
 
 Step3 Leave a small part of the bulb open from the top and cover the part from the side.
@@ -124,26 +117,27 @@ Step4 Ensure the lamp switch is off, and install the light bulb.
 
 ![process of creating a black wrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-7.png)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When you turn on the lamp, the light has been shaped into a smaller light source.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Results for the Black Wrap or Cinewrap
 
 You can observe that the light is only at the required place, with no dispersion observed and no scattering. You can create more shapes to foil and then wrap them on the bulb for a different look.
 
 ![results after using cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After experimenting with light shaping and blocking hacks, we will move toward the light reflector hack!
 
@@ -174,20 +168,22 @@ When applied to flat surfaces, the foil has a reflective surface. It makes it th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-unleash-the-power-of-live-broadcast-recording-techniques-online/"><u>[New] Unleash the Power of Live Broadcast Recording Techniques Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-silent-streamers-academy-learn-to-broadcast-on-ig-without-attention/"><u>[Updated] 2024 Approved Silent Streamers Academy Learn to Broadcast on IG without Attention</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-virtual-voice-inspiring-arvr-infused-quotations/"><u>[Updated] 2024 Approved The Virtual Voice Inspiring AR/VR-Infused Quotations</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-achieving-zen-in-meetings-how-to-disable-background-speech/"><u>[Updated] Achieving Zen in Meetings How to Disable Background Speech</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-how-to-improve-resilience-against-photos-app-issues-in-windows-11-for-2024/"><u>[Updated] How to Improve Resilience Against Photos App Issues in Windows 11 for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-storage-exploration-how-many-vids-can-64128gb-hold/"><u>[Updated] In 2024, Storage Exploration How Many Vids Can 64/128GB Hold?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-8-apps-accelerating-slow-motion-footage/"><u>[Updated] In 2024, Top 8 Apps Accelerating Slow Motion Footage</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-android-technique-transpose-digital-media-order/"><u>2024 Approved Android Technique Transpose Digital Media Order</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-wealth-route-in-periscope-streaming/"><u>2024 Approved Unveiling the Wealth Route in Periscope Streaming</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/winx-dvd-author-dvd/"><u>公式WinX DVD Authorソフトウェアの評価とインストールガイド - 専門家推奨の無料DVDプログラム</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/comment-remplacer-la-memoire-interne-de-votre-ps4-par-un-ssdhdd-pour-une-capacite-amelioree/"><u>Comment Remplacer La Mémoire Interne De Votre PS4 Par Un SSD/HDD Pour Une Capacité Améliorée</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-latest-hp-officejet-5-new-best-seo-titles-suitable-for-google-search-engine-that-convey-similar-meanings-to-hp-officejet-4650-driver-download-for-wi6/"><u>Get the Latest HP OfficeJet 5 New Best SEO Titles Suitable for Google Search Engine that Convey Similar Meanings to HP OfficeJet 4650 Driver Download for Windows</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Itel P40? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-future-awaits-equipping-yourself-for-metaverse-life-top-7/"><u>The Future Awaits Equipping Yourself for Metaverse Life (Top 7)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-symphony-of-selection-trailer-music-mastery/"><u>The Symphony of Selection Trailer Music Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-auditory-enhancement-strategies-for-video-creators/"><u>[New] 2024 Approved Auditory Enhancement Strategies for Video Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-pushing-boundaries-with-lightrooms-hdr-merging-capability/"><u>[New] 2024 Approved Pushing Boundaries with Lightroom’s HDR Merging Capability</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing/"><u>[New] Crafted Clicks Guide to Software & Sites for Superior Photo Framing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-roundup-of-platforms-for-video-intro-acquisition-for-2024/"><u>[New] Expert Roundup of Platforms for Video Intro Acquisition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ios-and-android-perfecting-your-chat-tone-with-whatsapp-ringtones/"><u>[New] In 2024, IOS & Android Perfecting Your Chat Tone with WhatsApp Ringtones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-tier-extended-reality-experience-makers/"><u>[New] In 2024, Top-Tier Extended Reality Experience Makers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-editing-techniques-for-final-cut-pro-professionals/"><u>[New] In 2024, Ultimate Editing Techniques for Final Cut Pro Professionals</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-foundations-of-a-youtube-venture-a-comprehensive-guide-for-2024/"><u>[New] The Foundations of a YouTube Venture A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-amplify-your-profile-pull-clever-hacks-that-work-on-tinder-for-2024/"><u>[Updated] Amplify Your Profile Pull Clever Hacks That Work on Tinder for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-driven-productivity-essential-tools-for-content-gurus/"><u>AI-Driven Productivity: Essential Tools for Content Gurus</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/creative-tims-bootstrap-5-material-admin-a-complimentary-material-dashboard-experience/"><u>Creative Tim's Bootstrap 5 Material Admin - A Complimentary Material Dashboard Experience</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-tecno-spark-10-4g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Tecno Spark 10 4G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exploring-funimates-full-potential/"><u>Exploring Funimate's Full Potential</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-vivo-g2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Vivo G2 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-honor-70-lite-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Honor 70 Lite 5G Phone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-complete-process-of-refreshing-your-chromecast-device/"><u>The Complete Process of Refreshing Your Chromecast Device</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-valheim-seeds-and-growth-techniques-for-2024/"><u>Top Valheim Seeds & Growth Techniques for 2024</u></a></li>
 </ul></div>
 

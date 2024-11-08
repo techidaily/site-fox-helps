@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reinvigorating Windows Photo Viewer in W10  Procedures #1 & #2\""
-date: 2024-10-31T01:44:42.898Z
-updated: 2024-11-02T01:11:29.015Z
+date: 2024-11-03T17:34:04.310Z
+updated: 2024-11-08T01:32:51.832Z
 tags: 
   - screen-recording
   - ai video
@@ -75,10 +75,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -96,22 +102,15 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -119,13 +118,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -153,21 +159,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-engagement-game-changers-the-top-25-hashtags-you-need/"><u>[New] 2024 Approved Instagram Engagement Game-Changers The Top 25 Hashtags You Need</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unleashing-creativity-building-a-memorable-podcast-name/"><u>[New] 2024 Approved Unleashing Creativity Building a Memorable Podcast Name</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-visualize-and-create-with-top-7-innovative-animation-suites/"><u>[New] Visualize & Create with Top 7 Innovative Animation Suites</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pioneering-flight-paths-with-gopro-karma-technology/"><u>[Updated] 2024 Approved Pioneering Flight Paths with GoPro Karma Technology</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-high-resolution-drone-flights-a-mi-examination/"><u>[Updated] High-Resolution Drone Flights A MI Examination</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-numeric-adjustments-in-tiktok-videos/"><u>[Updated] In 2024, Mastering Numeric Adjustments in TikTok Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-virtual-giggle-creator/"><u>[Updated] In 2024, Virtual Giggle Creator</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-vivo-y78t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/digital-diaries-7-excelent-notetakers-for-pcs-and-slate/"><u>Digital Diaries: 7 Excelent Notetakers for PCs & Slate</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/discover-5-innovative-artifice-intelligence-storytellers-to-spice-up-your-writing/"><u>Discover 5 Innovative Artifice Intelligence Storytellers to Spice Up Your Writing</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-30plus-list-of-expertly-curated-cost-free-vfx-tools-for-creatives/"><u>In 2024, The Ultimate 30+ List of Expertly Curated, Cost-Free VFX Tools for Creatives</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone 15 Plus</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/inside-the-tesla-robotaxi-upcoming-prices-release-schedule-and-features-explored/"><u>Inside the Tesla Robotaxi: Upcoming Prices, Release Schedule & Features Explored</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/iphoneandroids-top-sticker-adding-apps-the-essential-10-collection/"><u>IPhone/Android's Top Sticker-Adding Apps The Essential 10 Collection</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/premium-audio-visual-leading-blu-ray-devices/"><u>Premium Audio, Visual Leading Blu-Ray Devices</u></a></li>
-<li><a href="https://win-able.techidaily.com/solve-slow-motion-six-speed-secrets-to-improving-fps-in-elden-ring/"><u>Solve Slow Motion: Six Speed Secrets To Improving FPS in Elden Ring</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fixed-most-effective-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro/"><u>[New] [Fixed] Most-Effective 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mastering-tiktok-audio-crafting-it-as-your-perfect-ringtone-for-2024/"><u>[New] Mastering TikTok Audio Crafting It as Your Perfect Ringtone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-syncing-images-android-iphone-file-transfer-guide/"><u>[New] Syncing Images Android-iPhone File Transfer Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unseen-video-on-sony-a6400-whats-going-wrong/"><u>[New] Unseen Video on Sony A6400 What's Going Wrong?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-prime-uav-options-to-maximize-your-gopro-video-potential/"><u>[Updated] 2024 Approved Prime UAV Options to Maximize Your GoPro Video Potential</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-comprehensive-guide-to-mastering-facetune-app-features/"><u>[Updated] 2024 Approved The Comprehensive Guide to Mastering Facetune App Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-canva-skills-purging-images-of-their-surroundings/"><u>[Updated] Canva Skills Purging Images of Their Surroundings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-interactive-content-the-key-to-boosted-facebook-pages/"><u>[Updated] Interactive Content The Key to Boosted Facebook Pages</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-your-compre-agent-in-finding-superior-hdr-cameras-for-2024/"><u>[Updated] Your Compre Agent in Finding Superior HDR Cameras for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-sony-xperia-5-v-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Sony Xperia 5 V without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-poco-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Poco</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-epic-game-viewing-venues-the-top-nine/"><u>In 2024, Epic Game Viewing Venues The Top Nine</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-navigating-the-social-sphere-instaplustiktok/"><u>In 2024, Navigating the Social Sphere Insta+TikTok</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/overcoming-os-drivers-blues-stop-winblue-screen/"><u>Overcoming OS Drivers Blues: Stop WinBlue Screen</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quick-recovery-methods-for-erased-reddit-topics-for-2024/"><u>Quick Recovery Methods for Erased Reddit Topics for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackling-code-0xc0000142-on-windows-devices/"><u>Tackling Code 0XC0000142 on Windows Devices</u></a></li>
 </ul></div>
 
