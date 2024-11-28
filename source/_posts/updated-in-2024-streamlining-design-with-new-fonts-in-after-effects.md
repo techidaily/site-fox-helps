@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Streamlining Design with New Fonts in After Effects"
-date: 2024-11-06T22:18:57.366Z
-updated: 2024-11-08T01:08:17.957Z
+date: 2024-11-16T04:35:38.573Z
+updated: 2024-11-18T08:28:01.298Z
 tags: 
   - screen-recording
   - ai video
@@ -49,10 +49,10 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
@@ -73,13 +73,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -95,6 +88,13 @@ These features also include adding texts and changing the fonts of those texts o
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -113,16 +113,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -132,16 +132,16 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
+<span id="1983582">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -172,18 +172,17 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-focus-on-you-iphone-and-android-photo-trimmers/"><u>[New] 2024 Approved Focus On You IPhone & Android Photo Trimmers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-open-source-chill-beats/"><u>[New] 2024 Approved Open Source Chill Beats</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-color-profiles-explained-srgb-versus-rgb/"><u>[New] Color Profiles Explained Srgb Versus Rgb</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-visionary-artists-top-5-innovative-photographers-plus-videographers-w-music/"><u>[New] Visionary Artists Top 5 Innovative Photographers + Videographers W/ Music</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-closer-look-at-virtual-reality-flaws/"><u>[Updated] 2024 Approved A Closer Look at Virtual Reality Flaws</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-elevate-your-vlogging-skills-with-pro-gopro-tips/"><u>[Updated] Elevate Your Vlogging Skills with Pro GoPro Tips</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-enhancing-minecraft-through-optimal-ram-assignment/"><u>[Updated] In 2024, Enhancing Minecraft Through Optimal RAM Assignment</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-top-6-digital-engagement-channels-for-companies/"><u>[Updated] In 2024, Essential Top 6 Digital Engagement Channels for Companies</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-expert-techniques-for-high-quality-android-recordings/"><u>2024 Approved Expert Techniques for High-Quality Android Recordings</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/essential-guidelines-for-assembling-your-first-gaming-pc/"><u>Essential Guidelines for Assembling Your First Gaming PC</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-itel-p55plus-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Itel P55+</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-shadows-and-subtleties-iphone-nocturnal-guides/"><u>In 2024, Shadows & Subtleties IPhone Nocturnal Guides</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/swiftly-enhanced-facebook-videos-best-extensions-hacks-and-apps/"><u>Swiftly Enhanced Facebook Videos Best Extensions, Hacks, and Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-decoding-apples-leap-comparing-m1-pro-and-m1-max-capabilities/"><u>[New] 2024 Approved Decoding Apple's Leap Comparing M1 Pro & M1 Max Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-bid-farewell-to-clutter-quick-and-easy-edits-on-large-drafters/"><u>[New] Bid Farewell to Clutter Quick & Easy Edits on Large Drafters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-text-and-title-effect-types-in-after-effects/"><u>[Updated] 2024 Approved Text and Title Effect Types in After Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-multitask-media-consumption-harnessing-pip-feature-in-netflix-for-2024/"><u>[Updated] Mastering Multitask Media Consumption Harnessing PIP Feature in Netflix for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-supercharge-your-social-media-experience-with-the-best-chrome-vids-extensions-for-2024/"><u>[Updated] Supercharge Your Social Media Experience with the Best Chrome Vids Extensions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unseen-features-in-depth-look-at-instagrams-ask-emoji-for-2024/"><u>[Updated] Unseen Features In-Depth Look at Instagram’s Ask Emoji for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-content-creation-hacks-for-rapid-youtubers-growth/"><u>2024 Approved Content Creation Hacks for Rapid Youtubers' Growth</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-how-to-make-looping-videos-for-instagram-4-effective-ways/"><u>2024 Approved How To Make Looping Videos For Instagram? [4 Effective Ways]</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-14-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On Apple iPhone 14</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-conquer-podcast-production-with-garageband-skills/"><u>In 2024, Conquer Podcast Production with GarageBand Skills</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95643131-9780857011602-jyotish/"><u>Jyotish | Free Book</u></a></li>
 </ul></div>
 

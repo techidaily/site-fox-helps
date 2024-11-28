@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Olympic Rush  Short-Track Speed Skating Saga\""
-date: 2024-11-02T19:51:47.203Z
-updated: 2024-11-07T17:28:47.566Z
+date: 2024-11-13T00:26:15.846Z
+updated: 2024-11-17T18:45:39.304Z
 tags: 
   - screen-recording
   - ai video
@@ -37,30 +37,37 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
@@ -76,29 +83,15 @@ The last leg of competition among skaters before reaching the finishing line at 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -131,6 +124,13 @@ For macOS 10.12 or later
 Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
@@ -165,16 +165,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-winning-in-media-creation-with-ease-movies-maker-secrets-for-windows-8-users/"><u>[New] 2024 Approved Winning in Media Creation with Ease Movies Maker Secrets for Windows 8 Users</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-delving-into-sns-hdr-pros-merits-and-peer-comparisons-for-2024/"><u>[New] Delving Into SNS HDR Pro's Merits & Peer Comparisons for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-master-the-art-of-attraction-secrets-to-viral-tiktok-unboxing-content/"><u>[New] Master the Art of Attraction Secrets to Viral TikTok Unboxing Content</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-navigate-past-edgenuity-stealthy-study-strategies/"><u>[New] Navigate Past Edgenuity Stealthy Study Strategies</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-visionary-visions-top-sci-fi-worlds-in-the-metaverse-for-2024/"><u>[New] Visionary Visions Top Sci-Fi Worlds in the Metaverse for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-tips-on-selecting-the-ideal-video-aspect-ratio/"><u>[Updated] 2024 Approved Expert Tips on Selecting the Ideal Video Aspect Ratio</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-how-to-use-periscope-the-complete-guide/"><u>[Updated] In 2024, How to Use Periscope The Complete Guide</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/boosting-sales-success-with-strategic-back-selling-and-cross-selling-techniques-the-ultimate-guide-using-massmail/"><u>Boosting Sales Success with Strategic Back-Selling & Cross-Selling Techniques: The Ultimate Guide Using MassMail</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/delving-into-the-world-of-claude-3-understanding-its-purpose-and-uses/"><u>Delving Into The World Of Claude 3: Understanding Its Purpose And Uses</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/hue-harmony-three-straightforward-tips-to-upgrade-your-photos-for-2024/"><u>Hue Harmony Three Straightforward Tips to Upgrade Your Photos for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-motorola-edge-40-neo-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Motorola Edge 40 Neo FRP?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-ai-powered-image-processing-hub/"><u>[New] 2024 Approved AI-Powered Image Processing Hub</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-5-audio-to-video-makers-online/"><u>[New] 2024 Approved Top 5 Audio to Video Makers Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-cutting-edge-complete-rotation-videography-equipment-for-2024/"><u>[New] Cutting Edge Complete Rotation Videography Equipment for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-implementing-soft-decline-in-logic-pro-audio/"><u>[New] In 2024, Implementing Soft Decline in Logic Pro Audio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-video-plus-comprehensive-live-channel-access/"><u>[New] In 2024, Prime Video Plus Comprehensive Live Channel Access</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-10-non-sport-hobbies-for-beginners/"><u>[New] In 2024, Top 10 Non-Sport Hobbies for Beginners</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-maximize-your-gameplay-the-funimate-way/"><u>[Updated] 2024 Approved Maximize Your Gameplay - The Funimate Way</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[Updated] 2024 Approved Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-budgetary-skynetting-massively-saving-cloud-data-costs/"><u>[Updated] Budgetary SkyNetting Massively Saving Cloud Data Costs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-epic-comic-strip-crafting-app-for-2024/"><u>[Updated] Epic Comic Strip Crafting App for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-capturing-moments-to-sharing-them-editing-with-adobe-premiere/"><u>[Updated] In 2024, From Capturing Moments to Sharing Them Editing with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-interactive-achievements-the-click-based-reward/"><u>[Updated] In 2024, Interactive Achievements The Click-Based Reward</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-preserving-the-past-in-motion-photo-to-video-transition-for-2024/"><u>[Updated] Preserving the Past in Motion Photo to Video Transition for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pure-portrayals-on-platforms-your-guide-to-authentic-snapshots-for-2024/"><u>[Updated] Pure Portrayals on Platforms Your Guide to Authentic Snapshots for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-ultimate-guide-to-video-excellence-and-staff-picks-at-vimeo-for-2024/"><u>[Updated] The Ultimate Guide to Video Excellence & Staff Picks at Vimeo for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-samsung-galaxy-f54-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/discovering-snapchats-video-capabilities-with-ease/"><u>Discovering Snapchat's Video Capabilities with Ease</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-crafting-a-winning-sponsorship-proposal-for-youtube-creators/"><u>In 2024, Crafting a Winning Sponsorship Proposal for Youtube Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-who-takes-the-crown-av1-or-vp9/"><u>In 2024, Who Takes The Crown? AV1 or VP9?</u></a></li>
 </ul></div>
 

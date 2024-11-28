@@ -1,7 +1,7 @@
 ---
 title: "Transformative Strategies for Impartiating Patient Narratives for 2024"
-date: 2024-11-01T21:19:41.440Z
-updated: 2024-11-08T00:05:10.428Z
+date: 2024-11-13T09:14:56.472Z
+updated: 2024-11-17T21:16:38.477Z
 tags: 
   - screen-recording
   - ai video
@@ -37,22 +37,15 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
@@ -64,10 +57,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Use the word “I”.
@@ -91,10 +84,10 @@ Asking open-ended questions allows people greater freedom when responding—and 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
@@ -105,6 +98,13 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
@@ -113,16 +113,16 @@ If someone says "I love this product," but then shows their eyes darting around 
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,16 +158,20 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-evaluating-dji-phantom-3s-advanced-capabilities/"><u>[New] Evaluating DJI Phantom 3'S Advanced Capabilities</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-content-with-properly-sized-videos-on-instagram/"><u>[New] In 2024, Elevate Content with Properly Sized Videos on Instagram</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-digital-photo-albums-acoustic-advancement/"><u>[Updated] In 2024, Digital Photo Albums Acoustic Advancement</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enhance-yi-4k-video-quality-with-essential-kits/"><u>[Updated] In 2024, Enhance YI 4K Video Quality with Essential Kits</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-using-green-screen-in-kinemaster-a-stepwise-approach/"><u>[Updated] In 2024, The Ultimate Guide to Using Green Screen in Kinemaster A Stepwise Approach</u></a></li>
-<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-6-plus-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 6 Plus</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-daydream-to-reality-a-short-vr-history/"><u>From Daydream to Reality A Short VR History</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/optimal-avi-playback-software-for-pcmobile-users-for-2024/"><u>Optimal AVI Playback Software for PC/Mobile Users for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1204923-9780307830470-the-pathwork-of-self-transformation/"><u>The Pathwork of Self-Transformation | Free Book</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/the-ultimate-list-of-best-online-ebook-resources-in-2hren-2018/"><u>The Ultimate List of Best Online eBook Resources in 2Hren 2018</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-step-by-step-emojis-in-youtube-comments/"><u>[New] 2024 Approved Step-by-Step Emojis in YouTube Comments</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-magical-voice-change-tools-for-efficient-calls/"><u>[New] Magical Voice Change Tools for Efficient Calls</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-guide-to-vlc-for-networked-webcasting/"><u>[Updated] 2024 Approved Expert Guide to VLC for Networked Webcasting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-10-tips-to-make-your-podcast-teasers-stand-out/"><u>[Updated] In 2024, Top 10 Tips to Make Your Podcast Teasers Stand Out</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-7-budget-friendly-laptop-dvd-software-list/"><u>[Updated] Top 7 Budget-Friendly Laptop DVD Software List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-gradient-goes-night-premieres-trick/"><u>2024 Approved Gradient Goes Night Premiere's Trick</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-edits-best-face-changing-apps-iphonesipads/"><u>2024 Approved Premier Edits Best Face-Changing Apps, iPhones/iPads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-proven-methods-for-youtubers-rapid-subscriber-expansion/"><u>2024 Approved Proven Methods for Youtubers' Rapid Subscriber Expansion</u></a></li>
+<li><a href="https://solve-news.techidaily.com/abbyys-mobile-ocr-enhancement-seamless-salesforce-connectivity-added-to-android-business-card-scanner/"><u>ABBYY's Mobile OCR Enhancement: Seamless Salesforce Connectivity Added to Android Business Card Scanner</u></a></li>
+<li><a href="https://common-error.techidaily.com/csgo-stability-boost-fixing-game-crashes-fast-and-without-hassle/"><u>CSGO Stability Boost: Fixing Game Crashes Fast & Without Hassle</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Vivo Y100? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-achieving-audiovisual-consistency-in-premiers/"><u>In 2024, Achieving Audiovisual Consistency in Premiers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-harmony-and-hype-perfecting-film-teaser-tunes/"><u>In 2024, Harmony and Hype Perfecting Film Teaser Tunes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-taking-your-aerial-game-to-new-heights-with-dji-spark-reviewed/"><u>In 2024, Taking Your Aerial Game to New Heights with DJI Spark Reviewed</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-pc-issues-while-playing-armored-core-6-fires-of-rubicon/"><u>Solving PC Issues While Playing 'Armored Core 6: Fires of Rubicon'</u></a></li>
 </ul></div>
 

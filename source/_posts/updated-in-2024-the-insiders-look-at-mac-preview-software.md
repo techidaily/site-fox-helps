@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Insider's Look at Mac Preview Software"
-date: 2024-11-06T21:54:14.786Z
-updated: 2024-11-07T22:13:40.323Z
+date: 2024-11-13T16:19:07.481Z
+updated: 2024-11-17T18:52:24.978Z
 tags: 
   - screen-recording
   - ai video
@@ -69,13 +69,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -93,10 +86,16 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -110,6 +109,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -126,6 +132,13 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 **Step 3: Format the Text**
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
 
@@ -160,10 +173,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -177,13 +190,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -244,17 +250,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-4k-clarity-unleashed-an-intense-study-on-the-31mu97-b-monitor-for-2024/"><u>[New] 4K Clarity Unleashed - An Intense Study on the 31MU97-B Monitor for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/eciding-on-the-best-videography-camera-type-dslr-or-mirrorless-in-2024/"><u>[New] Deciding on the Best Videography Camera Type DSLR or Mirrorless, In 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-engage-in-enlightening-youtube-exchanges-for-2024/"><u>[New] Engage in Enlightening YouTube Exchanges for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-inject-personality-into-snaps-on-snapchat-through-voice-customization/"><u>[New] In 2024, Inject Personality Into Snaps on Snapchat Through Voice Customization</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-mastering-macos-producing-high-quality-ootd-tiktoks/"><u>[New] Mastering MacOS Producing High-Quality OOTD TikToks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-creative-substitutes-for-windows-video-editing-tools/"><u>[Updated] Creative Substitutes for Windows Video Editing Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-hdr-portraiture-an-ultimate-guide-for-2024/"><u>[Updated] Mastering HDR Portraiture An Ultimate Guide for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-role-of-look-up-tables-in-cinematic-coloring-for-2024/"><u>[Updated] The Role of Look-Up Tables in Cinematic Coloring for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-unleashing-creativity-a-guide-to-music-infused-videos-for-tiktok-for-2024/"><u>[Updated] Unleashing Creativity A Guide to Music-Infused Videos for TikTok for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-beyondonecam-testing-are-there-better-options/"><u>In 2024, BeyondOneCam Testing Are There Better Options?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-and-write-on-photos-with-top-tools/"><u>In 2024, Enhance and Write on Photos with Top Tools</u></a></li>
-<li><a href="https://techtrends.techidaily.com/whats-new-in-ipados-v17-unlock-the-release-schedule-gratis-access-top-features-and-latest-news-highlights/"><u>What's New in iPadOS v17? Unlock the Release Schedule, Gratis Access, Top Features & Latest News Highlights</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-connectivity-and-convenience-integrating-zoom-into-your-xbox-experience/"><u>[New] 2024 Approved Connectivity & Convenience Integrating Zoom Into Your Xbox Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-powerdirector-unboxed-a-complete-review-users/"><u>[New] 2024 Approved PowerDirector Unboxed A Complete Review Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unlocking-the-potential-of-bulk-tiktok-media-extraction/"><u>[New] 2024 Approved Unlocking the Potential of Bulk TikTok Media Extraction</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expand-your-video-editing-experience-no-inshot-required/"><u>[Updated] 2024 Approved Expand Your Video Editing Experience No Inshot Required</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unlimited-storage-insights-premium-recommendations/"><u>[Updated] 2024 Approved Unlimited Storage Insights Premium Recommendations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-in-class-top-drone-gimbals-compared-for-2024/"><u>[Updated] Best in Class Top Drone Gimbals Compared for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-embracing-4k-clarity-the-q500-journey-reviewed/"><u>[Updated] In 2024, Embracing 4K Clarity The Q500 Journey Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-leveraging-ios-11-for-professional-level-iphone-shots-for-2024/"><u>[Updated] Leveraging iOS 11 for Professional-Level iPhone Shots for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-iphone-11-pro-max-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock iPhone 11 Pro Max without Passcode or Face ID</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-tutorials-on-how-to-transfer-photos-from-apple-iphone-13-pro-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>5 Tutorials on How to Transfer Photos From Apple iPhone 13 Pro to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminating-error-code-e84-in-steam-games/"><u>Eliminating Error Code E84 in Steam Games</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/elite-battle-a-compilation-of-superior-fps-games-for-2024/"><u>Elite Battle A Compilation of Superior FPS Games for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-oneplus-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from OnePlus ?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-master-your-creative-process-essential-affects-plugin-guide/"><u>In 2024, Master Your Creative Process Essential Affects Plugin Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/key-strategies-to-craft-persuasive-testimonials-that-resonate-for-2024/"><u>Key Strategies to Craft Persuasive Testimonials That Resonate for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-samsung-galaxy-m34-5g-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolve-gameplay-interruptions-expert-fixes-for-assassins-creed-odyssey-lag-and-stutters-on-pc/"><u>Resolve Gameplay Interruptions : Expert Fixes for Assassin's Creed Odyssey Lag and Stutters on PC</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/top-free-sites-to-stream-and-download-mix-tapes-online/"><u>Top Free Sites to Stream & Download Mix Tapes Online</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-secret-of-fans-saving-your-photos-on-instagram-easily/"><u>Unveiling the Secret of Fans Saving Your Photos on Instagram Easily</u></a></li>
 </ul></div>
 

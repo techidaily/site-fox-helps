@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Typographic Tactics for Advanced AE Users"
-date: 2024-11-02T17:55:01.133Z
-updated: 2024-11-07T16:24:46.623Z
+date: 2024-11-17T10:19:46.341Z
+updated: 2024-11-17T23:25:32.086Z
 tags: 
   - screen-recording
   - ai video
@@ -54,13 +54,6 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -69,9 +62,23 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
 
@@ -85,16 +92,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -113,16 +120,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -130,13 +137,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,24 +166,20 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-dissecting-mobile-photography-with-android-lightroom/"><u>[New] 2024 Approved Dissecting Mobile Photography with Android Lightroom</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-indulge-in-pure-play-celebrating-the-top-10-offline-games/"><u>[New] 2024 Approved Indulge in Pure Play - Celebrating the Top 10 Offline Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-streamlined-audio-processing-in-windows-media-player/"><u>[New] Streamlined Audio Processing in Windows Media Player</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-unlock-iphone-photo-potential-with-leading-line-techniques-for-2024/"><u>[New] Unlock iPhone Photo Potential with Leading Line Techniques for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-enhancing-media-creation-skills-with-windows-movie-maker-windows-8-edition/"><u>[Updated] 2024 Approved Enhancing Media Creation Skills with Windows Movie Maker (Windows 8 Edition)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-online-persona-transformation-rendering-your-cartoon-self/"><u>[Updated] 2024 Approved Online Persona Transformation Rendering Your Cartoon Self</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveiling-the-secrets-to-youtube-comment-insight/"><u>[Updated] 2024 Approved Unveiling the Secrets to YouTube Comment Insight</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-exclusive-listing-top-15-platforms-for-gopro-optimal-use/"><u>[Updated] Exclusive Listing Top 15 Platforms for GoPro Optimal Use</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-final-cut-pros-top-effect-enhancers-the-essential-10-for-2024/"><u>[Updated] Final Cut Pro's Top Effect Enhancers The Essential 10 for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-your-youtube-live-video-thumbnail-game/"><u>[Updated] In 2024, Mastering Your YouTube Live Video Thumbnail Game</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-next-level-editing-on-windows-top-videography-suites-revealed/"><u>[Updated] Next-Level Editing on Windows Top Videography Suites Revealed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-xiaomis-high-def-aerial-explorer-a-4k-test-for-2024/"><u>[Updated] Xiaomi's High-Def Aerial Explorer - A 4K Test for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-average-profit-per-million-youtube-viewers/"><u>2024 Approved Average Profit per Million YouTube Viewers</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-radiant-realms-creating-exceptional-hdr-with-photoshop/"><u>2024 Approved Radiant Realms Creating Exceptional HDR with Photoshop</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/aacwav5/"><u>AACからWAVへ自由で手軽な変換ツール：5人気のフリーソフト</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-expert-guide-to-premiere-pro-fs-preview/"><u>In 2024, Expert Guide to Premiere Pro FS Preview</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-now-available-vr-hardware-specs/"><u>In 2024, Now Available VR Hardware Specs</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722983992733-is-xbox-live-functional-a-quick-guide-to-assess-server-uptime/"><u>Is Xbox Live Functional? A Quick Guide to Assess Server Uptime.</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/asf-avi/"><u>オンラインで簡単にASFファイルを変換してみませんか？ - AVIフォーム式無料コンバータ</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-implement-shutter-speed-blurring-in-psx/"><u>[New] 2024 Approved Implement Shutter Speed Blurring in PSX</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unfolding-the-digital-canvas-vr-evolution/"><u>[New] In 2024, Unfolding the Digital Canvas VR Evolution</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-photopea-blueprint-for-flawless-image-backdrop-for-2024/"><u>[New] The Photopea Blueprint for Flawless Image Backdrop for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-7-dslr-picks-to-upgrade-your-vlog-production/"><u>[New] Ultimate 7 DSLR Picks to Upgrade Your Vlog Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unlock-professional-editing-skills-using-gopro-studio-for-2024/"><u>[New] Unlock Professional Editing Skills Using GoPro Studio for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-win10-screen-grabber-top-tier-video-recorder/"><u>[New] Win10 Screen Grabber - Top-Tier Video Recorder</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-pinnacle-goggles-ranking-best-5-for-drone-flyers-for-2024/"><u>[Updated] Pinnacle Goggles Ranking Best 5 for Drone Flyers for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellent-storage-upgrade-for-sony-a7s-ii-cameras/"><u>2024 Approved Excellent Storage Upgrade for Sony A7S II Cameras</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-top-tier-android-video-and-image-recording-tools-reviewed/"><u>2024 Approved Top-Tier Android Video & Image Recording Tools Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expert-choice-the-very-best-8-cameras-for-streamers/"><u>Expert Choice The Very Best 8 Cameras For Streamers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-spot-and-comprehend-ai-induced-visual-deceptions-or-ai-hallucinations/"><u>How to Spot and Comprehend AI-Induced Visual Deceptions, or 'AI Hallucinations'</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-vsco-image-enhancement/"><u>In 2024, Step-by-Step VSCO Image Enhancement</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/step-by-step-instructions-moving-dvd-files-onto-a-computers-hard-drive-in-windows-and-macos/"><u>Step-by-Step Instructions: Moving DVD Files Onto a Computer's Hard Drive in Windows & macOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-huawei-p10-examining-its-durability-and-build-quality-for-2024/"><u>The Huawei P10 Examining Its Durability & Build Quality for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-top-rated-4k-video-editing-tools-for-creators/"><u>Updated 2024 Approved Top-Rated 4K Video Editing Tools for Creators</u></a></li>
 </ul></div>
 

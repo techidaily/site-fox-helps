@@ -1,7 +1,7 @@
 ---
 title: "\"Sprint Secrets - Olympic Edition '22\""
-date: 2024-11-04T21:50:29.538Z
-updated: 2024-11-08T00:19:18.118Z
+date: 2024-11-16T00:30:49.417Z
+updated: 2024-11-18T04:24:28.042Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -53,26 +53,26 @@ Russia’s Semen Elistratov wins the bronze medal.
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -82,16 +82,16 @@ The last leg of competition among skaters before reaching the finishing line at 
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -126,10 +126,16 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -165,20 +171,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-behind-stock-image-memes-stories-that-stood-the-test-for-2024/"><u>[New] Behind Stock Image Memes Stories That Stood the Test for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-discover-the-ideal-display-elevate-your-xbox-series-x-gaming-for-2024/"><u>[New] Discover the Ideal Display - Elevate Your Xbox Series X Gaming for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-experts-pick-essential-plugins-to-elevate-your-ae-projects/"><u>[New] Expert's Pick Essential Plugins to Elevate Your AE Projects</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-tech-triad-analysis-unraveling-the-vr-ar-mr-tapestry/"><u>[New] Tech Triad Analysis Unraveling the VR-AR-MR Tapestry</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-masterful-art-in-a-flash-quick-draw-on-windows-10-images/"><u>[Updated] 2024 Approved Masterful Art in a Flash Quick Draw on Windows 10 Images</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-dynamic-duo-wearable-and-mac-harmony/"><u>[Updated] Dynamic Duo Wearable & Mac Harmony</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-experts-choice-7-premium-videos-on-mac/"><u>[Updated] In 2024, Expert's Choice 7 Premium Videos on Mac</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-innovative-script-visionaries-corner/"><u>[Updated] In 2024, Innovative Script Visionaries Corner</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/ubs/"><u>即时解答：设置没有 UBS 驱动器支持的系统视觉界面指导</u></a></li>
-<li><a href="https://win-help.techidaily.com/comment-resoudre-le-probleme-dun-fichier-outlook-pst-efface-ou-corrompu-dans-windows-11-deux-methodes-de-recours/"><u>Comment Résoudre Le Problème D'un Fichier Outlook PST Effacé Ou Corrompu Dans Windows 11 - Deux Méthodes De Recours</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-capabilities-of-claude-3-unveiling-its-functions/"><u>Exploring the Capabilities of Claude 3: Unveiling Its Functions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722975882151-get-your-logitech-k350-keyboard-up-and-running-drivers-downloaded-here/"><u>Get Your Logitech K350 Keyboard Up and Running: Drivers Downloaded Here</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-best-streamers-unveiled-an-all-round-comparison-guide/"><u>In 2024, Best Streamers Unveiled An All-Round Comparison Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-xiaomi-redmi-note-13-proplus-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Xiaomi Redmi Note 13 Pro+ 5G for Streaming | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-5-uavs-for-elevating-your-gopro-videos-and-movies-for-2024/"><u>Top 5 UAVs for Elevating Your GoPro Videos and Movies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ensuring-smooth-sailing-for-iphone-xs-face-recognition/"><u>[New] Ensuring Smooth Sailing for iPhone X's Face Recognition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-exclusive-windows-11s-media-importers/"><u>[New] In 2024, The Ultimate Exclusive Windows 11'S Media Importers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-10-record-screen-and-upload-to-youtube-tools-pc-mac-online/"><u>[Updated] 10 Record Screen and Upload to YouTube Tools [PC, Mac, Online]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveil-the-zodiac-persona-perfecting-personalized-bios-on-whatsapp/"><u>[Updated] 2024 Approved Unveil the Zodiac Persona - Perfecting Personalized Bios on WhatsApp</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-essential-techniques-for-saving-mobile-gameplay/"><u>[Updated] In 2024, Essential Techniques for Saving Mobile Gameplay</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-pace-kings-and-queens-of-the-olympics-year-2022/"><u>[Updated] In 2024, The Pace Kings & Queens of the Olympics, Year 2022</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-rhythmic-revelations-songs-that-will-echo-yes-for-2024/"><u>[Updated] Rhythmic Revelations Songs That Will Echo 'Yes' For 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-extended-scope-camera-platforms/"><u>2024 Approved Extended Scope Camera Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-virtual-journey-past-to-present/"><u>2024 Approved The Virtual Journey Past to Present</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-entry-level-camera-for-beginners-2024-reviews/"><u>Best Entry-Level Camera for Beginners 2024 | Reviews</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/y-step-up-claim-your-set-of-50-exquisite-cost-free-youtube-promo-materials/"><u>Boldly Step Up Claim Your Set of 50 Exquisite, Cost-Free YouTube Promo Materials</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnose-and-repair-why-realtek-hd-audio-manager-fails-to-open-and-how-you-can-resolve-it/"><u>Diagnose & Repair: Why Realtek HD Audio Manager Fails to Open & How You Can Resolve It</u></a></li>
+<li><a href="https://win11.techidaily.com/discovering-diverse-windows-operations-to-start-software/"><u>Discovering Diverse Windows Operations to Start Software</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-xiaomi-13t-pro-frp-by-drfone-android/"><u>Full Guide to Bypass Xiaomi 13T Pro FRP</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-androidiphone-mastery-discover-the-ultimate-top-8-app-set/"><u>In 2024, Android/iPhone Mastery Discover the Ultimate Top 8 App Set</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/precisioncapture-w10-pro/"><u>PrecisionCapture W10 Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-10-superior-image-replacement-for-videos/"><u>The Ultimate Guide 10 Superior Image Replacement for Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-facebook-marketing-potential-the-case-of-business-pages-over-individuals/"><u>Unlock Facebook Marketing Potential: The Case of Business Pages Over Individuals</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398446-9781667412047-write-to-heal/"><u>Write to Heal | Free Book</u></a></li>
 </ul></div>
 
