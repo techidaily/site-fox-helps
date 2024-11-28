@@ -1,0 +1,168 @@
+---
+title: "\"[Updated] 2024 Approved  Reinstate Windows Photo Viewer Quickly on Your Windows 10 PC\""
+date: 2024-11-23T16:04:43.286Z
+updated: 2024-11-28T02:21:53.595Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] 2024 Approved: Reinstate Windows Photo Viewer Quickly on Your Windows 10 PC\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Reinstate Windows Photo Viewer Quickly on Your Windows 10 PC\""
+keywords: "Win10 Photo Viewer Restore,Reinstate Win10 PVW,Windows 10 PVW Quick Fix,Reset Photo Viewer W10,Restart PVW in Windows 10,Quick Photo Viewer Fix W10,Reinstate Photo Viewer Win10"
+thumbnail: https://thmb.techidaily.com/dc54f112c78b3afb0110331eb25c5f493a4d3b2149d6ee352dfe8394d4845198.jpg
+---
+
+## Reinstate Windows Photo Viewer Quickly on Your Windows 10 PC
+
+# How to Restore Windows Photo Viewer in Windows 10
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Well, with advancement in technology, everyone is upgrading to a better version of everything out there. Likewise, when [Windows Photo Viewer](https://support.microsoft.com/en-us/help/4027135/windows-10-photo-viewer) got upgraded to Windows 10 Photos and a plethora of new features got added to it.
+
+But, what if you are not keen to depart with your Windows Photo Viewer and rather do away with the Windows 10 Photos App? In order to restore Windows Photo Viewer, we have multiple solutions for you in this article.
+
+Stay tuned to learn more!
+
+* [**Part1: Why you prefer Windows Photo Viewer**](#part1)
+* [**Part2: Method 1 to restore Windows Photo Viewer**](#part2)
+* [**Part3: Method 2 to get Windows Photo Viewer back**](#part3)
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Part 1: Why you prefer Windows Photo Viewer
+
+We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
+
+Here is why they want to restore Windows Photo Viewer –
+
+* Windows Photo Viewer offers a better UI, allowing you to get everything at the bottom of the screen. It speeds up access, whereas Windows 10 Photos UI at times hidden. Unless you move the mouse around the entire screen for switching between photos.
+* The scroll wheel enables you to precisely zoom faster.
+* There is no slide effect between images nor does it show the splash/delay screen while initiating the app. It ensures faster action sans unnecessary enhancements.
+* You can use forward or back on mouse to move to the next or previous photo.
+* You can see the photo’s name in Windows Photos Viewer.
+* Right-click allows you to access copy, open with, properties etc. option for your photos on the Windows computer.
+* You can pause to view a single picture using full-screen mode.
+* You can view the image in actual size using the UI button without any scaling.
+* There is a solid UI across the image which doesn’t cover it, but works as a nice border.
+* You can delete an image without any confirmation here.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+## Method 1 to restore Windows Photo Viewer
+
+The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
+
+**Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
+
+![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
+
+**Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
+
+**Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Method 2 to get Windows Photo Viewer back
+
+Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
+
+Here is the detailed guide –
+
+**Step 1** – Go to the image or picture folder on your Windows 10 computer and right click on any image. Now, choose ‘Open With’ and click on ‘Choose another app’.
+
+**Step 2** – Tap the ‘More apps’ option here in case, you can’t find out the Windows Photo Viewer within the list.
+
+**Step 3** – Keep scrolling towards the bottom of the screen to find out ‘Windows Photo Viewer’. If ‘Windows Photo Viewer’ is visible, then it has been installed there and you can use it without any problem.
+
+![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
+
+**Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
+
+![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Conclusion
+
+From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-a-user-friendly-guide-to-leveraging-windows-10-and-zoom/"><u>[New] A User-Friendly Guide to Leveraging Windows 10 and Zoom</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-beats-for-chats-adding-sound-to-whatsapp-for-2024/"><u>[New] Beats for Chats Adding Sound to WhatsApp for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-beginners-guide-top-10-easy-to-fly-drones/"><u>[New] Beginner's Guide Top 10 Easy-to-Fly Drones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-harmonious-guidelines-instagram-and-intellectual-property/"><u>[New] Harmonious Guidelines Instagram & Intellectual Property</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-navigating-the-world-of-instagram-stories-easily/"><u>[New] In 2024, Navigating the World of Instagram Stories Easily</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-cam-alternatives-not-like-gopro-for-2024/"><u>[New] The Ultimate Guide to Cam Alternatives Not Like GoPro for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-inshot-a-thorough-editor-investigation/"><u>[New] Unveiling InShot A Thorough Editor Investigation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-10-best-music-clips-making-them-happen/"><u>[Updated] In 2024, Facebook's 10 Best Music Clips Making Them Happen</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-srt-transition-subbed-content-conversion-strategies-for-2024/"><u>[Updated] SRT Transition Subbed Content Conversion Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-synchronized-squawks-and-soarings-the-bebop-parrot-review/"><u>[Updated] Synchronized Squawks & Soarings The Bebop Parrot Review</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-oppo-k11x-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Oppo K11x Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-becoming-a-green-mastermind-with-kinemasters-gs-knowledge/"><u>In 2024, Becoming a Green Mastermind with KineMaster's GS Knowledge</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unveiling-novel-window-11-secrets-for-enhanced-usage/"><u>In 2024, Unveiling Novel WINDOW 11 Secrets for Enhanced Usage</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-audio-issues-on-ios-restore-sound-now/"><u>Struggling with Audio Issues on iOS? Restore Sound Now</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-iphone-lens-enhancers-x8-series-selection-for-2024/"><u>Top iPhone Lens Enhancers X/8 Series Selection for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-no-cost-4k-hevc-decoders-the-ultimate-guide/"><u>Top No-Cost 4K HEVC Decoders: The Ultimate Guide</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/top-rated-video-resume-creators-and-expert-advice/"><u>Top-Rated Video Resume Creators & Expert Advice</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-solution-resolving-the-helldivers-game-blue-screen-error/"><u>Ultimate Solution: Resolving the Helldiver's Game - Blue Screen Error</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/vanish-3-rivalry-mirage-4-makes-waves/"><u>Vanish 3 Rivalry Mirage 4 Makes Waves</u></a></li>
+</ul></div>
+

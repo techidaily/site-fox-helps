@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Journey Through Hybrid Horizons  Understanding Mixed Reality\""
-date: 2024-11-13T02:00:46.336Z
-updated: 2024-11-17T20:58:46.735Z
+date: 2024-11-20T19:34:40.486Z
+updated: 2024-11-27T18:29:41.760Z
 tags: 
   - screen-recording
   - ai video
@@ -38,38 +38,19 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Applications of Mixed Reality
 
  Due to the unique features and experiences offered by mixed reality, businesses, developers and the world in general is beginning to explore the various ways to utilize the technology for the best possible results. Currently, fields such as medicine, architecture and urban planning and education and training appear to be the greatest beneficiary of mixed reality technology.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mixed Reality for sharing real-world virtual workspaces
@@ -78,9 +59,17 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mixed reality for remote experts – over the shoulder coaching
 
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The future of mixed reality
 
@@ -93,10 +82,7 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -124,19 +110,21 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-essential-steps-for-recording-on-facebook-live-for-2024/"><u>[New] Essential Steps for Recording on Facebook Live for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-perfect-game-capture-in-minecraft/"><u>[New] In 2024, Perfect Game Capture in Minecraft</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-best-assortment-professional-webcam-platforms/"><u>2024 Approved Best Assortment Professional Webcam Platforms</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-close-up-a-guide-to-richer-minecraft-imagery/"><u>2024 Approved Close-Up A Guide to Richer Minecraft Imagery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-step-by-step-kinemaster-guidance-for-flawless-green-screen-techniques/"><u>2024 Approved Step-by-Step Kinemaster Guidance for Flawless Green Screen Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-understanding-theta-s-complete-technical-review/"><u>2024 Approved Understanding Theta S Complete Technical Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/8-elite-applications-to-extract-mp3-audio/"><u>8 Elite Applications to Extract MP3 Audio</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/advanced-guide-to-using-luts-for-professional-image-editors-for-2024/"><u>Advanced Guide to Using LUTs for Professional Image Editors for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/beyond-the-basics-advanced-livestreaming-tools-for-2024/"><u>Beyond the Basics Advanced Livestreaming Tools for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/bring-back-normalcy-explorers-fix/"><u>Bring Back Normalcy - Explorer's Fix</u></a></li>
-<li><a href="https://windows11.techidaily.com/dodge-the-delays-enhance-your-warfare-experience-in-bf2/"><u>Dodge the Delays: Enhance Your Warfare Experience in BF2</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-restore-excel-2019-file-by-stellar-guide/"><u>How Do I Restore Excel 2019 File ?</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-to-converse-seamlessly-with-chatgpt-across-the-globe/"><u>How to Converse Seamlessly with ChatGPT Across the Globe</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-top-spots-for-classic-ringtone-downloads/"><u>In 2024, Top Spots for Classic Ringtone Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tech-savvy-approach-to-downloading-apods-content/"><u>[New] 2024 Approved Tech-Savvy Approach to Downloading APods Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-essential-android-gb-advance-emulator-list/"><u>[New] Essential Android GB Advance Emulator List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-cross-media-production-network/"><u>[New] In 2024, Cross-Media Production Network</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-dive-into-the-world-of-books-top-5-captivating-vtts-revealed/"><u>[Updated] 2024 Approved Dive Into the World of Books Top 5 Captivating VTTs Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-future-proof-file-storage-essential-cloud-services-revealed/"><u>[Updated] In 2024, Future-Proof File Storage Essential Cloud Services Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-join-the-fun-best-gratuitous-meme-tools-available/"><u>[Updated] Join the Fun Best Gratuitous Meme Tools Available</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-camera-brands-for-future-musical-video-production-for-2024/"><u>[Updated] Top Camera Brands for Future Musical Video Production for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-motorola-razr-40-ultra-unlock-without-password-by-drfone-android/"><u>5 Solutions For Motorola Razr 40 Ultra Unlock Without Password</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/best-9-smartphone-video-call-solutions-iphone-vs-android-reviewed-for-2024/"><u>Best 9 Smartphone Video Call Solutions IPhone vs Android Reviewed for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/legal-ways-to-capture-conference-calls-with-and-without-consent-strategies/"><u>Legal Ways to Capture Conference Calls: With and Without Consent Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/snap-happy-with-iphone-burst-mode-for-2024/"><u>Snap-Happy with iPhone Burst Mode for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/solutions-for-troubleshooting-non-functioning-dell-sound-output/"><u>Solutions for Troubleshooting Non-Functioning Dell Sound Output</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-samsung-galaxy-s23plus-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Samsung Galaxy S23+? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://win-dash.techidaily.com/troubleshoot-your-logitech-m525-with-proven-software-solutions-free-driver-downloads/"><u>Troubleshoot Your Logitech M525 with Proven Software Solutions - Free Driver Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlocking-the-full-capabilities-of-windows-11-for-2024/"><u>Unlocking the Full Capabilities of Windows 11 for 2024</u></a></li>
 </ul></div>
 

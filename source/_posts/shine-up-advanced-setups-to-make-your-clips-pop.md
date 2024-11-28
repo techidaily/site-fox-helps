@@ -1,7 +1,7 @@
 ---
 title: "\"Shine Up  Advanced Setups to Make Your Clips Pop\""
-date: 2024-11-14T04:22:17.395Z
-updated: 2024-11-17T20:11:13.920Z
+date: 2024-11-23T05:17:18.192Z
+updated: 2024-11-28T01:17:43.179Z
 tags: 
   - screen-recording
   - ai video
@@ -53,11 +53,19 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
@@ -72,6 +80,10 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
@@ -91,6 +103,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -98,10 +114,7 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -138,24 +151,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-illuminate-a-guide-to-great-vlog-images/"><u>[New] 2024 Approved How to Illuminate A Guide to Great Vlog Images</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tailoring-your-canvas-a-guide-to-erasing-background-elements/"><u>[New] 2024 Approved Tailoring Your Canvas A Guide to Erasing Background Elements</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-how-to-optimize-zoom-effectiveness-during-your-google-meet/"><u>[New] In 2024, How to Optimize Zoom Effectiveness During Your Google Meet</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-sony-action-camera-x1000-performance/"><u>[New] In 2024, Unveiling Sony Action Camera X1000 Performance</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-strategies-for-smooth-srt-exports-post-premiere-for-2024/"><u>[New] Strategies for Smooth SRT Exports Post-Premiere for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-behind-the-scenes-of-360-degree-media/"><u>[Updated] 2024 Approved Behind the Scenes of 360-Degree Media</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-inside-the-wearable-world-how-does-vr-work/"><u>[Updated] 2024 Approved Inside the Wearable World How Does VR Work?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-by-step-how-to-erase-photographic-backgrounds/"><u>[Updated] 2024 Approved Step-by-Step How to Erase Photographic Backgrounds</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-from-pilot-to-producer-editing-mastery-in-drone-filmmaking-for-2024/"><u>[Updated] From Pilot to Producer Editing Mastery in Drone Filmmaking for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlocking-the-power-of-zoom-with-your-chrome-os-device/"><u>[Updated] In 2024, Unlocking the Power of Zoom with Your Chrome OS Device</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-excellent-video-creatives/"><u>[Updated] In 2024, Unveiling Excellent Video Creatives</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-mastering-google-voice-call-recording-essential-steps/"><u>[Updated] Mastering Google Voice Call Recording Essential Steps</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-approaches-to-nba-game-broadcasting/"><u>2024 Approved Innovative Approaches to NBA Game Broadcasting</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/cambia-tus-archivos-de-imagen-jpg-gratuitamente-a-formato-jpeg-en-linea-usando-movavi/"><u>Cambia Tus Archivos De Imagen JPG Gratuitamente a Formato JPEG en Línea Usando Movavi</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/droning-for-the-young-and-novice-top-picks/"><u>Droning for the Young and Novice Top Picks</u></a></li>
-<li><a href="https://win-blog.techidaily.com/easy-steps-for-smooth-gameplay-eliminating-csgo-lag-problems/"><u>Easy Steps for Smooth Gameplay - Eliminating CS:GO Lag Problems</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/effortless-techniques-how-can-you-save-linking-in-video-content/"><u>Effortless Techniques: How Can You Save Linking In Video Content?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/g-it-big-on-youtube-your-strategy-playbook/"><u>Making It Big on YouTube Your Strategy Playbook</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-fixing-the-critical-error-code-0xc0000098-on-your-pc/"><u>Step-by-Step Solution for Fixing the Critical Error Code 0Xc0000098 on Your PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-perfect-zoom-optimizing-kinemasters-viewer-engagement/"><u>[New] 2024 Approved Perfect Zoom Optimizing Kinemaster's Viewer Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafting-perfect-images-with-ios-size-modification-skills-for-2024/"><u>[New] Crafting Perfect Images with iOS Size Modification Skills for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-enhancing-facial-dynamics-using-picsarts-motion-blur-for-2024/"><u>[New] Enhancing Facial Dynamics Using Picsart's Motion Blur for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gain-more-loyal-viewers-unlock-top-strategies-for-enhancing-viewer-retention-on-youtube/"><u>[Updated] In 2024, Gain More Loyal Viewers Unlock Top Strategies for Enhancing Viewer Retention on YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/coming-soon-windows-10-eol-approaches-explore-alternative-operating-systems/"><u>Coming Soon: Windows 10 EOL Approaches – Explore Alternative Operating Systems</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/deciphering-and-solving-the-resident-evil-village-creepy-critter-conundrums/"><u>Deciphering and Solving the 'Resident Evil Village' Creepy Critter Conundrums</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/download-free-image-restoration-tool-recover-damaged-photographs-instantly/"><u>Download Free Image Restoration Tool - Recover Damaged Photographs Instantly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-elite-12-action-recording-devices-with-built-in-gps-systems/"><u>In 2024, Elite 12 Action Recording Devices with Built-In GPS Systems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlock-clearer-depths-with-instas-bokeh-effects/"><u>In 2024, Unlock Clearer Depths with Insta's Bokeh Effects</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-the-fix-a-comprehvew-to-solving-utorrent-download-difficulties/"><u>Mastering the Fix: A Comprehvew to Solving uTorrent Download Difficulties</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/seamless-workflow-enhancement-uniting-abbyy-and-automation-anywhere/"><u>Seamless Workflow Enhancement: Uniting ABBYY and Automation Anywhere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-next-big-thing-in-action-videos-sj7s-ultra-hd-star-4k-camera-explained/"><u>The Next Big Thing in Action Videos? SJ7's Ultra HD Star 4K Camera Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-sweet-spot-of-smartwatches-apple-watch-se-evaluation/"><u>The Sweet Spot of Smartwatches: Apple Watch SE Evaluation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-samsung-galaxy-m34-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Samsung Galaxy M34 5G Phone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/total-byte-requirement-for-24-hours-of-movie-viewing-for-2024/"><u>Total Byte Requirement for 24 Hours of Movie Viewing for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expert Insights on the BYB E430 LED Lamppost with Ergonomic Swing Arm Design
-date: 2024-11-11T00:11:12.523Z
-updated: 2024-11-17T17:25:18.686Z
+date: 2024-11-26T01:31:04.169Z
+updated: 2024-11-27T21:47:09.802Z
 categories:
   - BestProducts
 description: This Article Describes Expert Insights on the BYB E430 LED Lamppost with Ergonomic Swing Arm Design
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -43,13 +47,6 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
 
 3
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -73,6 +70,10 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -81,13 +82,14 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
@@ -103,13 +105,6 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -130,10 +125,7 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Decent for what you get**
@@ -183,21 +175,22 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-hand-tracking-uncovered-diverse-approaches/"><u>[New] 2024 Approved Hand Tracking Uncovered Diverse Approaches</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-illuminating-seamless-transitions-in-song-production-crossfade/"><u>[New] 2024 Approved Illuminating Seamless Transitions in Song Production (Crossfade)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-a-list-mobile-applications-for-enhanced-gopro-videos-for-2024/"><u>[New] A-List Mobile Applications for Enhanced GoPro Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-synchronized-tasks-and-engaging-podcast-episodes/"><u>[New] In 2024, Synchronized Tasks and Engaging Podcast Episodes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-premier-ai-for-stunning-photo-creation/"><u>[New] Premier AI for Stunning Photo Creation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-airdrop-not-working-how-to-fix-it-on-iphone-ipad-and-mac/"><u>[Updated] Airdrop Not Working? How to Fix It on iPhone, iPad, & Mac</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-boundaries-of-true-black-on-asuss-professional-screen/"><u>[Updated] Exploring the Boundaries of True Black on ASUS's Professional Screen</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-ten-steps-to-keeping-vr-healthy/"><u>[Updated] Ten Steps to Keeping VR Healthy</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comprehensive-guide-to-successfully-creating-a-d3d-device-after-previous-failures/"><u>Comprehensive Guide to Successfully Creating a D3D Device After Previous Failures</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/enhancing-visuals-in-remote-collaborations-with-google-meet/"><u>Enhancing Visuals in Remote Collaborations with Google Meet</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/exploring-every-corner-of-youtube-a-detailed-comment-guide/"><u>Exploring Every Corner of YouTube A Detailed Comment Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-z-flip-5-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy Z Flip 5 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/julys-must-watch-a-collection-of-top-free-movies-available-on-youtube/"><u>July's Must-Watch: A Collection of Top Free Movies Available on YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1724766881397-macx-video-converter-pro/"><u>MacX Video Converter Pro: 直接於線上購入</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/quick-and-easy-techniques-to-separate-foreground-from-background-in-photos-using-your-iphone/"><u>Quick and Easy Techniques to Separate Foreground From Background in Photos Using Your iPhone</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-manages-my-digital-imagery/"><u>Who Manages My Digital Imagery?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-android-recording-at-your-fingertips-explore-our-top-8-free-choices/"><u>[New] 2024 Approved Android Recording at Your Fingertips – Explore Our Top 8 Free Choices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-in-the-spotlight-top-viewers-choice/"><u>[New] 2024 Approved In the Spotlight Top Viewers' Choice</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevate-your-package-prelude/"><u>[New] In 2024, Elevate Your Package Prelude</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-navigating-through-the-complexities-of-canon-time-lapse/"><u>[New] In 2024, Navigating Through the Complexities of Canon Time-Lapse</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-secrets-of-effective-powerpoint-presentation-recordings/"><u>[New] In 2024, Secrets of Effective PowerPoint Presentation Recordings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[Updated] 2024 Approved Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-redesigning-the-perception-of-sony-s3700-review/"><u>[Updated] 2024 Approved Redesigning the Perception of Sony S3700 Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-boosting-collaboration-essential-zoom-video-alterations-for-2024/"><u>[Updated] Boosting Collaboration Essential Zoom Video Alterations for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-celebrating-maker-spirits-creative-otu-packs-for-2024/"><u>[Updated] Celebrating Maker Spirits Creative OTU Packs for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-essential-online-spots-for-digitized-artwork/"><u>[Updated] Essential Online Spots for Digitized Artwork</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-flight-to-film-expert-techniques-for-video-editors-using-drones-for-2024/"><u>[Updated] Flight to Film Expert Techniques for Video Editors Using Drones for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-30-free-mac-speech-to-text-software-youve-missed/"><u>[Updated] In 2024, Top 30 Free Mac Speech-to-Text Software You've Missed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-network-recognition-issues-a-practical-guide-for-your-samsung-device/"><u>Fixing Network Recognition Issues: A Practical Guide for Your Samsung Device</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-poco-f5-pro-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Poco F5 Pro 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-explore-the-finest-15-video-cameras-for-vlogging-success/"><u>In 2024, Explore the Finest 15 Video Cameras for Vlogging Success</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/instasong-rights-guidelines-for-2024/"><u>InstaSong Rights Guidelines for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/stay-ahead-of-the-game-top-task-filled-ideas-for-maximizing-your-podcast-experience/"><u>Stay Ahead of the Game Top Task-Filled Ideas for Maximizing Your Podcast Experience</u></a></li>
 </ul></div>
 

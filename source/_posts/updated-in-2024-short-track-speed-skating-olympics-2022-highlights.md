@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Short Track Speed Skating Olympics 2022 Highlights"
-date: 2024-11-14T16:16:39.401Z
-updated: 2024-11-18T03:33:39.988Z
+date: 2024-11-23T01:47:52.178Z
+updated: 2024-11-27T17:35:42.267Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -41,23 +45,9 @@ Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
@@ -72,10 +62,7 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
@@ -85,6 +72,14 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -99,6 +94,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -118,13 +117,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -134,13 +126,6 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,20 +150,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-cutting-edge-creations-pro-tips-for-tiktok-editors-for-2024/"><u>[New] Cutting-Edge Creations Pro Tips for TikTok Editors for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-vlc-media-player-review-and-alternatives/"><u>[New] In 2024, VLC Media Player Review and Alternatives</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-start-with-smart-edits-10-tips-for-new-photoshop-users-for-2024/"><u>[New] Start with Smart Edits 10 Tips for New Photoshop Users for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-cinema-teasers-compilation/"><u>[New] Top Cinema Teasers Compilation</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-digital-video-capturing-demystified-systematic-guide/"><u>[Updated] Digital Video Capturing Demystified Systematic Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-hilarity-in-harmony-great-ringtone-websites/"><u>[Updated] In 2024, Hilarity in Harmony Great Ringtone Websites</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-learn-to-edit-the-avalanche-reducing-clutter-in-your-tiktok-drafters/"><u>[Updated] Learn to Edit the Avalanche Reducing Clutter in Your TikTok Drafters</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-samsung-galaxy-s23-fe-frp-bypass-by-drfone-android/"><u>About Samsung Galaxy S23 FE FRP Bypass</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/building-an-audience-with-exceptional-fb-reel-content/"><u>Building an Audience with Exceptional FB Reel Content</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211236168-9781738282319-echoes-of-krishna/"><u>Echoes of Krishna | Free Book</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-exclusive-high-end-computer-choices/"><u>In 2024, Exclusive High-End Computer Choices</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-tranquil-touchscreen-best-idle-phone-adventures/"><u>In 2024, Tranquil Touchscreen Best Idle Phone Adventures</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-efficient-discord-use-minimizing-high-cpu-consumption/"><u>Mastering Efficient Discord Use: Minimizing High CPU Consumption</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-5-efforts-crafting-perfect-titles-for-2024/"><u>Top 5 Efforts Crafting Perfect Titles for 2024</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/ultra-hd-reconstruction-how-does-ai-elevate-your-videos-to-4k-brilliance/"><u>Ultra-HD Reconstruction: How Does AI Elevate Your Videos to 4K Brilliance?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-instagram-soundtracks-download-and-design-your-own/"><u>[New] 2024 Approved Instagram Soundtracks Download & Design Your Own</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-step-guide-to-incorporating-yt-clips-into-presentations/"><u>[New] 2024 Approved Step-by-Step Guide to Incorporating YT Clips Into Presentations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-broadcast-battleground-pick-your-preferred-livestreaming-champion-vmixwirecast-for-2024/"><u>[New] Broadcast Battleground Pick Your Preferred Livestreaming Champion (VMix/Wirecast) for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-how-do-i-schedule-a-screen-recording/"><u>[New] How Do I Schedule A Screen Recording</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-in-depth-look-at-engaging-with-youtube-comment-threads/"><u>[New] In 2024, In-Depth Look at Engaging with YouTube Comment Threads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-the-mix-adding-cropping-and-adjusting-audio-in-canva/"><u>[New] In 2024, Mastering the Mix Adding, Cropping & Adjusting Audio in Canva</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pewdiepie-financial-overview-monetary-metrics-for-2024/"><u>[New] PewDiePie Financial Overview – Monetary Metrics for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-samsung-gear-360-vs-lg-360-cam-which-360-degree-camera-is-better/"><u>[New] Samsung Gear 360 vs LG 360 Cam Which 360 Degree Camera Is Better</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effortless-creativity-syncing-photos-and-video-in-one-device/"><u>[Updated] Effortless Creativity Syncing Photos & Video in One Device</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-obs-clash-livestream-prodigies-for-2024/"><u>[Updated] OBS Clash - LiveStream Prodigies for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-premium-5-conferencing-recording-equipment-guide-for-2024/"><u>[Updated] Premium 5 Conferencing Recording Equipment Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-7-cost-effective-user-friendly-movie-software/"><u>[Updated] Top 7 Cost-Effective, User-Friendly Movie Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unheard-voices-on-youtube-livestream-success-beyond-1000-supporters/"><u>[Updated] Unheard Voices on YouTube Livestream Success Beyond 1000 Supporters</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bridging-worlds-dex-transforms-galaxy-and-windows-interaction/"><u>Bridging Worlds: DeX Transforms Galaxy & Windows Interaction</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tless-strategy-deleting-dislikes-from-youtube-discussions-for-2024/"><u>Effortless Strategy Deleting Dislikes From YouTube Discussions for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-nokia-c32-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Nokia C32 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-humor-hierarchy-the-20-most-popular-memes/"><u>In 2024, Humor Hierarchy The 20 Most Popular Memes</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-detecting-phony-social-network-outreaches/"><u>The Ultimate Guide: Detecting Phony Social Network Outreaches</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ultimate-online-destinations-for-3d-shimmering-letters-for-2024/"><u>Ultimate Online Destinations for 3D Shimmering Letters for 2024</u></a></li>
 </ul></div>
 

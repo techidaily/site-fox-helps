@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Enhance Mobile Cinematography  Must-Have iPhone Accessories\""
-date: 2024-11-12T02:50:26.277Z
-updated: 2024-11-17T18:48:58.657Z
+date: 2024-11-26T05:58:55.900Z
+updated: 2024-11-28T05:32:09.001Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,7 @@ How to press the record button without ever touching your phone? The answer is s
 ![remote-shutter-release ](https://images.wondershare.com/filmora/article-images/remote-shutter-release.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## External Lenses
@@ -62,20 +59,6 @@ Nothing influences the quality of your pictures more than the optics you use to 
 
 ![ iphone-lense](https://images.wondershare.com/filmora/article-images/iphone-lense.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## External Light Source
 
 To photograph or to film something simply means to capture the light at the certain place in a certain moment. Due to the lack of light that is not always possible and an additional source of light is often necessary to ensure that camera receives enough light. Using a camera flash can be a quick solution for this problem, but the light the flash produces can be too hard and it always comes from the same direction. [Photojojo's pocket spotlight](https://photojojo.com/awesomeness/pocket-spotlight) is an external light source that allows you to get creative with light in your videos or photos. You can adjust the brightness settings and choose between full strength, half strength, and strobe modes. Photojojo's pocket spotlight is one of many external light sources that can be used with iPhones and other Apple's devices and it will enable you to unleash your creativity.
@@ -83,10 +66,7 @@ To photograph or to film something simply means to capture the light at the cert
 ![light-iphone ](https://images.wondershare.com/filmora/article-images/light-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## External Battery/Charger
@@ -95,18 +75,15 @@ Recording or taking photos for long periods of time can be demanding on your iPh
 
 ![battery-iphone ](https://images.wondershare.com/filmora/article-images/battery-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Microphone
 
 The era of silent movies is long gone and today the quality of the video's sound is as important as the image quality. iPhone's built-in microphones are far from perfect and if for any reason the sound quality in your video is important to you, you should use an external shotgun microphone like [VideoMic Me](http://www.rode.com/microphones/videomicme). This microphone for iPhones is produced by Røde Microphones one the industry's leading companies which speak volumes about the quality of this small and practical microphone. VideoMic Me connects to an iPhone through the TRRS headphone/microphone socket and it can be used with both front and back cameras. This directional mic is designed to shoot outdoors and it's equipped with a deluxe furry windshield, that enables you to capture perfect audio even when it is windy outside.
 
 ![mic-iphone ](https://images.wondershare.com/filmora/article-images/mic-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Stabilization Gadgets
 
@@ -115,10 +92,7 @@ Besides tripods, you can use gimbals like [DJI Osmo Mobile](http://store.dji.com
 ![iphone-stabilizer ](https://images.wondershare.com/filmora/article-images/iphone-stabilizer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Camera Dollies
@@ -127,11 +101,19 @@ Did you ever dream of taking a perfect tracking shot with your iPhone? Anyone wh
 
 ![ iphone-stabilizer-dolly](https://images.wondershare.com/filmora/article-images/iphone-stabilizer-dolly.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Camera apps
 
 There is no doubt that iPhone's cameras are capable of stunning performances, but if you'd like to give the videos you create with your iPhone a more cinematic look, camera apps might be the thing that you are looking for. Apps like [FiLMiC Pro](http://www.filmicpro.com/apps/apple/filmic-pro/) turn iOS camera into a high definition camera that can stand shoulder to shoulder with some of the best professional cameras today. This two-time video camera app of the year enables you to fully control settings like ISO, Shutter Speed or Exposure bias which results in the footage that is worthy of industry's best cameras. The app allows you to shoot 4K video in resolutions at up to 100Mbps and the latest update added the digital cinema 17:9 aspect ratio.
 
 ![filmic-pro-iphone ](https://images.wondershare.com/filmora/article-images/filmic-pro-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Selfie Stick
 
@@ -139,18 +121,19 @@ Taking a selfie isn't always easy, especially if you want to capture some of the
 
 ![selfie-stick-iphone ](https://images.wondershare.com/filmora/article-images/selfie-stick-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Underwater Housing
 
 In the summertime, many people like to document their underwater adventures. But most underwater cameras are disposable and the image quality they produce is questionable at best. Underwater housings for iPhones might be a little pricey, but they enable you to capture the magnificence of the sea life in high definition. The [LenzO for iPhone 7 Plus](https://www.valstech.com/products/lenzo-for-iphone-7-plus) is designed and built using the same technologies that created the success of Lenzo's housings for iPhone 6/6s and iPhone 7\. The housing is composed out of aluminum and can be used at depths up to a hundred meters below the surface. You can access all of the phone's camera functions including the 4K or time-lapse modes. Underwater housings protect your iPhone and enable you to have a lot of fun while exploring the underwater world.
 
 ![underwater-iphone ](https://images.wondershare.com/filmora/article-images/underwater-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -179,22 +162,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-flickering-camera-lights-to-financial-highlights-for-2024/"><u>[New] From Flickering Camera Lights to Financial Highlights for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-artistic-science-behind-youtube-live-imagery-for-2024/"><u>[New] The Artistic Science Behind YouTube Live Imagery for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-essential-guide-to-trimming-videos-in-your-windows-device/"><u>[Updated] In 2024, The Essential Guide to Trimming Videos in Your Windows Device</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-hidden-pathways-to-earning-on-youtube/"><u>[Updated] Unveiling the Hidden Pathways to Earning on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-scouting-top-7-innovative-mobile-streaming-tools-for-youtube-enthusiasts/"><u>2024 Approved Scouting Top 7 Innovative Mobile Streaming Tools for YouTube Enthusiasts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/boost-camera-output-retain-excellent-clarity-for-2024/"><u>Boost Camera Output, Retain Excellent Clarity for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/capturing-the-whispered-hours-comprehensive-slomo-app-study-2024/"><u>Capturing the Whispered Hours Comprehensive SloMo App Study, 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/cut-the-clutter-advanced-techniques-for-windows-11-videos-for-2024/"><u>Cut the Clutter Advanced Techniques for Windows 11 Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/cutting-edge-av-producers-compendium-online-for-2024/"><u>Cutting-Edge AV Producers' Compendium Online for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/demystifying-srt-to-sub-clear-practical-solutions/"><u>Demystifying SRT to SUB Clear, Practical Solutions</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722974460619-download-the-new-geforce-rtx-3090-windows-driver-enhance-your-gaming-experience/"><u>Download the New GeForce RTX 3090 Windows Driver: Enhance Your Gaming Experience</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/enabling-creativity-with-free-online-and-offline-animation-methods/"><u>Enabling Creativity with Free Online & Offline Animation Methods</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/enhance-your-graphic-content-canvas-boundary-elimination-trick/"><u>Enhance Your Graphic Content Canva's Boundary Elimination Trick</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/evolving-photographic-moments-into-sequential-action/"><u>Evolving Photographic Moments Into Sequential Action</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-crash-log-analysis-for-troubleshooting-windows-issues/"><u>Mastering Crash Log Analysis for Troubleshooting Windows Issues</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-closer-look-at-luminance-and-its-hdr-achievements/"><u>[New] 2024 Approved A Closer Look at Luminance and Its HDR Achievements</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-comprehensive-breakdown-exploring-lgs-widescreen-uhd-display-for-2024/"><u>[New] Comprehensive Breakdown Exploring LG's Widescreen UHD Display for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-deciphering-the-auto-cut-functionality-in-imovie/"><u>[New] In 2024, Deciphering the Auto-Cut Functionality in iMovie</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-mkv-playback-top-macos-apps-reviewed/"><u>[New] In 2024, MKV Playback Top macOS Apps Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-record-screen-on-huawei-mate-10-20-p20-and-p10-using-a-built-in-recorder-for-2024/"><u>[New] Record Screen On Huawei Mate 10, 20, P20 and P10 Using a Built-In Recorder for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-guide-to-cinematography-on-youtube/"><u>[New] The Ultimate Guide to Cinematography on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-pop-sync-streamlining-song-placement-on-instagram-stories/"><u>2024 Approved Pop Sync Streamlining Song Placement on Instagram Stories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-srt-file-handling-simplified-on-pcmac/"><u>2024 Approved SRT File Handling Simplified on PC/Mac</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/deciphering-the-meanings-behind-your-ps4-controllers-light-signals-blue-white-red-and-orange/"><u>Deciphering the Meanings Behind Your PS4 Controller's Light Signals: Blue, White, Red & Orange</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-google-pixel-7a-devices-by-drfone-android/"><u>How to Reset Gmail Password on Google Pixel 7a Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-harmony-and-law-instagrams-music-codex/"><u>In 2024, Harmony & Law Instagram's Music Codex</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-13-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 13 Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ultimate-list-best-high-definition-blu-ray-decks/"><u>Ultimate List Best High-Definition Blu-Ray Decks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nubia Z50S Pro | Dr.fone</u></a></li>
 </ul></div>
 
