@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring Virtual Add-Ons to Reality\""
-date: 2024-08-28T15:10:48.483Z
-updated: 2024-08-29T15:10:48.483Z
+date: 2024-12-02T20:14:53.708Z
+updated: 2024-12-06T17:04:49.597Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Definition of AR
 
  Augmented Reality (AR) is the application of technology to superimpose information on digitally rendered images into real world environments to give a sense of virtual reality or create an illusion. For example, images and sounds are superimposed over what users see and hear.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
  The presentation of augmented reality is in some form of futuristic technology, despite the fact that it has been around for many years. For example, the heads-up display in many fighter jets utilizes the principles of augmented reality, and these date back to the early 1990s when they were used to show information about altitude, speed and direction of the aircraft.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How does Augmented Reality work
 
  The kind of augmented reality you are likely to experience these days utilizes a range of sensors such as cameras and computer components as well as display devices in creating the illusion of virtual objects in the real world. Some of the smartphones in the market today have all the necessary components needed in the creation of augmented reality hence they are commonly used for most of AR experiences. The basic working of augmented reality is as follows-:
@@ -41,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
  In general, the device will search for a particular object, which can be anything, but in most cases, they are usually 2D images like in the form of a movie poster. The augmented reality application will recognize the target through the camera and it will then process the image and augment it in some form through the utilization of sound and pictures. For example, if the target object was a movie poster, you may see it spring into life to play a trailer of the movie. So long as you continue viewing the poster through the “window” of the display object, you will see augmented reality rather than the plain old normal poster in normal reality.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The future of Augmented Reality
 
  The future of augmented reality has never been brighter as it is at the moment. Though mobile devices are the primary avenues for VR at the moment, this is not expected to remain the case since a lot of developments, enhancements and innovations are currently taking place in the industry. For instance, work is currently on in the development of augmented reality ear buds which will allow users to adjust sounds coming from the environment.
@@ -52,8 +61,9 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
  Like with every new technology, augmented reality comes with a plethora or ethical and political issues. For example, the Google Glass came along with a lot of privacy concerns, with some people worried that pictures may be snapped or conversations may be recorded surreptitiously. But amidst all these concerns, AR technology is expected to gather more steam in the near future and it will be a part of life for the majority.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Applications of Augmented Reality
 
  Augmented reality is used widely across different industries for various applications, with education and gaming taking the lion’s share of the uses. Discussed below are some of the applications of augmented reality:
@@ -89,8 +99,9 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -114,4 +125,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-engaging-audiences-with-dynamic-photoviewer-content-in-pixiz/"><u>[New] Engaging Audiences with Dynamic Photoviewer Content in Pixiz</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-find-the-perfect-personalized-boxed-gift-at-these-online-retailers/"><u>[New] Find the Perfect Personalized Boxed Gift at These Online Retailers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-explore-prime-cardboard-compatible-vr-adventures/"><u>[New] In 2024, Explore Prime Cardboard-Compatible VR Adventures</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-mastering-facebook-broadcasts-via-pc-and-mac-with-obs/"><u>[New] Mastering Facebook Broadcasts via PC & Mac with OBS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premium-choices-the-best-8-tripods-for-4k-cinematography-for-2024/"><u>[New] Premium Choices The Best 8 Tripods for 4K Cinematography for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-sci-fis-virtual-quest-the-best-movies-to-discover-alien-universes/"><u>[New] Sci-Fi's Virtual Quest The Best Movies to Discover Alien Universes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-enrich-your-knowledge-student-approved-history-youtubes-to-watch/"><u>[Updated] In 2024, Enrich Your Knowledge Student-Approved History YouTubes To Watch</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-webs-whiz-kids-10-highest-viewing-stars/"><u>[Updated] In 2024, Web's Whiz Kids 10 Highest Viewing Stars</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-instructions-for-installing-windows-movie-maker-6/"><u>[Updated] Instructions for Installing Windows Movie Maker 6</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-m1-pro-to-m1-max-understanding-the-differences-in-apple-computing/"><u>2024 Approved M1 Pro to M1 Max Understanding the Differences in Apple Computing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/abbyy-at-the-2018-strategy-days-in-finance-are-digital-transformations-turning-financial-experts-into-data-managers/"><u>ABBYY at the 2018 Strategy Days in Finance: Are Digital Transformations Turning Financial Experts Into Data Managers?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/accelerating-visual-flow-in-microsoft-slides/"><u>Accelerating Visual Flow in Microsoft Slides</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-ids-downfall-meta-writes-the-new-chapter-for-fb/"><u>Facial ID's Downfall? Meta’ Writes the New Chapter for FB</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/fixing-curved-video-gopros-fisheye-issue/"><u>Fixing Curved Video GoPro's Fisheye Issue</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-nokia-c12-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Nokia C12 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/laugh-out-loud-with-ease-crafting-memes-in-a-flash/"><u>Laugh Out Loud with Ease Crafting Memes in a Flash</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/melody-filled-visuals-the-fusion-project/"><u>Melody-Filled Visuals The Fusion Project</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-mac-4k-monitor-selections-top-10-edition-for-2024/"><u>Premier Mac 4K Monitor Selections Top 10 Edition for 2024</u></a></li>
+</ul></div>
 

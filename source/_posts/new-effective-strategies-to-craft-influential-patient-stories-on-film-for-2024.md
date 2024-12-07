@@ -1,7 +1,7 @@
 ---
 title: "[New] Effective Strategies to Craft Influential Patient Stories on Film for 2024"
-date: 2024-11-26T03:31:41.720Z
-updated: 2024-11-27T16:10:25.735Z
+date: 2024-11-30T21:20:46.732Z
+updated: 2024-12-06T23:08:05.964Z
 tags: 
   - screen-recording
   - ai video
@@ -25,13 +25,13 @@ If you want to learn how to create video testimonials that convert, then this po
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
@@ -50,7 +50,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Include Strong Opinions
@@ -78,7 +78,7 @@ Asking open-ended questions allows people greater freedom when responding—and 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
@@ -90,16 +90,12 @@ This is a given. If you want your testimonial videos to be effective and believa
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -108,6 +104,10 @@ If someone says "I love this product," but then shows their eyes darting around 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,22 +143,20 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-experts-list-prime-business-sky-saver/"><u>[New] 2024 Approved Expert's List Prime Business Sky Saver</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-innovative-imaging-identifying-the-top-10-smartphone-cameras-in-4k-for-2024/"><u>[New] Innovative Imaging Identifying the Top 10 Smartphone Cameras in 4K for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-pro-level-hdr-mastery-your-compre-point-of-entry/"><u>[New] Pro Level HDR Mastery Your Compre Point of Entry</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-tailoring-pixel-sounds-to-your-style-for-2024/"><u>[New] Tailoring Pixel Sounds to Your Style for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unlocking-your-phones-potential-with-custom-android-audio-alerts/"><u>[New] Unlocking Your Phone's Potential with Custom Android Audio Alerts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-videography-space-on-128gb-technology/"><u>[Updated] 2024 Approved Videography Space on 128GB Technology</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-best-movie-trailers-for-2024/"><u>[Updated] Best Movie Trailers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-elevate-visuals-no-cost-with-some-color-correction-tools-for-2024/"><u>[Updated] Elevate Visuals No Cost with Some Color Correction Tools for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ingenious-tactics-to-elevate-customer-feedback-visual-content/"><u>[Updated] In 2024, Ingenious Tactics to Elevate Customer Feedback Visual Content</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/distinguishing-features-of-signal-and-whatsapp-which-is-better/"><u>Distinguishing Features of Signal and WhatsApp – Which Is Better?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-8-superior-youtube-to-avi-software/"><u>Exploring 8 Superior YouTube-to-AVI Software</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-iphone-14-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ring-yoga-top-10-youtube-resources-for-enlightened-living-for-2024/"><u>Mastering Yoga Top 10 YouTube Resources for Enlightened Living for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-seamless-shift-your-path-to-kinemaster-expertise/"><u>The Seamless Shift Your Path to Kinemaster Expertise</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-fujitsu-scansnap-ix140n-best-choice-for-smbs-and-home-office-scanning-needs/"><u>Ultimate Guide to the Fujitsu ScanSnap iX140n - Best Choice for SMBs & Home Office Scanning Needs</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-exploring-key-components-and-creation-process-of-ai-face-generators-for-2024/"><u>Updated Exploring Key Components and Creation Process of AI Face Generators for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-slow-motion-mastery-the-top-10-video-players-you-need-for-2024/"><u>Updated Slow Motion Mastery The Top 10 Video Players You Need for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-diminishing-decibels-a-guide-to-quieter-soundscapes-in-lumafusion-for-2024/"><u>[New] Diminishing Decibels A Guide to Quieter Soundscapes in Lumafusion for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-raw-footage-to-youtube-a-step-by-step-process-unveiled/"><u>[New] From Raw Footage to YouTube A Step-by-Step Process Unveiled</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-most-popular-vr-game-experiences-on-oculus/"><u>[New] In 2024, The Most Popular VR Game Experiences on Oculus</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-m1-computing-power-comparing-macbook-air-to-macbook-pro/"><u>[New] M1 Computing Power Comparing MacBook Air to MacBook Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-reign-in-your-posts-the-ultimate-guide-to-choosing-8-best-timers/"><u>[New] Reign in Your Posts The Ultimate Guide to Choosing 8 Best Timers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-filmora-its-10-most-attractive-features-for-2024/"><u>[New] Unveiling Filmora Its 10 Most Attractive Features for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-a-guide-to-the-best-headsets-and-goggles-in-metaverse/"><u>[Updated] A Guide to the Best Headsets and Goggles in Metaverse</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-immersive-worlds-shaping-future-cinematic-experiences-for-2024/"><u>[Updated] Immersive Worlds Shaping Future Cinematic Experiences for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-deciphering-the-magic-behind-magixs-pixel-editor/"><u>[Updated] In 2024, Deciphering the Magic Behind MAGIX's Pixel Editor</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-future-is-now-how-vivacuts-2024-updates-are-redefining-editing/"><u>[Updated] The Future Is Now How VivaCut's 2024 Updates Are Redefining Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-market-mastery-in-3-easy-steps-with-key-vocabulary/"><u>In 2024, Market Mastery in 3 Easy Steps with Key Vocabulary</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/premiers-top-12-gps-enhanced-surveillance-cameras/"><u>Premier's Top 12 GPS-Enhanced Surveillance Cameras</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/seamlessly-integrate-android-autocarplay-into-your-vehicle-with-simple-steps/"><u>Seamlessly Integrate Android Auto/CarPlay Into Your Vehicle with Simple Steps</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-sound-issues-overcoming-stutters-and-distortions-in-windows-operating-systems/"><u>Troubleshooting Sound Issues: Overcoming Stutters and Distortions in Windows Operating Systems</u></a></li>
+<li><a href="https://win-web3.techidaily.com/windows-11drive-letters/"><u>Windows 11でDrive Lettersを切り替えるための４つの簡単なテクニック</u></a></li>
 </ul></div>
 

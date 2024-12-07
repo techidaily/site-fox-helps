@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, X-Factor Photo Session  The Classic iPhone Experience\""
-date: 2024-09-06T15:50:53.527Z
-updated: 2024-09-07T15:50:53.527Z
+date: 2024-12-06T14:36:47.747Z
+updated: 2024-12-06T20:33:21.134Z
 tags: 
   - screen-recording
   - ai video
@@ -16,30 +16,12 @@ keywords: "\"X-Factor Snaps,IPhone Photo Star,Classic iPhone Shot,Factor X Photo
 thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d5020753bc2f35168b92bccdf6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## X-Factor Photo Session: The Classic iPhone Experience
 
 # How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Ollie Mattison
 
  Mar 27, 2024• Proven solutions
@@ -47,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 Until recently, iPhone cameras didn't have lenses that enabled its users to produce smooth blurry backgrounds around the subject of a photo. The so-called Bokeh effect adds depth to the photo and it also allows the photographer to separate the model in the foreground from the background. Furthermore, creating a portrait photo with Apple's smartphones has never been easier, because the latest models of iPhones that have a twin-lens system make this process fun and easy.
 
 In this article, we are going to show you how to take photos in Portrait Mode, on iPhone X, 8 Plus, and 7 Plus, but we are also going to take a look at a few apps for older versions of iPhone that also enable you to create amazing portraits.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tips for iPhone portrait photos
 
@@ -80,11 +66,9 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For iPhone 8, 7 or older iPhones users
 
 #### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
@@ -96,17 +80,9 @@ If there is not enough light or if you are too far away from the camera, the app
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -117,12 +93,6 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
 #### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
@@ -132,6 +102,10 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 **Compatible with:** iOS 8.0 or later
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
@@ -143,16 +117,14 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -176,4 +148,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-acquiring-high-quality-copyright-free-images-for-2024/"><u>[New] Acquiring High-Quality Copyright-Free Images for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-eliminating-shake-effects-photographyvideo-guide-for-2024/"><u>[New] Eliminating Shake Effects Photography/Video Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-harnessing-the-power-of-post-production-colors-for-2024/"><u>[New] Harnessing the Power of Post-Production Colors for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-exploring-digital-magic-enhancing-vhs-photos-online/"><u>[New] In 2024, Exploring Digital Magic Enhancing VHS Photos Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-most-innovative-arvr-iphoneandroid-apps/"><u>[New] Most Innovative AR/VR iPhone/Android Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-boosting-video-conference-quality-a-guide-to-using-zoom-and-skype/"><u>[Updated] Boosting Video Conference Quality A Guide to Using ZOOM & SKYPE</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-celebrating-redditenas-top-ten-upvoted-discussions/"><u>[Updated] Celebrating Reddit'enas Top Ten Upvoted Discussions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-content-writability-with-these-best-fonts-for-2024/"><u>[Updated] Elevate Your Content' Writability with These Best Fonts for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-composing-a-catchy-tiktok-epilogue/"><u>[Updated] In 2024, Composing a Catchy TikTok Epilogue</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-superior-real-time-media-streamers-for-2024/"><u>[Updated] Superior Real-Time Media Streamers for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-price-efficiency-index-top-cloud-stores-of-the-year/"><u>2024 Approved Price-Efficiency Index Top Cloud Stores of the Year</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723011181210-far-cry-6-wont-boot-heres-how-to-resolve-your-pc-installation-problems/"><u>Far Cry ^6 Won't Boot? Here's How to Resolve Your PC Installation Problems!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-lava-blaze-2-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Lava Blaze 2?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-from-dull-to-dynamic-top-11-techniques-for-improved-colors/"><u>In 2024, From Dull to Dynamic Top 11 Techniques for Improved Colors</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-prioritizing-visibility-a-guide-to-insta-highlights-perfection/"><u>In 2024, Prioritizing Visibility A Guide to Insta Highlights Perfection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/integrating-automatic-speech-conversion-into-powerpoint-presentations-for-2024/"><u>Integrating Automatic Speech Conversion Into PowerPoint Presentations for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/master-the-art-of-subtitlecc-integration-in-youtube-with-this-guide/"><u>Master the Art of Subtitle/CC Integration in YouTube with This Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-battery-management-in-windows-10-with-insights-from-its-diagnostic-tool/"><u>Mastering Battery Management in Windows 10 with Insights From Its Diagnostic Tool</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-what-to-do-when-phasmophobia-voice-communication-fails/"><u>Troubleshooting Guide: What to Do When Phasmophobia Voice Communication Fails</u></a></li>
+</ul></div>
 

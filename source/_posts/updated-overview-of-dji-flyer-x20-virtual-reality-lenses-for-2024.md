@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Overview of DJi Flyer X20 Virtual Reality Lenses for 2024"
-date: 2024-09-06T15:50:52.636Z
-updated: 2024-09-07T15:50:52.636Z
+date: 2024-11-30T20:41:19.996Z
+updated: 2024-12-07T04:39:20.273Z
 tags: 
   - screen-recording
   - ai video
@@ -30,12 +30,6 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
 
 [Check at Amazon](https://www.amazon.com/gp/product/B071Z6DSHB/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B071Z6DSHB&linkId=7289b5ef284ae3b0206e825eeb794baa)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design
 
  DJI Goggles can be split into two parts - headband and display module.
@@ -55,11 +49,9 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
 * When using head trackingfeature, the goggles have a risk of falling off.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Compatible products for DJI Goggles
 
  Available on Mavic Pro, Phantom 4 Advanced, Professional, Inspire 2, etc.
@@ -74,14 +66,16 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
 
  Moreover, DJI Goggles can be connected to a computer, PS4 for watching videos and gaming. But, regarding to experience…the same budget can allow you to purchase 28" 4K display.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Main features and experience
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Head Tracking
 
 ###### #1\. What is Head Tracking
@@ -104,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
 
  The mission of 3-axis gimbal is to remove any camera shakes and stabilize the footage. But, the DJI Goggles' head tracking actually bring back these shakes which do not come from the camera itself, but as a result of the commands of head tracking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tapfly
 
 ###### #1\. What is Tapfly
@@ -113,41 +111,21 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
 ![DJI Goggle's touchpad](https://images.wondershare.com/filmora/article-images/goggles-touchpad.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
 
 ###### #2\. Experience
 
  DJI Goggles's main interaction needs to be done through the touchpad. This touchpad supports swipe and clicks of single and double fingers. It is responsive to unusual speed. Sometimes it is too sensitive that occasionally, a swipe will be misunderstood as a click. In the case of a fault in touch, we can use double fingers to slide back to lock the touchpad.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  As DJI's first generation digital image transmission FPV goggles, I think it has a lot of room for improvement. Although Many software issues and hardware design still need to be improved, I think it worth to try.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -171,4 +149,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-free-fast-and-reliable-the-best-pinterest-video-downloads-ranked/"><u>[New] 2024 Approved Free, Fast & Reliable The Best Pinterest Video Downloads Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-guide-to-picking-prime-stream-services/"><u>[New] 2024 Approved The Ultimate Guide to Picking Prime Stream Services</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-how-to-create-time-lapse-video-with-canon-camera/"><u>[New] How to Create Time-Lapse Video with Canon Camera</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unleash-artistry-a-curated-list-of-premium-3d-animation-software/"><u>[New] Unleash Artistry A Curated List of Premium 3D Animation Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-streamlining-access-to-subscriber-information/"><u>[Updated] 2024 Approved Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-restoring-macos-sierra-to-os-x-10101-environment/"><u>[Updated] In 2024, Restoring MacOS Sierra to OS X 10.10.1 Environment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-enhance-engagement-top-12-tactics-for-youtube-success/"><u>2024 Approved Enhance Engagement Top 12 Tactics for YouTube Success</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-drivers-for-hp-color-laserjet-pro-m452dn-printer/"><u>Download Drivers for HP Color LaserJet Pro M452dn Printer</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/generate-a-face-online-best-tools-and-resources-for-2024/"><u>Generate a Face Online Best Tools and Resources for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/mastering-video-formats-use-vlc-to-effortlessly-play-and-transform-your-avchdmts-videos/"><u>Mastering Video Formats: Use VLC to Effortlessly Play and Transform Your AVCHD/MTS Videos</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/msi-afterburner-gpu-detection-problems-solutions-for-windows-10-and-11-users/"><u>MSI Afterburner GPU Detection Problems - Solutions for Windows 10 & 11 Users</u></a></li>
+</ul></div>
 

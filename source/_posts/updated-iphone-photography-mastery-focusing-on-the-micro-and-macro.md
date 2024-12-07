@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Photography Mastery  Focusing on the Micro & Macro\""
-date: 2024-11-26T06:04:18.497Z
-updated: 2024-11-27T21:12:33.159Z
+date: 2024-12-01T22:13:41.728Z
+updated: 2024-12-07T08:22:01.713Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,6 @@ You May Also Like: [Resizing a Photo without Losing Quality](https://tools.techi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Section 1. What is close-up and macro photography?
 
 Close-up photography and macro photography are all about photographing things in a way that makes them appear larger than they are in real life. It lets us look in detail at the things around us and can be an exciting and dramatic way to shoot images. But is there a difference between close up and macro in photography terms?
@@ -59,7 +55,7 @@ There is, so if you're looking to get to grips with this type of photography, yo
 With your iPhone macro photography and close-up shooting are both possible and can bring great results if you know what you're doing. However, for the really professional touch, an investment in a macro lens or specialist app will certainly kick your photography skills into high gear.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Section 2. iPhone Macro Photography Tips
@@ -72,10 +68,6 @@ Shooting in the macro range requires decent lighting, so consider when and how y
 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-light.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: Urdu-Mag.com
 
 If you do want to snap some macro images in bright sunlight, try positioning your shadow to create a more indirect lighting of the subject. You can also move your own orientation so that the sun is shining into your shot, rather than behind it.
@@ -87,7 +79,7 @@ With any photo, focus is crucial to an awesome result. But when you're creating 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: PicMonkey
@@ -112,6 +104,10 @@ When you're shooting macro images with your iPhone, the intention is to make the
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-distance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: GCFLearnFree
 
 Make the subject center stage by positioning your composition to give the least cluttered background possible. Use the sky if you can, or experiment with textured backgrounds such as a wall or fence. Think about how far your subject is from the background, as the further away the background is, the more blurry it will become and the greater the contrast of focus on your subject will appear.
@@ -121,6 +117,10 @@ Make the subject center stage by positioning your composition to give the least 
 If you've researched photography in general, you'll already have heard of the ‘rule of thirds'. This rule is super simple to apply when using an iPhone and is just as relevant in macro photography as it is when shooting landscapes or any other composition.
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image source: SmashingHub
 
@@ -133,7 +133,7 @@ iPhone macro photography is all about looking at the world in a different way. T
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: Flickr
@@ -189,24 +189,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-free-to-view-performances-film-cast-permissions/"><u>[New] 2024 Approved Free-to-View Performances Film Cast Permissions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-selecting-the-ideal-m1-equipped-laptop-for-you/"><u>[New] 2024 Approved Selecting the Ideal M1-Equipped Laptop for You</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-finding-the-social-beacons-in-your-interests-digital-landscape/"><u>[New] In 2024, Finding the Social Beacons in Your Interests’ Digital Landscape</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-reclaim-original-vibrance-in-photographs-with-these-top-apps-for-2024/"><u>[New] Reclaim Original Vibrance in Photographs with These Top Apps for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-selecting-optimal-frame-rate-30fps-vs-60fps-for-quality-recording-for-2024/"><u>[New] Selecting Optimal Frame Rate 30Fps Vs. 60Fps for Quality Recording for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-pinnacle-10-battle-royale-experiences/"><u>[Updated] 2024 Approved Pinnacle 10 Battle Royale Experiences</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-break-even-on-youtube-monetizing-with-a-minimum-of-500-viewers-for-2024/"><u>[Updated] Break Even on Youtube Monetizing with a Minimum of 500 Viewers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-essential-elements-of-a-memorable-podcast-teaser/"><u>[Updated] Essential Elements of a Memorable Podcast Teaser</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-captivating-content-the-essential-six-video-formats/"><u>[Updated] In 2024, Captivating Content The Essential Six Video Formats</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-light-your-youtube-video/"><u>[Updated] In 2024, How To Light Your YouTube Video</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-lines-that-captivate-the-craft-of-writing-dialogue/"><u>[Updated] Lines That Captivate The Craft of Writing Dialogue</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-select-high-quality-drones-for-sale-for-2024/"><u>[Updated] Select High-Quality Drones For Sale for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-striking-14-text-animation-illustrations/"><u>[Updated] Striking 14 Text Animation Illustrations</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/flip-content-sequence-android-video-workaround-for-2024/"><u>Flip Content Sequence Android Video Workaround for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-igtvs-elite-content-crews-you-must-see/"><u>In 2024, IGTV's Elite Content Crews You Must See</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unlock-the-secrets-of-high-quality-gopro-vlogging/"><u>In 2024, Unlock the Secrets of High-Quality GoPro Vlogging</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/shaping-letters-in-visual-content-for-2024/"><u>Shaping Letters in Visual Content for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/stellar-phoenix-repairs-sql-anywhere-server-restored/"><u>Stellar Phoenix Repairs: SQL Anywhere Server Restored</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-perfecting-your-makeup-mastery/"><u>[New] Perfecting Your Makeup Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-smartly-craft-your-podcast-title-with-these-tools/"><u>[New] Smartly Craft Your Podcast Title with These Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-evaluating-djis-phantom-3-features/"><u>[Updated] 2024 Approved Evaluating DJI's Phantom 3 Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-shorts-tutorial-crafting-compact-engaging-videos/"><u>[Updated] In 2024, YouTube Shorts Tutorial Crafting Compact, Engaging Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-maximize-virtual-realty-setting-up-room-and-tech/"><u>[Updated] Maximize Virtual Realty Setting Up Room and Tech</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-speedy-social-snooping-techniques-for-fb-users-for-2024/"><u>[Updated] Speedy Social Snooping Techniques for FB Users for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-secrets-of-avi-to-gif-transition-filmora-software-windowsmacos-for-2024/"><u>[Updated] Unveiling the Secrets of AVI to GIF Transition Filmora Software (Windows/macOS) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-honor-x9b-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Honor X9b Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-immersive-adventures-await-top-10-innovative-pc-vr-streamers-reviewed/"><u>In 2024, Immersive Adventures Await Top 10 Innovative PC VR Streamers Reviewed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-complete-walkthrough-to-take-screenshots-on-an-hp-laptop-or-pc/"><u>The Complete Walkthrough to Take Screenshots on an HP Laptop or PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-20-ai-enhanced-presentation-templates-in-powerpoint-and-google-slides/"><u>Top 20 AI-Enhanced Presentation Templates in PowerPoint and Google Slides</u></a></li>
 </ul></div>
 

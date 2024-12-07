@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Bright Futures in Film  Revolutionary Setup Tips\""
-date: 2024-08-28T15:11:28.103Z
-updated: 2024-08-29T15:11:28.103Z
+date: 2024-11-29T19:37:50.226Z
+updated: 2024-12-07T02:02:07.061Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -60,6 +64,10 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
 ##### Step4 Use Practical Lights
@@ -68,9 +76,17 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -91,6 +107,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -124,8 +144,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-5-excellent-mac-livestream-software/"><u>[New] 2024 Approved Unveiling 5 Excellent Mac Livestream Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-essential-guide-to-budget-friendly-free-srt-tools/"><u>[New] In 2024, Essential Guide to Budget-Friendly FREE SRT Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-iphone-hacks-for-minimalist-video-presentation/"><u>[New] In 2024, IPhone Hacks for Minimalist Video Presentation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-discovering-win11s-finest-screen-grabbers/"><u>[Updated] Discovering Win11's Finest Screen Grabbers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-twitter-to-facebook-sending-your-tweets-for-2024/"><u>[Updated] From Twitter to Facebook Sending Your Tweets for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-detailed-steps-for-creating-professional-hdr-images/"><u>[Updated] In 2024, Detailed Steps for Creating Professional HDR Images</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enhancing-on-screen-appeal-essential-tips-for-talking-head-shots/"><u>[Updated] In 2024, Enhancing On-Screen Appeal Essential Tips for Talking-Head Shots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-updated-interview-playbook-for-audience-allure/"><u>[Updated] In 2024, Updated Interview Playbook for Audience Allure</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-next-step-after-vlc-top-media-players-reviewed/"><u>[Updated] The Next Step After VLC - Top Media Players Reviewed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-captivation-craftsman-for-posters/"><u>2024 Approved Captivation Craftsman for Posters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-the-art-of-choosing-and-crafting-whatsapp-alerts/"><u>2024 Approved Mastering the Art of Choosing & Crafting WhatsApp Alerts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expert-insights-on-powerdirector-24-review/"><u>Expert Insights on PowerDirector '24 Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-redmi-note-13-proplus-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi Redmi Note 13 Pro+ 5G Device</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/mobile-video-to-audio-conversion-made-easy-top-apps-reviewed-for-2024/"><u>Mobile Video to Audio Conversion Made Easy Top Apps Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-youtubes-complex-view-count-system-for-2024/"><u>Unveiling YouTube's Complex View Count System for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

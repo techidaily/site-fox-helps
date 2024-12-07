@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Conquering the Crash  Solutions for Windows 10 Photos Issues\""
-date: 2024-08-28T15:06:37.867Z
-updated: 2024-08-29T15:06:37.867Z
+date: 2024-12-04T22:17:46.387Z
+updated: 2024-12-07T02:43:36.656Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 **You may also like:** [How to Solve Windows 10 Photos App Crashes Effectively >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -56,9 +60,6 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -70,16 +71,12 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -91,8 +88,9 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -104,10 +102,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -119,6 +113,10 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -128,8 +126,9 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -153,4 +152,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-quintessential-fps-experiences-ranked-by-fun-factor/"><u>[New] 2024 Approved Quintessential FPS Experiences Ranked by Fun Factor</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-reviving-brands-through-customer-video-appeals/"><u>[New] 2024 Approved Reviving Brands Through Customer Video Appeals</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-excellence-in-viewing-10-preeminent-iphoneipad-videos/"><u>[New] Excellence in Viewing 10 Preeminent iPhone/iPad Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-iphone-hacks-for-minimalist-video-presentation/"><u>[New] In 2024, IPhone Hacks for Minimalist Video Presentation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-exploring-techniques-for-photo-based-tileworks/"><u>[Updated] 2024 Approved Exploring Techniques for Photo-Based Tileworks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-filmmakers-guide-to-the-top-10-essential-camera-brands/"><u>[Updated] Filmmaker's Guide to the Top 10 Essential Camera Brands</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-gaining-ground-on-the-groundswell-of-online-viewers/"><u>[Updated] Gaining Ground on the Groundswell of Online Viewers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-how-to-see-youtube-liked-comments/"><u>[Updated] How to See YouTube Liked Comments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-detailed-steps-for-creating-professional-hdr-images/"><u>[Updated] In 2024, Detailed Steps for Creating Professional HDR Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-next-step-after-vlc-top-media-players-reviewed/"><u>[Updated] The Next Step After VLC - Top Media Players Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-streamlining-conversions-mp4-files-with-vlc-media-player/"><u>2024 Approved Streamlining Conversions MP4 Files with VLC Media Player</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-solutions-for-overcoming-driverpowerstatefailure-problems/"><u>Effective Solutions for Overcoming DRIVER_POWER_STATE_FAILURE Problems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/finns-fiscal-flow-income-insights-from-youtube-icon/"><u>Finn's Fiscal Flow Income Insights From YouTube Icon</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/from-download-to-usage-setting-up-obs-on-a-mac/"><u>From Download to Usage Setting Up OBS on a Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/recording-your-mac-experience-for-free-for-2024/"><u>Recording Your Mac Experience for FREE for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-puzzle-escaping-the-endless-loop-of-windows-configuration/"><u>Solving the Puzzle: Escaping the Endless Loop of Windows Configuration</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-truth-about-monitoring-blood-pressure-on-apple-watch-series-insights-and-reviews/"><u>The Truth About Monitoring Blood Pressure on Apple Watch Series 지: Insights and Reviews</u></a></li>
+</ul></div>
 

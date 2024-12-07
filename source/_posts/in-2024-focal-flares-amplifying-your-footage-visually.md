@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Focal Flares  Amplifying Your Footage Visually\""
-date: 2024-11-23T03:08:20.185Z
-updated: 2024-11-28T02:57:08.019Z
+date: 2024-12-05T17:02:07.194Z
+updated: 2024-12-07T02:14:31.824Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
@@ -64,7 +64,7 @@ The key light is the main light that illuminates the subject. You can place it i
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
@@ -72,6 +72,10 @@ The fill light is used to fill in the shadows created by the key light. It is us
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -81,17 +85,21 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
@@ -108,14 +116,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Summary
 
@@ -151,20 +151,16 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-full-assessment-experiencing-the-world-in-360-with-samsung/"><u>[New] 2024 Approved Full Assessment Experiencing the World in 360° with Samsung</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-heard-words-spoken-ideas-no-price/"><u>[New] 2024 Approved Heard Words, Spoken Ideas – No Price</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-turning-tiktok-hits-into-mobile-ringtones-with-ease/"><u>[New] 2024 Approved Turning TikTok Hits Into Mobile Ringtones with Ease</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-double-delight-endless-looping-of-youtube-videos-for-tvs-for-2024/"><u>[New] Double Delight Endless Looping of YouTube Videos for TVs for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-illuminating-the-role-of-color-in-editing-mastery/"><u>[New] Illuminating the Role of Color in Editing Mastery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-improving-online-sessions-with-increased-zoom/"><u>[New] In 2024, Improving Online Sessions with Increased Zoom</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-achieving-audiovisual-excellence-with-srt-and-mp4-the-ultimate-guide/"><u>[Updated] Achieving Audiovisual Excellence with SRT and MP4 - The Ultimate Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-capturing-and-reducing-speed-with-iphone-a-step-by-step-guide/"><u>[Updated] In 2024, Capturing and Reducing Speed with iPhone A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-shine-on-top-17-studio-lights-for-youtube/"><u>[Updated] In 2024, Shine On Top 17 Studio Lights for YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/deep-windows-11-know-how-importing-media-like-a-pro/"><u>Deep Windows 11 Know-How Importing Media Like a Pro</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-on-iphone-7-plus-by-drfone-ios/"><u>How To Create an Apple Developer Account On iPhone 7 Plus</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/in-2024-premium-selection-the-most-exceptional-11-voice-alteration-apps-available-at-no-charge-for-mobile-devices/"><u>In 2024, Premium Selection The Most Exceptional 11 Voice Alteration Apps Available at No Charge for Mobile Devices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-samsung-galaxy-f54-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Samsung Galaxy F54 5G</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/navigating-the-best-hdr-cameras/"><u>Navigating the Best HDR Cameras</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-best-5-frame-sequence-recorder-fast-and-easy-for-2024/"><u>[New] Best 5-Frame Sequence Recorder - Fast & Easy for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-7-sites-for-swapping-outringtone-files-on-snapchat/"><u>[New] Top 7 Sites for Swapping Outringtone Files on Snapchat</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-from-silence-to-symphony-how-to-set-up-unique-ringtones-and-sounds-for-android/"><u>[Updated] 2024 Approved From Silence to Symphony How to Set Up Unique Ringtones & Sounds for Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-high-definition-showdown-ultimate-legendary-sj6-vs-yi-4k-innovation-for-2024/"><u>[Updated] High Definition Showdown Ultimate Legendary SJ6 Vs. Yi 4K Innovation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-understanding-and-adhering-to-soundtracks-legal-requirements-on-instagram/"><u>[Updated] In 2024, Understanding and Adhering to Soundtracks' Legal Requirements on Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/guiding-principles-for-integrating-videos-in-education-for-2024/"><u>Guiding Principles for Integrating Videos in Education for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-unresponsive-usb-connections-in-windows-1011/"><u>How to Fix Unresponsive USB Connections in Windows 10/11</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210664365-9782889059713-loracle-des-poissons/"><u>L'Oracle des Poissons | Free Book</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-cheapest-mac-music-format-editor-with-unlimited-trials/"><u>New Cheapest Mac Music Format Editor with Unlimited Trials</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-how-to-add-audio-fade-in-effect/"><u>Updated How to Add Audio Fade In Effect</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zombies-redefined-in-7-days-to-die-an-in-depth-critique-of-a-unique-survival-journey-across-an-open-world-playground/"><u>Zombies Redefined in '7 Days to Die': An In-Depth Critique of a Unique Survival Journey Across an Open World Playground</u></a></li>
 </ul></div>
 

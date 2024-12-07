@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Ground Up  A Complete Evaluation of DJI Phantom 4\""
-date: 2024-08-28T15:09:33.867Z
-updated: 2024-08-29T15:09:33.867Z
+date: 2024-12-02T17:41:24.582Z
+updated: 2024-12-07T12:05:05.942Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 ![dji phantom 4](https://images.wondershare.com/filmora/article-images/dji-phandom-4.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Complete Review for DJI Phantom 4
 
@@ -77,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
 #### Battery life
@@ -99,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
 #### Conclusion
@@ -106,6 +118,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
  The Phantom 4 literally does everything you could need it to. It flies well in all kinds of conditions, reaches great speeds to capture sports play and even avoids objects that would otherwise give users and their drones quite an unhappy ending. As the Phantom 4 is so easy to fly it means that users can concentrate on their footage. With the follow me mode users can literally go hands free and still get great results.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -130,8 +146,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-craft-magical-time-lapse-video-using-a-gopro/"><u>[New] 2024 Approved Craft Magical Time Lapse Video Using a GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-globe-spin-technology-in-lenses-versus-depth-perception-tech/"><u>[New] 2024 Approved Globe-Spin Technology in Lenses versus Depth Perception Tech</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-a-streamers-dream-unifying-obs-and-zoom-with-steps/"><u>[New] A Streamer's Dream Unifying OBS & Zoom with Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-building-powerful-relationships-through-strategic-social-media-engagement-for-2024/"><u>[New] Building Powerful Relationships Through Strategic Social Media Engagement for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-capture-to-edit-elevating-your-immersive-video-experience-using-premiere-pro/"><u>[New] In 2024, From Capture to Edit Elevating Your Immersive Video Experience Using Premiere Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-liking-article-headliner/"><u>[New] In 2024, Prime Liking Article Headliner</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-rotate-to-win-insta-tricks-for-video-transformation-for-2024/"><u>[New] Rotate to Win Insta-Tricks for Video Transformation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unraveling-the-mystery-of-phantoms-velocity-inversion/"><u>[New] Unraveling the Mystery of Phantom's Velocity Inversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-five-iphone-compatible-podcast-services/"><u>[Updated] 2024 Approved Five iPhone-Compatible Podcast Services</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-step-by-step-tutorial-on-adding-captions-to-tiktok-videos/"><u>[Updated] 2024 Approved Step-by-Step Tutorial on Adding Captions to TikTok Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-swift-video-transformation-with-top-8-apps/"><u>[Updated] 2024 Approved Swift Video Transformation with Top 8 Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-efficient-methods-to-master-your-phone-memos/"><u>[Updated] Efficient Methods to Master Your Phone Memos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tailor-made-downloads-selecting-your-perfect-4k-app-for-2024/"><u>[Updated] Tailor-Made Downloads Selecting Your Perfect 4K App for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/high-tech-memory-performance-indicators/"><u>High-Tech Memory Performance Indicators</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/preserving-the-past-how-abbyy-and-bolshoi-theatre-unite-for-an-online-revival-of-historical-legacy/"><u>Preserving the Past: How ABBYY and Bolshoi Theatre Unite for an Online Revival of Historical Legacy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/primeworldplus-local-complete-tv-content-at-fingertips-for-2024/"><u>PrimeWorld+ Local Complete TV Content at Fingertips for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-setup-asus-touchpad-driver-download-tips-for-windows-11-users/"><u>Seamless Setup: ASUS Touchpad Driver Download Tips for Windows 11 Users</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/solving-the-mystery-of-your-own-face-appearing-during-calls-for-2024/"><u>Solving the Mystery of Your Own Face Appearing During Calls for 2024</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/two-effective-methods-for-saving-your-outlook-folders-onto-a-computers-hard-drive/"><u>Two Effective Methods for Saving Your Outlook Folders Onto a Computer's Hard Drive</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

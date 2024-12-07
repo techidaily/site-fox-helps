@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Spectrum Savvy  The Filmmaker's Guide to Color\""
-date: 2024-11-22T00:17:59.883Z
-updated: 2024-11-28T00:00:56.853Z
+date: 2024-12-05T00:38:44.425Z
+updated: 2024-12-06T19:25:13.957Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -39,12 +35,16 @@ In cinematography, color grading refers to the manipulation of film and video im
 
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
@@ -62,6 +62,10 @@ The communication of emotion and story through the lens is one of the most power
 **Color grading encourage a style that can be completely your own**
 
 One of the most intimidating challenges a photographer or vlogger faces is creating a unique style that can result in a brand for their work. Making a visual style that viewers can recognize at a glance can tremendously impact the growth of a photographer's career. Color grading plays a vital part in that process. Customers will often come to you with a wide range of different photography outputs. By defining a consistent color grading work, you can tie it all into a dense brand that reflects strongly on you and construct a distinctive value that provides you something to sell that only you can offer to people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to use Color Grading in Wondershare Filmora?
 
@@ -105,6 +109,10 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2Select the specific video portion
 
 #####
@@ -122,7 +130,7 @@ First, you need to select the specific video portion you want to change the colo
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
@@ -134,10 +142,6 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Using the Color Panel Window**
 
@@ -152,10 +156,6 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -223,21 +223,18 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-crafting-the-future-workplace-with-vr-technology/"><u>[New] 2024 Approved Crafting the Future Workplace with VR Technology</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-hidden-echoes-to-silence-audacitys-technique-guide/"><u>[New] 2024 Approved Hidden Echoes to Silence Audacity's Technique Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-comprehensive-guide-to-top-hashtag-analysis-tools-fbtwitterinsta/"><u>[New] In 2024, Comprehensive Guide to Top Hashtag Analysis Tools (FB/Twitter/Insta)</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-prime-film-apps-showdown-apples-finest-categories-for-2024/"><u>[New] Prime Film Apps Showdown Apple's Finest Categories for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-examining-various-windows-movie-maker-product-types/"><u>[Updated] Examining Various Windows Movie Maker Product Types</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-guiding-through-audio-transition-in-ableton-live/"><u>[Updated] Guiding Through Audio Transition in Ableton Live</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-identifying-the-optimal-cloud-data-vaults/"><u>[Updated] In 2024, Identifying the Optimal Cloud Data Vaults</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-gifs-your-step-by-step-meme-making-journey/"><u>[Updated] Mastering GIFs Your Step-by-Step Meme Making Journey</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-swift-stylizing-boost-your-digital-artistry-on-pc-photos-editor-for-2024/"><u>[Updated] Swift Stylizing Boost Your Digital Artistry on PC Photos Editor for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-virtual-reality-content-shortfall-a-2023-perspective-for-2024/"><u>[Updated] Virtual Reality Content Shortfall A 2023 Perspective for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-from-past-to-present-a-detailed-tiktok-username-overhaul-guide/"><u>2024 Approved From Past to Present A Detailed TikTok Username Overhaul Guide</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-apple-iphone-13-pro-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From Apple iPhone 13 Pro How to Bypass?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-realme-gt-5-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Realme GT 5 Pro FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/visualize-and-create-with-top-7-innovative-animation-suites/"><u>Visualize & Create with Top 7 Innovative Animation Suites</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/yokus-island-adventure-exploring-the-surprising-twists-of-an-epic-journey/"><u>Yoku's Island Adventure: Exploring the Surprising Twists of an Epic Journey</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] 2024 Approved Acquire No-Cost Sounds for Videos & Podcasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-full-dissection-gopro-silver-hero4-model-insight/"><u>[New] Full Dissection GoPro Silver Hero4 Model Insight</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-sharpen-your-snaps-the-elite-eight-of-grids-and-frames/"><u>[New] In 2024, Sharpen Your Snaps The Elite Eight of Grids and Frames</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-strategies-for-creating-hit-memes-for-2024/"><u>[New] Strategies for Creating Hit Memes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-cutting-edge-the-top-8-digital-photomixer/"><u>[Updated] 2024 Approved Cutting-Edge The Top 8 Digital Photomixer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-innovative-artists-guide-to-best-free-3d-psds/"><u>[Updated] 2024 Approved Innovative Artists' Guide to Best Free 3D PSDs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enhance-airdrop-connectivity-tips-for-iphone-ipad-and-mac-users-for-2024/"><u>[Updated] Enhance AirDrop Connectivity Tips for iPhone, iPad & Mac Users for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-quick-start-capturing-high-quality-mov-videos-on-windows-11-for-2024/"><u>[Updated] Quick Start Capturing High-Quality MOV Videos on Windows 11 for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-writers-workshop-for-podcast-creators-examples-included/"><u>[Updated] The Writers' Workshop for Podcast Creators (Examples Included)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/expert-selection-of-10-premium-spotify-soundscape-tools-for-2024/"><u>Expert Selection of 10 Premium Spotify Soundscape Tools for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-flawlessly-post-srt-files-in-multiple-social-environments/"><u>How to Flawlessly Post SRT Files in Multiple Social Environments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-reverse-videos-on-android/"><u>How to Reverse Videos on Android ?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unbeatable-prime-day-offerings-save-big-with-4tb-ssds-for-only-four-pennies-per-gb-in-a-spectacular-storage-sale-event/"><u>Unbeatable Prime Day Offerings: Save Big with 4TB SSDs for Only Four Pennies per GB in a Spectacular Storage Sale Event</u></a></li>
 </ul></div>
 
