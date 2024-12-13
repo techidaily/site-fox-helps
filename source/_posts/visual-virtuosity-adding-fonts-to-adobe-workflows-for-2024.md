@@ -1,7 +1,7 @@
 ---
 title: "\"Visual Virtuosity  Adding Fonts to Adobe Workflows for 2024\""
-date: 2024-12-01T21:43:29.622Z
-updated: 2024-12-07T09:26:06.827Z
+date: 2024-12-07T16:03:23.212Z
+updated: 2024-12-13T16:16:33.813Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
 
 ![browse fonts adobe](https://images.wondershare.com/filmora/article-images/2022/07/browse-fonts-adobe.jpg)
@@ -49,12 +45,12 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 ![activitate all fonts after effects](https://images.wondershare.com/filmora/article-images/2022/07/activitate-all-fonts-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
 
@@ -71,7 +67,7 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
@@ -94,16 +90,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -115,12 +111,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -158,17 +158,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-5-must-have-equipment-and-basic-software-to-start-vlogging-for-2024/"><u>[New] 5 Must-Have Equipment and Basic Software to Start Vlogging for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-a-decades-best-writes-across-film-classifications-for-2024/"><u>[New] A Decade's Best Writes Across Film Classifications for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-engaging-audiences-with-dynamic-photoviewer-content-in-pixiz/"><u>[New] Engaging Audiences with Dynamic Photoviewer Content in Pixiz</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-the-art-of-free-yet-striking-image-acquisition/"><u>[New] In 2024, Mastering the Art of Free, Yet Striking Image Acquisition</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-perfect-your-technique-recording-the-modern-presentation/"><u>2024 Approved Perfect Your Technique Recording the Modern Presentation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colombian-charity-danny-empowering-those-in-need/"><u>Colombian Charity Danny: Empowering Those in Need</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-on-repairing-the-unresponsive-at-symbol-keys/"><u>Expert Tips on Repairing the Unresponsive 'At Symbol' Keys</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/gopro-hero4-black-vs-drift-ghost-s-which-one-is-better-in-2024/"><u>GoPro Hero4 Black VS Drift Ghost-S Which One Is Better, In 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unlicensed-yet-lawful-music-repositories-games/"><u>In 2024, Unlicensed, Yet Lawful Music Repositories (Games)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/luts-implementation-for-cinematographic-coloring/"><u>Luts Implementation for Cinematographic Coloring</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-ultimate-fixers-manual-for-installer-errors-on-win11/"><u>The Ultimate Fixer's Manual for Installer Errors on Win11</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/ultimate-pick-5-optimal-computer-systems-enhancing-your-video-editing-experience/"><u>Ultimate Pick: 5 Optimal Computer Systems Enhancing Your Video Editing Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-vision-to-reality-personal-animation-mastery/"><u>[New] 2024 Approved From Vision to Reality Personal Animation Mastery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-premium-video-guide-top-15-youtube-channels-for-ultimate-product-reviews/"><u>[New] 2024 Approved Premium Video Guide Top 15 YouTube Channels for Ultimate Product Reviews</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-adding-descriptive-tags-to-your-images-on-pcs-and-macs-for-2024/"><u>[New] Adding Descriptive Tags to Your Images on PCs and Macs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-expert-psd-overhaul-techniques/"><u>[New] Expert PSD Overhaul Techniques</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-synchronizing-airwaves-for-audience-gain-for-2024/"><u>[New] Synchronizing Airwaves for Audience Gain for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-how-to-effortlessly-fade-audio-with-garageband-for-2024/"><u>[Updated] How to Effortlessly Fade Audio with Garageband for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-lightning-fast-fileshare-on-windows-os-for-2024/"><u>[Updated] Lightning-Fast Fileshare on Windows OS for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/capture-and-save-top-15-insta-downloader-apps/"><u>Capture and Save Top 15 Insta Downloader Apps</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/come-ripristinare-le-immagini-eliminate-dalliphone-oltre-i-30-giorni/"><u>Come Ripristinare Le Immagini Eliminate Dall'iPhone Oltre I 30 Giorni</u></a></li>
+<li><a href="https://fox-that.techidaily.com/locating-your-missing-facetime-images-a-guide-on-where-they-are-stored/"><u>Locating Your Missing FaceTime Images: A Guide on Where They Are Stored</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/prime-streaming-platforms-for-authors-for-2024/"><u>Prime Streaming Platforms for Authors for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-fix-for-razer-synapse-not-opening-correctly/"><u>Step-by-Step Fix for Razer Synapse Not Opening Correctly</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unmatched-audio-and-video-elite-webcams-for-podcasting-for-2024/"><u>Unmatched Audio & Video Elite Webcams for Podcasting for 2024</u></a></li>
 </ul></div>
 

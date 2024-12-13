@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Smartphone Security  IPhone X’s Face ID Versus Galaxy Recognition\""
-date: 2024-08-28T15:04:40.701Z
-updated: 2024-08-29T15:04:40.701Z
+date: 2024-12-06T16:11:51.499Z
+updated: 2024-12-13T16:04:08.615Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
@@ -56,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: The Common Inconvenience
 
  When it comes to practicality, we would state that both the phone don’t stand well for it. This is because if you use Apple’s latest invention i.e. iPhone X, you are required to first hold your device in your hand followed by looking at the screen. Then you need to swipe it up for unlocking the device.
@@ -69,13 +74,9 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -87,15 +88,13 @@ The powerful video editing program for your Windows PC</a>
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
@@ -103,8 +102,9 @@ The powerful video editing program for your Windows PC</a>
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -128,4 +128,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-dynamic-range-enhancement-a-compreeved-tutorial-guide/"><u>[New] 2024 Approved Dynamic Range Enhancement A Compreeved Tutorial Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-gaming-melodies-legal-downloadable-links/"><u>[New] 2024 Approved Gaming Melodies Legal, Downloadable Links</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-premium-internet-spots-for-glossy-3d-text-effects/"><u>[New] 2024 Approved Premium Internet Spots for Glossy 3D Text Effects</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-capturing-content-with-precision-best-practices-for-igtv-video-downloads-for-2024/"><u>[New] Capturing Content with Precision Best Practices for IGTV Video Downloads for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-expert-curated-list-of-near-perfect-3ds-simulations-for-2024/"><u>[New] Expert-Curated List of Near-Perfect 3Ds Simulations for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-proven-techniques-to-convert-and-download-pinterest-video-audio/"><u>[New] In 2024, Proven Techniques to Convert and Download Pinterest Video Audio</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-leaders-list-of-8-online-havens-for-golden-3d-and-text/"><u>[Updated] A Leader's List of 8 Online Havens for Golden 3D & Text</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-discovering-ideal-aspect-ratios-for-vids-for-2024/"><u>[Updated] Discovering Ideal Aspect Ratios for Vids for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-striking-visuals-for-success-a-deep-dive-into-youtube-live-imagery/"><u>[Updated] In 2024, Striking Visuals for Success A Deep Dive Into YouTube Live Imagery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-10-innovative-4k-mirrorless-photographic-tools/"><u>[Updated] Top 10 Innovative 4K Mirrorless Photographic Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-create-gif-format-outros/"><u>How To Create GIF Format Outros</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-honor-90-gt-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Honor 90 GT? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unshackled-earning-on-youtube-pioneering-a-non-ad-profit-pathway/"><u>In 2024, Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/making-movies-magical-the-use-of-youtube-music-in-videos/"><u>Making Movies Magical The Use of YouTube Music in Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/izing-engagement-the-power-of-tailored-cards-and-ends-on-yt/"><u>Maximizing Engagement The Power of Tailored Cards & Ends on YT</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/strategies-to-utilize-ai-for-cognitive-behavioral-practices/"><u>Strategies to Utilize AI for Cognitive Behavioral Practices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-unlock-the-best-deal-final-cut-pro-education-discount-inside/"><u>Updated In 2024, Unlock the Best Deal Final Cut Pro Education Discount Inside</u></a></li>
+</ul></div>
 

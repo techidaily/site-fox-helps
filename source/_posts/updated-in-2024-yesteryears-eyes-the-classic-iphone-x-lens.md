@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Yesteryear's Eyes  The Classic iPhone X Lens\""
-date: 2024-11-26T20:02:17.486Z
-updated: 2024-11-27T20:40:08.095Z
+date: 2024-12-08T16:16:13.185Z
+updated: 2024-12-13T16:03:38.212Z
 tags: 
   - screen-recording
   - ai video
@@ -36,13 +36,17 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for iPhone portrait photos
 
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
 
@@ -64,10 +68,6 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
@@ -84,6 +84,10 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -95,7 +99,7 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
@@ -118,16 +122,12 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -155,16 +155,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-a6400s-visual-void-finding-video-fix-for-2024/"><u>[New] A6400's Visual Void - Finding Video Fix for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-a-list-14-animation-illustration-cases/"><u>[New] In 2024, A-List 14 Animation Illustration Cases</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-sky-gazers-rejoice-discovering-the-elevation-expertise-of-dji-spark/"><u>[New] In 2024, Sky Gazers Rejoice! Discovering the Elevation Expertise of DJI Spark</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-master-classic-ps2-games-on-android-with-our-top-picks/"><u>[New] Master Classic PS2 Games on Android with Our Top Picks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ace-your-laughs-kinemaster-for-top-memes/"><u>[Updated] 2024 Approved Ace Your Laughs KineMaster for Top Memes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-direct-download-dojo-become-a-master-of-ifunny-jokes/"><u>[Updated] Direct Download Dojo Become a Master of iFunny Jokes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-chucklebox-top-meme-generator/"><u>In 2024, ChuckleBox - Top Meme Generator</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your iPhone 14 Pro Max</u></a></li>
-<li><a href="https://extra-information.techidaily.com/magix-acid-pro-evaluation-with-equivalent-software/"><u>Magix ACID Pro Evaluation with Equivalent Software</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-the-missing-msodll-message-in-windows/"><u>Troubleshooting the 'Missing MSO.DLL' Message in Windows</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-streamlining-color-grading-incorenasive-guide-to-lut-integration-in-obs-for-2024/"><u>[New] Streamlining Color Grading Incorenasive Guide to LUT Integration in OBS for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-swift-students-guide-to-bypassing-edgenuity-videos-for-2024/"><u>[New] The Swift Student's Guide to Bypassing Edgenuity Videos for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-best-practices-for-mobile-snapchat-recording-techniques-for-2024/"><u>[Updated] Best Practices for Mobile Snapchat Recording Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-exploring-high-precision-with-hp-envy-27-monitor-for-2024/"><u>[Updated] Exploring High Precision with HP Envy 27 Monitor for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-ignite-dialogue-innovative-questions-in-ig-story-lives/"><u>[Updated] Ignite Dialogue Innovative Questions in IG Story Lives</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-analysis-asus-proart-pa-329q-4k-monitor/"><u>2024 Approved In-Depth Analysis Asus ProArt PA 329Q 4K Monitor</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-instagram-enhancement-picture-posting-guide/"><u>2024 Approved Instagram Enhancement Picture Posting Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-premier-live-concert-streamers/"><u>In 2024, Premier Live Concert Streamers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mac-users-download-splice-video-editor-now-and-edit-like-a-pro-for-2024/"><u>New Mac Users, Download Splice Video Editor Now and Edit Like a Pro for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/smooth-fades-in-a-second/"><u>Smooth Fades in a Second</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-joyful-adventures-in-pokemon-shining-pearl/"><u>Uncovering Joyful Adventures in Pokemon Shining Pearl</u></a></li>
 </ul></div>
 

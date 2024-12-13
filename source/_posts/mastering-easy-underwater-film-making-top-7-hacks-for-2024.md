@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Easy Underwater Film-Making  Top 7 Hacks for 2024\""
-date: 2024-08-28T15:03:32.022Z
-updated: 2024-08-29T15:03:32.022Z
+date: 2024-12-10T16:03:59.595Z
+updated: 2024-12-13T16:04:04.767Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/f6b66ac253e72b1db3b7035e49bd4e3f144338d6a
 
  There are many tips you can learn from to get the results that you require, so read on to find out more about what you can do to shoot underwater video with ease.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -39,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/f6b66ac253e72b1db3b7035e49bd4e3f144338d6a
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -60,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/f6b66ac253e72b1db3b7035e49bd4e3f144338d6a
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -74,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/f6b66ac253e72b1db3b7035e49bd4e3f144338d6a
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
@@ -87,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/f6b66ac253e72b1db3b7035e49bd4e3f144338d6a
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -125,8 +145,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-conference-room-to-youtube-google-meet-broadcasting/"><u>[New] In 2024, From Conference Room to Youtube Google Meet Broadcasting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-masterful-art-in-a-flash-quick-draw-on-windows-10-images/"><u>[Updated] 2024 Approved Masterful Art in a Flash Quick Draw on Windows 10 Images</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-proven-methods-to-elevate-your-filmora-editing-skills/"><u>[Updated] 2024 Approved Proven Methods to Elevate Your Filmora Editing Skills</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-disabling-suggested-podcast-episodes-on-spotify-for-2024/"><u>[Updated] Disabling Suggested Podcast Episodes on Spotify for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-elevate-your-discussions-mastering-google-meet-dialogue-for-2024/"><u>[Updated] Elevate Your Discussions Mastering Google Meet Dialogue for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-high-impact-yt-cover-images/"><u>Creating High-Impact YT Cover Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-merge-visual-media-with-music-tracks-in-premiere-pro/"><u>In 2024, Merge Visual Media With Music Tracks in Premiere Pro</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-editing-software-perfect-for-dev-screens/"><u>In 2024, Premier Editing Software Perfect for Dev Screens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-top-8-mobile-mosaics-best-blend-of-affordable-and-premium-android-videomosaic-apps/"><u>In 2024, Top 8 Mobile Mosaics Best Blend of Affordable and Premium Android Videomosaic Apps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-complete-how-to-fix-constant-crashes-in-battlefield-v-for-pc-users/"><u>Troubleshooting Complete: How to Fix Constant Crashes in Battlefield V for PC Users</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, A Comprehensive Breakdown of Yi's Ultra HD Action"
-date: 2024-08-28T15:03:01.510Z
-updated: 2024-08-29T15:03:01.510Z
+date: 2024-12-08T16:12:27.415Z
+updated: 2024-12-13T16:10:25.878Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-professional-approach-to-convert-webp-images-to-jpeg/"><u>[New] 2024 Approved Professional Approach to Convert WebP Images to JPEG</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-aspire-to-the-best-4k-monitors-ranking-top-ten-for-2024/"><u>[New] Aspire to the Best 4K Monitors Ranking Top-Ten for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-question-in-cameras-can-a-dslr-surpass-a-hero-4/"><u>[New] The Ultimate Question in Cameras Can a DSLR Surpass a Hero 4?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-5-secrets-to-successful-and-memorable-titles/"><u>[Updated] 5 Secrets to Successful and Memorable Titles</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-playtime-to-peak-time-top-gaming-women-in-the-digital-space/"><u>[Updated] From Playtime to Peak Time Top Gaming Women in the Digital Space</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-content-discovery-with-powerful-title-and-tag-use/"><u>[Updated] Mastering Content Discovery with Powerful Title & Tag Use</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-rhythmic-updates-infuse-music-into-statuses/"><u>[Updated] Rhythmic Updates Infuse Music Into Statuses</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-completing-the-process-of-disabling-your-linkedin-profile/"><u>2024 Approved Completing the Process of Disabling Your LinkedIn Profile</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-realme-c33-2023-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Realme C33 2023 FRP</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-a-sturdy-tiktok-bio-with-direct-url-integration/"><u>In 2024, Crafting a Sturdy TikTok Bio with Direct URL Integration</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-poco-x5-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Poco X5 Lock Screen Password</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-how-to-write-a-great-podcast-techniques-and-10plus-free-example-scripts-inside/"><u>In 2024, How to Write a Great Podcast Techniques & 10+ Free Example Scripts Inside</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-social-media-music-rules-and-regulations/"><u>In 2024, Social Media Music Rules and Regulations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/navigating-frame-rate-control-for-optimal-viewing-on-snapchat-for-2024/"><u>Navigating Frame Rate Control for Optimal Viewing on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/next-level-cinema-selection-youtube-edition/"><u>Next-Level Cinema Selection - YouTube Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/prime-selection-of-affordable-cams-for-action-sports/"><u>Prime Selection of Affordable Cams for Action Sports</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/techniques-for-enlarging-content-on-youtube-platform-for-2024/"><u>Techniques for Enlarging Content on YouTube Platform for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/theta-s-revealed-an-extensive-product-evaluation-for-2024/"><u>Theta S Revealed An Extensive Product Evaluation for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wisdom-without-walls-commemorating-a-decade-of-1500-free-lessons/"><u>Wisdom Without Walls: Commemorating a Decade of 1500 Free Lessons</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

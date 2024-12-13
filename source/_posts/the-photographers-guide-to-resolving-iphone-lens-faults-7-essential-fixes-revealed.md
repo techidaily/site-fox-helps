@@ -1,7 +1,7 @@
 ---
 title: The Photographer’s Guide to Resolving iPhone Lens Faults - 7 Essential Fixes Revealed
-date: 2024-11-30T13:22:42.583Z
-updated: 2024-12-06T19:18:42.349Z
+date: 2024-12-06T16:12:27.370Z
+updated: 2024-12-13T16:12:34.266Z
 tags:
   - iphone
   - apple
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 
 ![iPhone Camera not working, showing black screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-Camera-not-working-showing-black-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![iPhone Camera not working close apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-Camera-app-from-App-Switcher-view.jpg)
 
 Close
@@ -47,10 +43,14 @@ Close
 
 ![iPhone camera blurry close up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-camera-blurry-close-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![iPhone camera in focus close up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-camera-in-focus-close-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -62,16 +62,12 @@ Close
 3. If the Camera app says**AE/AF Lock** at the top of the screen, tap on a blank space to turn auto-focus back on. You may have accidentally locked the focus by tapping and holding in the Camera app.
 4. Keep your hand steady while tapping the shutter button. Sometimes it's easier to press one of the Volume buttons to take steady pictures instead. Be careful in the dark when the shutter needs to stay open for longer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. iPhone Camera Flash Isn't Working
 
 ![iPhone Flashlight Control Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/06/ios-control-center.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although most photos look better without a flash, sometimes you need that extra light for dark environments. When your iPhone flash isn't working, try these tips:
@@ -97,12 +93,16 @@ Close
 4. If you're wondering why your selfies always appear mirrored, that's simply how Apple designed the front-facing camera. The camera works like a mirror, but the photo flips over as if someone took it for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. The Camera App Is Missing or Keeps Freezing
 
 ![Screen Time settings on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Screen-Time-settings-on-iPhone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Allowed Apps in Screen Time restrictions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Allowed-Apps-in-Screen-Time-restrictions.jpg)
 
@@ -118,6 +118,10 @@ Close
 
 ![Reset All Settings iPhone confirmation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Reset-All-Settings-iPhone-confirmation.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you experience any other oddities with your iPhone camera not working, it's a good idea to try some general software troubleshooting tips. Test your iPhone camera again after each of the tips below.
 
 1. Close all the apps on your iPhone.
@@ -125,10 +129,6 @@ Close
 3. Update iOS by going to**Settings > General > Software Update** .
 4. Go to**Settings > General > Reset > Reset All Settings** . This doesn't delete any of your content---such as photos or apps---but it does reset all your iPhone settings.
 5. Finally,[factory reset your iPhone](https://www.makeuseof.com/tag/how-to-factory-reset-iphone-ipad/) and set it up as a new device. This erases everything and is the last resort, but should resolve any software issues that stop your iPhone camera from working.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. General iPhone Camera Hardware Fixes
 
@@ -141,7 +141,7 @@ Close
 3. [Contact Apple Support](https://getsupport.apple.com/) to arrange a hardware repair at the Apple Store or at an Apple Authorized Service Provider. If your iPhone is out of warranty, you may need to pay for this repair yourself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Back to Taking Great Photos With Your iPhone
@@ -167,19 +167,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-effortless-techniques-for-second-rate-signature-cleanup/"><u>[New] 2024 Approved Effortless Techniques for Second-Rate Signature Cleanup</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-step-by-step-into-youtube-creation-crafting-your-top-10-simple-projects/"><u>[New] 2024 Approved Step-by-Step Into YouTube Creation Crafting Your Top 10 Simple Projects</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-best-metaverse-tech-the-ultimate-goggles-and-hmds-list/"><u>[New] In 2024, Best Metaverse Tech The Ultimate Goggles and HMDs List</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-techniques-for-swiftly-finding-deleted-reddit-contributions/"><u>[New] In 2024, Techniques for Swiftly Finding Deleted Reddit Contributions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-list-of-20-magic-words-for-marketing/"><u>[New] The Ultimate List of 20 Magic Words for Marketing</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-best-vr-games-for-google-cardboard/"><u>[Updated] 2024 Approved The Best VR Games for Google Cardboard</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-exploring-the-updated-sony-bdp-s6700-features-for-2024/"><u>[Updated] Exploring the Updated Sony BDP-S6700 Features for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-rapid-rendering-of-facebook-videos-tips-and-tricks/"><u>[Updated] In 2024, Rapid Rendering of Facebook Videos Tips & Tricks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-dichotomy-of-digital-immersion-in-vr/"><u>[Updated] In 2024, The Dichotomy of Digital Immersion in VR</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-transform-your-visuals-master-11-key-techniques-for-color-correction/"><u>[Updated] Transform Your Visuals Master 11 Key Techniques for Color Correction</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/premier-equipment-for-cutting-edge-livestreams/"><u>Premier Equipment for Cutting-Edge Livestreams</u></a></li>
-<li><a href="https://program-issues.techidaily.com/snapchat-camera-not-showing-heres-how-you-can-solve-it/"><u>Snapchat Camera Not Showing? Here's How You Can Solve It!</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-10-budget-friendly-cloud-service-providers-for-2024/"><u>Top 10 Budget-Friendly Cloud Service Providers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-rundown-top-8-exceptional-free-online-translation-platforms-for-2024/"><u>[New] A Rundown Top 8 Exceptional Free Online Translation Platforms for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-extensive-review-capturing-every-angle-with-gear-360/"><u>[New] Extensive Review Capturing Every Angle with Gear 360</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-reel-downloads-quick-save-methods/"><u>[New] Instagram Reel Downloads Quick Save Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-optimal-remote-voice-recorders-for-2024/"><u>[New] Optimal Remote Voice Recorders for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-simple-steps-to-a-stellar-vlog-journey-for-2024/"><u>[New] Simple Steps to a Stellar Vlog Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-art-of-subtle-soundplayback/"><u>[New] The Art of Subtle Soundplayback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-by-step-for-crafting-top-tier-memes-on-9gag/"><u>[Updated] 2024 Approved Step-By-Step for Crafting Top-Tier Memes on 9GAG</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-analyzing-toolwiz-a-photographers-digital-arsenal/"><u>[Updated] Analyzing Toolwiz A Photographer’s Digital Arsenal</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enjoy-dual-views-expert-tips-for-utilizing-picture-in-picture-on-netflix/"><u>[Updated] Enjoy Dual Views Expert Tips for Utilizing Picture-in-Picture on Netflix</u></a></li>
+<li><a href="https://discover-community.techidaily.com/can-chkdsk-corrupt-your-files-learn-how-to-safely-retrieve-lost-data-after-running-check-disk/"><u>Can CHKDSK Corrupt Your Files? Learn How To Safely Retrieve Lost Data After Running Check Disk</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/configuring-dual-displays-in-windows-11-easy-guide/"><u>Configuring Dual Displays in Windows 11 Easy Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-capture-to-edit-elevating-your-immersive-video-experience-using-premiere-pro/"><u>From Capture to Edit Elevating Your Immersive Video Experience Using Premiere Pro</u></a></li>
+<li><a href="https://fox-that.techidaily.com/get-your-airplay-up-and-running-a-guide-for-troubled-devices/"><u>Get Your AirPlay Up and Running: A Guide for Troubled Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-creating-high-quality-professional-gopro-videos/"><u>In 2024, Creating High-Quality, Professional GoPro Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-creating-impact-with-high-converting-youtube-advertising-banners/"><u>In 2024, Creating Impact with High-Converting YouTube Advertising Banners</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-transformative-grading-3-simplified-photoshop-routines/"><u>In 2024, Transformative Grading 3 Simplified Photoshop Routines</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-xiaomi-redmi-note-12r-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Xiaomi Redmi Note 12R Phones</u></a></li>
 </ul></div>
 

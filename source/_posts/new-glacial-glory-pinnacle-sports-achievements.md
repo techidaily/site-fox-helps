@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Glacial Glory  Pinnacle Sports Achievements\""
-date: 2024-12-04T00:30:18.612Z
-updated: 2024-12-07T07:49:31.225Z
+date: 2024-12-07T16:16:45.982Z
+updated: 2024-12-13T16:23:33.881Z
 tags: 
   - screen-recording
   - ai video
@@ -27,7 +27,15 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
@@ -37,15 +45,15 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Nathan Chen Breaks World Record
 
 Nathan Chen of the United States set a world-record score in men's figure skating short program held at Beijing Olympics. Chen scored 113.97 at Capital Indoor Stadium in Beijing. Four years after his dreams were shattered, Chen has not only come back stronger in his performance but managed to break the world record.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
@@ -56,20 +64,20 @@ Injuries are part of sports events but some injuries are gruesome and are result
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
@@ -79,10 +87,6 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
@@ -91,11 +95,11 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
@@ -104,7 +108,7 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
@@ -131,10 +135,6 @@ Doping scandals have become a part of the Olympics and this year is no different
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
 
@@ -156,22 +156,19 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-boost-your-cinematography-game-essential-iphone-gear/"><u>[New] In 2024, Boost Your Cinematography Game Essential iPhone Gear</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-perfecting-your-makeup-mastery/"><u>[New] Perfecting Your Makeup Mastery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-smartly-craft-your-podcast-title-with-these-tools/"><u>[New] Smartly Craft Your Podcast Title with These Tools</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-tailored-visual-representation-free-logo-base-for-personal-touches-for-2024/"><u>[New] Tailored Visual Representation Free Logo Base for Personal Touches for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-evaluating-djis-phantom-3-features/"><u>[Updated] 2024 Approved Evaluating DJI's Phantom 3 Features</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-maximize-virtual-realty-setting-up-room-and-tech/"><u>[Updated] Maximize Virtual Realty Setting Up Room and Tech</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-metaverse-awaits-gear-up-with-these-tools/"><u>[Updated] The Metaverse Awaits Gear Up with These Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-secrets-of-avi-to-gif-transition-filmora-software-windowsmacos-for-2024/"><u>[Updated] Unveiling the Secrets of AVI to GIF Transition Filmora Software (Windows/macOS) for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-itel-p55plus-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Itel P55+ PC | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1726222912583-jp2tiff-movavi/"><u>無償でオンライン変換:JP2とTIFFフォーマット - Movavi</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enabling-unrestricted-gpt-on-windows-systems/"><u>Enabling Unrestricted GPT on Windows Systems</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-novice-to-pro-creating-metaverse-laughter/"><u>From Novice to Pro Creating Metaverse Laughter</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-nubia-red-magic-8s-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Nubia Red Magic 8S Pro to Mac? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-immersive-adventures-await-top-10-innovative-pc-vr-streamers-reviewed/"><u>In 2024, Immersive Adventures Await Top 10 Innovative PC VR Streamers Reviewed</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/m1-or-m2-ipad-pro-showdown-detailed-analysis-to-help-you-decide-which-tablet-fits-your-needs-techreview-by-zdnet/"><u>M1 or M2 iPad Pro Showdown: Detailed Analysis to Help You Decide Which Tablet Fits Your Needs | TechReview by ZDNet</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722978221859-non-state-actors-pose-a-unique-challenge-to-global-nuclear-security-governance-due-to-their-potential-to-acquire-illicit-nuclear-materials/"><u>Non-State Actors Pose a Unique Challenge to Global Nuclear Security Governance Due to Their Potential to Acquire Illicit Nuclear Materials.</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723175718455-understanding-arctic-liquid-freezer-iii-compatibility-could-your-intel-processor-be-at-risk-custom-contact-recommended/"><u>Understanding Arctic Liquid Freezer III Compatibility: Could Your Intel Processor Be at Risk? Custom Contact Recommended</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-six-secrets-to-masterful-mov-saving-in-windows-11/"><u>[New] 2024 Approved Six Secrets to Masterful .MOV Saving in Windows 11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevate-your-campaigns-innovative-approaches-to-fb-video-ads-for-2024/"><u>[New] Elevate Your Campaigns Innovative Approaches to FB Video Ads for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pros-playbook-elevate-your-tiktok-video-game-for-2024/"><u>[New] Pro's Playbook Elevate Your TikTok Video Game for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-superior-speedy-windows-image-browser/"><u>[New] Superior Speedy Windows Image Browser</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-unseen-ui-techniques-for-newcomers/"><u>[Updated] 2024 Approved Ultimate Unseen UI Techniques for Newcomers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-explore-10-open-source-media-engines-for-pc-users/"><u>[Updated] Explore 10 Open Source Media Engines for PC Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-harnessing-human-capital-layouts-that-leverage-team-synergy/"><u>[Updated] Harnessing Human Capital Layouts That Leverage Team Synergy</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-capture-high-quality-video-using-macbooks-webcam/"><u>[Updated] In 2024, Capture High-Quality Video Using MacBook's Webcam</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-quick-capture-deep-insight-time-lapse-techniques-for-samsung-users-for-2024/"><u>[Updated] Quick Capture, Deep Insight Time-Lapse Techniques for Samsung Users for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-troubleshooting-your-facebook-stories-wont-load-properly/"><u>[Updated] Troubleshooting Your Facebook Stories Won't Load Properly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-a-treasure-trove-of-premium-rate-free-luts-revealed/"><u>2024 Approved A Treasure Trove of Premium-Rate Free LUTs Revealed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/device-wont-initiate-master-the-art-of-correcting-error-code-10-failures/"><u>Device Won't Initiate? Master the Art of Correcting Error Code 10 Failures</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-infinix-note-30-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Infinix Note 30 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/unveiling-the-secrets-of-obs-game-capture/"><u>Unveiling the Secrets of OBS Game Capture</u></a></li>
 </ul></div>
 

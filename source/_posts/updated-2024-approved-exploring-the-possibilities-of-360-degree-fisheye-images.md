@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exploring the Possibilities of 360-Degree Fisheye Images\""
-date: 2024-11-20T17:40:09.355Z
-updated: 2024-11-27T20:40:01.394Z
+date: 2024-12-09T16:08:08.848Z
+updated: 2024-12-13T16:15:50.049Z
 tags: 
   - screen-recording
   - ai video
@@ -31,9 +31,17 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Shooting 360 degrees panoramas with fisheye lens
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. The equipment and setup
 
@@ -42,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -50,6 +58,14 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. The actual shooting
 
@@ -63,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -74,10 +86,6 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -89,19 +97,11 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -128,24 +128,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-become-a-pro-with-our-instagram-story-insights/"><u>[New] 2024 Approved Become a Pro with Our Instagram Story Insights</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-precision-and-persuasion-crafting-content-that-sticks-on-reddit-for-2024/"><u>[New] Precision and Persuasion Crafting Content That Sticks on Reddit for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-protecting-integrity-while-boosting-your-youtube-followers-count/"><u>[New] Protecting Integrity While Boosting Your YouTube Followers Count</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-gifts-that-speak-volumes-a-compendium-of-custom-box-shops-online/"><u>[Updated] 2024 Approved Gifts That Speak Volumes A Compendium of Custom Box Shops Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-googles-platform-unveiled-for-professional-podcasters/"><u>[Updated] 2024 Approved Google's Platform Unveiled for Professional Podcasters</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-exclusive-software-gamers-streaming-companions/"><u>[Updated] In 2024, Exclusive Software Gamers' Streaming Companions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-inside-look-3d-lut-creation-process/"><u>[Updated] Inside Look 3D LUT Creation Process</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-premier-online-galleries-of-premium-vectors-for-2024/"><u>[Updated] Premier Online Galleries of Premium Vectors for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-revel-in-pubgs-simplified-voice-transformation-methods/"><u>[Updated] Revel in PUBG's Simplified Voice Transformation Methods</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-conquer-profits-on-the-go-youtube-studio-monetization-explained/"><u>2024 Approved Conquer Profits On-the-Go YouTube Studio Monetization Explained</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-choreographing-gripping-podcast-openings/"><u>In 2024, Choreographing Gripping Podcast Openings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ntly-professional-rapidly-crafting-valorant-game-imagery/"><u>Instantly Professional Rapidly Crafting Valorant Game Imagery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/integrate-soundscape-into-premiere-pro-projects-for-2024/"><u>Integrate Soundscape Into Premiere Pro Projects for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-ds4-connectivity-problems-in-windows-a-guide-to-effective-driver-reinstallation/"><u>Overcoming DS4 Connectivity Problems in Windows - A Guide to Effective Driver Reinstallation</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/revolutionize-with-a-stroke-premier-tablet-draw-tools-for-2024/"><u>Revolutionize with a Stroke Premier Tablet Draw Tools for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/screen-surfing-simplified-navigate-with-netflixs-pip/"><u>Screen Surfing Simplified Navigate with Netflix's PIP</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/streamline-your-youtube-presence-using-premiere-pro-for-2024/"><u>Streamline Your YouTube Presence Using Premiere Pro for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/unveiling-ios-175-discover-a-spectrum-of-new-iphone-features-with-easy-to-follow-usage-guides/"><u>Unveiling IOS 17.5: Discover a Spectrum of New iPhone Features with Easy-to-Follow Usage Guides</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-creative-captioning-masterful-techniques-for-text-in-windowsmac-pics/"><u>[New] 2024 Approved Creative Captioning Masterful Techniques for Text in Windows/Mac Pics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-discovering-clarity-and-performance-in-4k-a-closer-look-at-benq-bl2711u/"><u>[New] 2024 Approved Discovering Clarity and Performance in 4K - A Closer Look at BenQ BL2711U</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-tvs-to-accompany-your-highest-rated-consoles-for-2024/"><u>[New] Best TVs to Accompany Your Highest Rated Consoles for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-effective-strategies-to-craft-influential-patient-stories-on-film-for-2024/"><u>[New] Effective Strategies to Craft Influential Patient Stories on Film for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-achieving-flawless-aerial-shots-the-best-gimbals-for-drones/"><u>[New] In 2024, Achieving Flawless Aerial Shots The Best Gimbals for Drones</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-efficient-methods-for-recording-minecraft-sessions/"><u>[New] In 2024, Efficient Methods for Recording Minecraft Sessions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-time-is-money-speedy-guide-to-convert-srt-files-into-text-for-2024/"><u>[New] Time Is Money Speedy Guide to Convert SRT Files Into Text for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-a-guide-to-winning-at-game-capturing-with-win10/"><u>[Updated] 2024 Approved A Guide to Winning at Game Capturing with Win10</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-editprox-in-detail-ultimate-video-editor-review/"><u>[Updated] EditProX in Detail – Ultimate Video Editor Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enhance-your-smile-complimentary-photo-enrichment-app/"><u>[Updated] Enhance Your Smile Complimentary Photo Enrichment App</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-bridging-identities-with-100-creative-and-empowering-insta-captions/"><u>[Updated] In 2024, Bridging Identities with 100 Creative and Empowering Insta Captions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-tips-to-communicate-with-youtube-subscribers-for-2024/"><u>[Updated] Tips to Communicate with YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-boosting-your-fb-following-top-10-strategies-unveiled/"><u>2024 Approved Boosting Your FB Following Top 10 Strategies Unveiled</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhancing-iphone-photography-leading-tools-for-object-cutting/"><u>Enhancing iPhone Photography Leading Tools for Object Cutting</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/essential-volume-settings-ensuring-optimal-backup-locations/"><u>Essential Volume Settings: Ensuring Optimal Backup Locations</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-conduct-your-clicks-harmonize-images-and-sounds/"><u>In 2024, Conduct Your Clicks Harmonize Images & Sounds</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-does-pokegoplusplus-still-work-on-apple-iphone-7-plusipad-drfone-by-drfone-virtual-ios/"><u>In 2024, Does PokeGo++ still work on Apple iPhone 7 Plus/iPad? | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/quick-buy-option-superior-iphone-smudge-wipers/"><u>Quick Buy Option: Superior iPhone Smudge Wipers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-motorola-razr-40-ultra-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Motorola Razr 40 Ultra Phone Hassle-Free</u></a></li>
 </ul></div>
 

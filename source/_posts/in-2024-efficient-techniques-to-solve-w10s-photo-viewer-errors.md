@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Efficient Techniques to Solve W10's Photo Viewer Errors"
-date: 2024-08-28T15:03:07.841Z
-updated: 2024-08-29T15:03:07.841Z
+date: 2024-12-09T16:08:40.943Z
+updated: 2024-12-13T16:02:18.092Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,15 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 **You may also like:** [How to Solve Windows 10 Photos App Crashes Effectively >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -57,8 +65,9 @@ Here is how to troubleshoot –
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -71,14 +80,15 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -89,9 +99,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -120,14 +127,8 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -151,4 +152,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-from-raw-renders-to-rich-realities-grading-in-post-production-for-2024/"><u>[New] From Raw Renders to Rich Realities Grading in Post-Production for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-adeptness-at-mobile-app-development-for-luts/"><u>[New] In 2024, Adeptness at Mobile App Development for LUTs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-integrated-sound-system-guidebook-for-2024/"><u>[New] Integrated Sound System Guidebook for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pros-picks-6-superior-background-cleaners-for-your-photos/"><u>[New] Pro's Picks – 6 Superior Background Cleaners for Your Photos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-guide-7-preferred-android-ad-blocking-tools/"><u>[New] Ultimate Guide 7 Preferred Android Ad Blocking Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ions-pro-3-unveiled-a-camera-ready-to-conquer-action-scenes/"><u>[Updated] In 2024, ION's Pro 3 Unveiled - A Camera Ready to Conquer Action Scenes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unlocking-potential-innovations-in-gif-artistry-for-2024/"><u>[Updated] Unlocking Potential Innovations in GIF Artistry for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effortless-guide-to-converting-vob-files-to-wmv-format-using-windows/"><u>Effortless Guide to Converting VOB Files to WMV Format Using Windows</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hp-victus-steals-at-515-unbeatable-gametech-during-best-buy-prime-daysexclusive-offer/"><u>HP Victus ✨ Steals at $515 - Unbeatable GameTech During Best Buy Prime Days![Exclusive Offer]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-family-bonding-through-film-the-ultimate-classics-list/"><u>In 2024, Family Bonding Through Film The Ultimate Classics List</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-v30-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme V30</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-streamers-guide-sharing-your-twitch-channel-on-fb/"><u>In 2024, Streamer's Guide Sharing Your Twitch Channel on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-time-hopping-through-facebook-stories-a-device-based-expedition/"><u>In 2024, Time-Hopping Through Facebook Stories A Device-Based Expedition</u></a></li>
+<li><a href="https://common-error.techidaily.com/local-authority-security-patched-successfully-learn-more-inside/"><u>Local Authority Security Patched Successfully - Learn More Inside</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-offer-get-a-second-display-with-your-laptop-and-save-120-using-teamgee-shop-now/"><u>Unbeatable Offer: Get a Second Display with Your Laptop & Save $120 Using TeamGee - Shop Now!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Photography Mastery  Focusing on the Micro & Macro\""
-date: 2024-12-01T22:13:41.728Z
-updated: 2024-12-07T08:22:01.713Z
+date: 2024-12-07T16:04:55.106Z
+updated: 2024-12-13T16:10:01.118Z
 tags: 
   - screen-recording
   - ai video
@@ -55,7 +55,7 @@ There is, so if you're looking to get to grips with this type of photography, yo
 With your iPhone macro photography and close-up shooting are both possible and can bring great results if you know what you're doing. However, for the really professional touch, an investment in a macro lens or specialist app will certainly kick your photography skills into high gear.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Section 2. iPhone Macro Photography Tips
@@ -68,6 +68,10 @@ Shooting in the macro range requires decent lighting, so consider when and how y
 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-light.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: Urdu-Mag.com
 
 If you do want to snap some macro images in bright sunlight, try positioning your shadow to create a more indirect lighting of the subject. You can also move your own orientation so that the sun is shining into your shot, rather than behind it.
@@ -79,7 +83,7 @@ With any photo, focus is crucial to an awesome result. But when you're creating 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: PicMonkey
@@ -104,10 +108,6 @@ When you're shooting macro images with your iPhone, the intention is to make the
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-distance.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: GCFLearnFree
 
 Make the subject center stage by positioning your composition to give the least cluttered background possible. Use the sky if you can, or experiment with textured backgrounds such as a wall or fence. Think about how far your subject is from the background, as the further away the background is, the more blurry it will become and the greater the contrast of focus on your subject will appear.
@@ -119,7 +119,7 @@ If you've researched photography in general, you'll already have heard of the â€
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: SmashingHub
@@ -131,10 +131,6 @@ The rule states that if the image were divided into thirds horizontally and vert
 iPhone macro photography is all about looking at the world in a different way. To really accentuate this quality in your work, why not try shooting from a different perspective? Get very low down and shoot your subject from below, with the sky as a background, or snap from directly above to add drama to your images.
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image source: Flickr
 
@@ -164,6 +160,10 @@ Explore, experiment, and practice, and you'll soon find your own style and be th
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -189,18 +189,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-perfecting-your-makeup-mastery/"><u>[New] Perfecting Your Makeup Mastery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-smartly-craft-your-podcast-title-with-these-tools/"><u>[New] Smartly Craft Your Podcast Title with These Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-evaluating-djis-phantom-3-features/"><u>[Updated] 2024 Approved Evaluating DJI's Phantom 3 Features</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-shorts-tutorial-crafting-compact-engaging-videos/"><u>[Updated] In 2024, YouTube Shorts Tutorial Crafting Compact, Engaging Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-maximize-virtual-realty-setting-up-room-and-tech/"><u>[Updated] Maximize Virtual Realty Setting Up Room and Tech</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-speedy-social-snooping-techniques-for-fb-users-for-2024/"><u>[Updated] Speedy Social Snooping Techniques for FB Users for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-secrets-of-avi-to-gif-transition-filmora-software-windowsmacos-for-2024/"><u>[Updated] Unveiling the Secrets of AVI to GIF Transition Filmora Software (Windows/macOS) for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-honor-x9b-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Honor X9b Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-immersive-adventures-await-top-10-innovative-pc-vr-streamers-reviewed/"><u>In 2024, Immersive Adventures Await Top 10 Innovative PC VR Streamers Reviewed</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-complete-walkthrough-to-take-screenshots-on-an-hp-laptop-or-pc/"><u>The Complete Walkthrough to Take Screenshots on an HP Laptop or PC</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-20-ai-enhanced-presentation-templates-in-powerpoint-and-google-slides/"><u>Top 20 AI-Enhanced Presentation Templates in PowerPoint and Google Slides</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-peak-performance-tools-best-4k-cameras-for-professionals/"><u>[New] 2024 Approved Peak Performance Tools Best 4K Cameras for Professionals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-effortless-content-access-free-downloader-tools-for-pinterest-videos/"><u>[New] In 2024, Effortless Content Access Free Downloader Tools for Pinterest Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-professional-strategies-for-inshot-edits/"><u>[New] In 2024, Professional Strategies for Inshot Edits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erfect-your-mobile-shoot-expert-picks-of-the-best-9-cam-gear-for-2024/"><u>[New] Perfect Your Mobile Shoot Expert Picks of the Best 9 Cam Gear for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-strategies-for-effective-use-of-classroom-media/"><u>[New] Strategies for Effective Use of Classroom Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-step-by-step-guide-to-ace-11-essential-color-correction-tutorials/"><u>[Updated] In 2024, Step-by-Step Guide to Ace 11 Essential Color Correction Tutorials</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-guide-to-superior-gear-in-the-4k-market-for-2024/"><u>[Updated] The Ultimate Guide to Superior Gear in the 4K Market for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-enhanced-craftsmanship-top-ethical-strategies-for-writers-and-editors/"><u>AI-Enhanced Craftsmanship: Top Ethical Strategies for Writers & Editors</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-recovery-recover-lost-data-from-galaxy-s24plus-by-fonelab-android-recover-data/"><u>Data Recovery â€“ recover lost data from Galaxy S24+</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-samsung-galaxy-s23-fe-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Samsung Galaxy S23 FE has native HEVC support?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/final-act-evaluation-critique-on-hitman-trilogys-last-chapter/"><u>Final Act Evaluation - Critique on Hitman Trilogy's Last Chapter</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-comprehensive-guide-to-unrestricted-photo-archives/"><u>In 2024, Comprehensive Guide to Unrestricted Photo Archives</u></a></li>
+<li><a href="https://techidaily.com/is-your-samsung-galaxy-f15-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Samsung Galaxy F15 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-from-zero-to-hero-10-free-fcpx-plugins-for-editors/"><u>New From Zero to Hero 10 Free FCPX Plugins for Editors</u></a></li>
+<li><a href="https://games-able.techidaily.com/transform-your-gaming-experience-with-cs2-on-mac/"><u>Transform Your Gaming Experience with CS2 on Mac</u></a></li>
 </ul></div>
 

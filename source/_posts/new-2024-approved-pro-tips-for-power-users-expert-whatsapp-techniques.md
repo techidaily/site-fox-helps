@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pro Tips for Power Users  Expert WhatsApp Techniques\""
-date: 2024-12-04T10:15:08.272Z
-updated: 2024-12-07T12:46:23.740Z
+date: 2024-12-10T16:16:27.960Z
+updated: 2024-12-13T16:05:36.545Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ With more than a billion active users worldwide, WhatsApp is now among the prima
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool WhatsApp Text Tricks to Make You Look Edgy
@@ -57,10 +57,6 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3.Strikethrough
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
@@ -73,15 +69,15 @@ The monospace is a font stylization now available in WhatsApp that allows you to
 
 ![Whatsapp Text Tricks Monospace](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-monospace.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5.Disable Read Recipients
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
 
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6.Pin Prioritized Contacts
 
@@ -97,11 +93,19 @@ If you wish to save the chats that you exchanged with someone special, you can e
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -114,10 +118,6 @@ There are plenty of things you can do with one word. It can be bold, italic, mon
 While typing a WhatsApp message if you need to cross-check certain areas with someone else, and don’t want to copy the text or overwrite your clipboard, you can directly share the text without copy-pasting or taking screenshots. This WhatsApp Typing Trick is in the same native setting strip mentioned earlier, which you can access by tapping and holding the text section you want to share, which will open the formatting strip. Once it opens then click on the 3 dots, which will turn the strip into a panel, in the panel you will find what you are looking for. The coolest part is that you can share the text not only in WhatsApp but multiple other apps like Zoom, Skype, Email… even Bluetooth!
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
 
@@ -133,10 +133,6 @@ There are many ways how you can save mobile data consumed by WhatsApp. First, yo
 
 ![Whatsapp Save More Data](https://images.wondershare.com/filmora/article-images/whatsapp-save-more-data.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Source: androidauthority.com
 
 #### 3.Share Your Location Without Ado
@@ -150,7 +146,7 @@ As long as you have the chat history intact you can search specific words to tra
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5.Restore Your Chat History, and Deleted Chats
@@ -169,10 +165,6 @@ Not every message thread is important, and many people have the habit of deletin
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
@@ -180,7 +172,7 @@ If it is annoying to open a loved one’s story and then automatically sliding i
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
@@ -195,6 +187,10 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 
 Source: beebom.com
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit WhatsApp Videos with Ease
 
 Some of the best WhatsApp video editing tricks are coming up, wherein you can add doodles, text, and crop an image. Moreover, you also check in some external video editing tools that are quite handy to integrate with WhatsApp.
@@ -204,6 +200,10 @@ Some of the best WhatsApp video editing tricks are coming up, wherein you can ad
 There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2.Record Video Calls from PC and Improve Its Quality
 
@@ -246,20 +246,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-visuals-top-18-camcorders-for-4k-content/"><u>[New] In 2024, Ultimate Visuals - Top 18 Camcorders for 4K Content</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pioneering-virtual-realities-in-live-video-feeds/"><u>[Updated] 2024 Approved Pioneering Virtual Realities in Live Video Feeds</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-flickvista-app-performance-index-for-2024/"><u>[Updated] FlickVista App Performance Index for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-integrating-picture-in-picture-the-essentials-of-ms-edge/"><u>2024 Approved Integrating Picture-in-Picture The Essentials of MS Edge</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-youtube-growth-strategy-attracting-million-strong-fans/"><u>2024 Approved Youtube Growth Strategy Attracting Million-Strong Fans</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/from-good-to-great-elevate-your-tiktok-edits-for-2024/"><u>From Good to Great Elevate Your TikTok Edits for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/illuminate-the-darkness-restoring-visibility-in-windows-11-system-issues/"><u>Illuminate the Darkness: Restoring Visibility in Windows 11 System Issues</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/in-search-of-ultimate-generative-genius-notion-or-gpt-3/"><u>In Search of Ultimate Generative Genius? Notion or GPT-3?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kindle-oasis-2019-an-unparalleled-bookish-touch-for-e-readers-enthusiasts/"><u>Kindle Oasis 2019 - An Unparalleled, Bookish Touch for E-Readers Enthusiasts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/maximize-your-snapshots-on-android/"><u>Maximize Your Snapshots on Android</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-9-live-game-streaming-platform-you-should-know/"><u>Top 9 Live Game Streaming Platform You Should Know</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/unlocking-chuckles-on-a-budget-memetic-creators-guide/"><u>Unlocking Chuckles on a Budget - Memetic Creator’s Guide</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-avs-video-editor-is-only-available-on-windows-you-need-to-get-avs-video-editor-alternative-for-mac-for-2024/"><u>Updated AVS Video Editor Is only Available on Windows, You Need to Get AVS Video Editor Alternative for Mac for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-iphone-12-stands-out-as-apples-greatest-offering-this-year/"><u>Why iPhone 12 Stands Out as Apple's Greatest Offering This Year</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-game-masters-unleashed-an-in-depth-look-at-kinemaster-on-android/"><u>[New] 2024 Approved Game Masters Unleashed An In-Depth Look at KineMaster on Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-quick-fixes-for-color-balancing-in-ps/"><u>[New] 2024 Approved Quick Fixes for Color Balancing in PS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-actionable-guide-xml-to-srt-conversion-techniques-for-2024/"><u>[New] Actionable Guide XMl-to-Srt Conversion Techniques for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-echoing-emptiness-guiding-graduated-gone-sounds-in-pp-for-2024/"><u>[New] Echoing Emptiness Guiding Graduated Gone Sounds in PP for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-twitch-time-travel-retrieve-lost-broadcast-moments/"><u>[New] In 2024, Twitch Time-Travel Retrieve Lost Broadcast Moments</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-kinemaster-app-for-android-complete-review-2023/"><u>[Updated] 2024 Approved KineMaster App for Android - Complete Review 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-master-win11-tips-for-optimal-performance/"><u>[Updated] 2024 Approved Master Win11 Tips for Optimal Performance</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-understanding-the-mechanics-behind-altering-gender-in-snapchatfacebook-images/"><u>[Updated] 2024 Approved Understanding the Mechanics Behind Altering Gender in Snapchat/Facebook Images</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-iphone-tricks-adjusting-picture-size-efficiently/"><u>2024 Approved IPhone Tricks Adjusting Picture Size Efficiently</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-haute-couture-at-home-makeup-tools-and-techniques/"><u>In 2024, Haute Couture at Home Makeup, Tools & Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-xiaomi-redmi-k70-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Xiaomi Redmi K70 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unveiling-the-secrets-of-successful-travel-vloggers/"><u>In 2024, Unveiling the Secrets of Successful Travel Vloggers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/pictureweaversierra-blending-apple-media-artfully-for-2024/"><u>PictureWeaverSierra Blending Apple Media Artfully for 2024</u></a></li>
 </ul></div>
 
