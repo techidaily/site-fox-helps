@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Aerial Units' Phylogeny\""
-date: 2024-08-23T17:00:23.167Z
-updated: 2024-08-24T17:00:23.167Z
+date: 2024-12-17T19:31:39.700Z
+updated: 2024-12-22T19:48:40.439Z
 tags: 
   - screen-recording
   - ai video
@@ -43,9 +43,17 @@ thumbnail: https://thmb.techidaily.com/0bfbb82ab5214d9df42dfb4686963b4575f40401c
 | Single-rotor drones                 | /                  | /               | /                   | /        |             |
 | **Fixed-wing drones**               | /                  | /               | /                   | /        | /           |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Section 1: According to Number of Propellers
 
 ![drones type by propellers](https://images.wondershare.com/filmora/article-images/types-of-drones.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####
 
@@ -60,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/0bfbb82ab5214d9df42dfb4686963b4575f40401c
 #### 2. Tricopter
 
 ![tricopter drone](https://images.wondershare.com/filmora/article-images/tricopter-drone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There are three different types of powerful motors inside a tricopter, three controllers, four gyros and only one servo. The motors are simply placed at every extreme end of three arms and each one of these is holding a location sensor. Whenever you need to lift your tricopter, it is essential to initiate a movement in throttle lever, the gyro sensor will immediately receive its signal and will pass is directly to controller that helps to control motor rotation. A tricopter is able to stay stabilized on its path as it is equipped with so many classic sensors and electronic stuff itself. You need not to apply any manual correction.
 
@@ -102,8 +114,9 @@ thumbnail: https://thmb.techidaily.com/0bfbb82ab5214d9df42dfb4686963b4575f40401c
  Most of the designs of drones available in market are quadcopters because they are able to lift huge weight without any additional engineering adjustment. It is the most cost effective solution to most of your needs.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Section 2: According to Size
 
 #### 1. Very Small Drones
@@ -181,8 +194,9 @@ thumbnail: https://thmb.techidaily.com/0bfbb82ab5214d9df42dfb4686963b4575f40401c
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -206,4 +220,16 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-list-5-high-res-tvs-perfecting-chromatic-balance/"><u>[New] 2024 Approved A-List 5 High-Res TVs Perfecting Chromatic Balance</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-dynamic-expression-techniques-for-animated-text-in-ig-stories-for-2024/"><u>[New] Dynamic Expression Techniques for Animated Text in IG Stories for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/inal-thoughts-on-youtubing-best-makers-tips-and-templates-for-2024/"><u>[New] Final Thoughts on YouTubing - Best Makers, Tips, and Templates for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-pro-level-insights-enhancing-your-interview-recordings-on-ios-devices-for-2024/"><u>[New] Pro-Level Insights Enhancing Your Interview Recordings on iOS Devices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-discover-your-preferred-music-experience-top-6-android-music-video-apps/"><u>[Updated] Discover Your Preferred Music Experience - Top 6 Android Music Video Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-6-best-gopro-helmet-mounts-and-how-to-use-them/"><u>2024 Approved 6 Best GoPro Helmet Mounts and How to Use Them</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-xr-without-passcode-drfone-by-drfone-ios/"><u>How to Unlock iPhone XR Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-7-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 7 Plus without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/visual-upgrades-top-apps-to-transform-your-photos/"><u>Visual Upgrades Top Apps to Transform Your Photos</u></a></li>
+</ul></div>
 

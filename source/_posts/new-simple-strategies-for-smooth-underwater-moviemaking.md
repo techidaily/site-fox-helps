@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2024-12-09T16:13:46.062Z
-updated: 2024-12-13T16:06:39.587Z
+date: 2024-12-17T16:45:43.661Z
+updated: 2024-12-22T17:44:12.312Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips on shooting video underwater
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Get closer
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -85,25 +85,21 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -112,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -152,20 +152,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-building-visual-story-arcs-for-2024/"><u>[New] Building Visual Story Arcs for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-exclusive-compilation-of-top-10-budget-friendly-photo-savers/"><u>[New] In 2024, Exclusive Compilation of Top 10 Budget-Friendly Photo Savers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-mastering-online-streams-your-easy-to-follow-internet-radio-recording-tutorial/"><u>[New] Mastering Online Streams Your Easy-to-Follow Internet Radio Recording Tutorial</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facebook-live-streaming-techniques-on-mobile/"><u>[Updated] 2024 Approved Facebook Live Streaming Techniques on Mobile</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-meme-mastery-top-ten-template-treasures/"><u>[Updated] 2024 Approved Meme Mastery Top Ten Template Treasures</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-how-to-optimize-your-content-for-higher-views-and-more-likes/"><u>[Updated] How to Optimize Your Content for Higher Views and More 'Likes'</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-perfect-your-instagram-vids-with-ease/"><u>[Updated] In 2024, Perfect Your Instagram Vids with Ease</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-icicle-impressions-2022s-olympic-skaters/"><u>2024 Approved Icicle Impressions 2022'S Olympic Skaters</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1728501549120-windows-n/"><u>如何在Windows N迭代中实现文件自动备份：多项解决方案</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-how-to-adjust-frame-rate-on-your-story-feed-in-instagram/"><u>In 2024, How to Adjust Frame Rate on Your Story Feed in Instagram</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-perfecting-tiktok-videos-efficient-techniques-for-numerical-edits/"><u>In 2024, Perfecting TikTok Videos Efficient Techniques for Numerical Edits</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/master-window-11-taskbar-icon-separation/"><u>Master Window 11 Taskbar Icon Separation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/shooting-through-the-cosmos-unveiling-the-outer-worlds-engaging-science-fiction-tale/"><u>Shooting Through the Cosmos: Unveiling The Outer Worlds - Engaging Science Fiction Tale</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-and-repairing-malfunctioning-msi-dragon-center/"><u>Troubleshooting and Repairing Malfunctioning MSI Dragon Center</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-superior-speech-logging-apps-for-ipads-3/"><u>[New] 2024 Approved Superior Speech Logging Apps for iPads #3</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tips-for-extracting-tweets-as-mp3-audio-files/"><u>[New] 2024 Approved Tips for Extracting Tweets as MP3 Audio Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers/"><u>[New] 2024 Approved Transform Your Tactics Exclusive Free Voice Change Tool for Valorant Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elevate-visual-impact-with-custom-typography-in-after-effects/"><u>[New] Elevate Visual Impact with Custom Typography in After Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-photographic-poise-achieving-dynamic-motion-blur-on-facial-elements-through-picsart/"><u>[New] Photographic Poise Achieving Dynamic Motion Blur on Facial Elements Through Picsart</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-strategy-for-professional-srt-production/"><u>[New] Ultimate Strategy for Professional SRT Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-choosing-the-right-gimbal-dslr-vs-mirrorless-edition-for-2024/"><u>[Updated] Choosing the Right Gimbal DSLR vs Mirrorless Edition for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-breaking-boundaries-top-10-novel-facebook-memes/"><u>[Updated] In 2024, Breaking Boundaries Top 10 Novel Facebook Memes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-up-your-video-game-expert-endorsed-cost-free-intro-creators/"><u>[Updated] In 2024, Step Up Your Video Game Expert-Endorsed, Cost-Free Intro Creators</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-which-is-the-top-screener-bandicam-or-camtasia/"><u>[Updated] In 2024, Which Is the Top Screener? - Bandicam Or Camtasia</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-resolution-war-gopro-hero-series-against-polaroid-cube-for-2024/"><u>[Updated] Resolution War GoPro Hero Series Against Polaroid Cube for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-agni-2-5g-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Agni 2 5G.</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-advanced-gadgets-and-devices-on-toms-hardware-platform/"><u>Exploring Advanced Gadgets and Devices on Tom's Hardware Platform</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-dim-to-dazzling-a-guide-to-selecting-top-quality-displays-for-2024/"><u>From Dim to Dazzling A Guide to Selecting Top-Quality Displays for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-watch-live-streaming-football-for-free-on-pc-or-mobile-for-2024/"><u>How to Watch Live Streaming Football for Free on PC or Mobile for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-quick-windows-data-assessment-tutorial/"><u>In 2024, Quick Windows Data Assessment Tutorial</u></a></li>
 </ul></div>
 

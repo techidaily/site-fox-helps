@@ -1,7 +1,7 @@
 ---
 title: "[New] Effective Strategies to Craft Influential Patient Stories on Film for 2024"
-date: 2024-12-07T16:19:54.926Z
-updated: 2024-12-13T16:18:30.296Z
+date: 2024-12-15T18:38:11.786Z
+updated: 2024-12-22T19:13:57.606Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ If you want to learn how to create video testimonials that convert, then this po
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
 It may seem like a daunting task, but there are several ways you can go about defining who this person is:
@@ -41,7 +37,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ask Authentic Questions
@@ -64,7 +60,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keep it All Short and Sweet
@@ -72,7 +68,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
@@ -93,6 +89,10 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
@@ -106,7 +106,7 @@ You might have skeptics and negative nellies in your audience. They're the ones 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -143,17 +143,21 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-cutting-edge-360-cameras-for-dynamic-videos/"><u>[New] Cutting-Edge 360 Cameras for Dynamic Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-revolutionizing-photos-through-automated-hdr-techniques/"><u>[New] Revolutionizing Photos Through Automated HDR Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-techniques-to-amplify-youtube-video-clarity-for-2024/"><u>[Updated] Techniques to Amplify YouTube Video Clarity for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-learn-cinematic-techniques-with-youtube-veterans-and-novices/"><u>2024 Approved Learn Cinematic Techniques with YouTube Veterans and Novices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-realme-c55-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Realme C55</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-free-dailymotion-converter-online/"><u>In 2024, Best Free Dailymotion Converter Online</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/in-2024-global-top-rated-mp3-editing-applications/"><u>In 2024, Global Top-Rated MP3 Editing Applications</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-premium-cloud-apps-for-android-the-most-reliable/"><u>In 2024, Premium Cloud Apps for Android The Most Reliable</u></a></li>
-<li><a href="https://facebook.techidaily.com/revelations-of-a-digital-watchmaker-facebooks-undisclosed-device/"><u>Revelations of a Digital Watchmaker: Facebook's Undisclosed Device</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/iques-for-safe-youtube-audio-extraction-at-no-cost-for-2024/"><u>Techniques for Safe YouTube Audio Extraction at No Cost for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-homes-with-technology-how-apple-envisions-a-future-with-in-home-robot-assistants/"><u>Transforming Homes with Technology: How Apple Envisions a Future with In-Home Robot Assistants</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/zoom-in-on-subject-scrub-background-cleanly/"><u>Zoom In on Subject, Scrub Background Cleanly</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-methodology-creating-life-changing-video-guides/"><u>[New] 2024 Approved Methodology Creating Life-Changing Video Guides</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-comprehensive-guide-to-utilizing-telegram-web-services/"><u>[New] Comprehensive Guide to Utilizing Telegram Web Services</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-chart-success-using-youtube-statistics-to-grow-engagement/"><u>[New] In 2024, Chart Success Using YouTube Statistics to Grow Engagement</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pinnacle-performances-in-figure-skate-22/"><u>[Updated] 2024 Approved Pinnacle Performances in Figure Skate '22</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-revolutionize-unboxing-on-instagram-a-guide-to-popularity/"><u>[Updated] 2024 Approved Revolutionize Unboxing on Instagram A Guide to Popularity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-visual-verdict-clash-sj6-prodigy-versus-yis-4k-masterpiece/"><u>[Updated] 2024 Approved Visual Verdict Clash SJ6 Prodigy Versus Yi’s 4K Masterpiece</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enhancing-social-engagement-with-zoom-fb-live-streams/"><u>[Updated] Enhancing Social Engagement with Zoom-FB Live Streams</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-to-use-the-top-10-mobile-live-streaming-apps-list/"><u>[Updated] Free to Use The Top 10 Mobile Live Streaming Apps List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-survey-unique-categories-in-visual-media-equipment/"><u>2024 Approved Survey Unique Categories in Visual Media Equipment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-self-sustained-youtube-moguls-handbook-no-ads-only-gains/"><u>2024 Approved The Self-Sustained YouTube Mogul’s Handbook No Ads, Only Gains</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-gear-helmet-cams-the-most-trusted-choice-riders/"><u>2024 Approved Top Gear Helmet Cams - The Most Trusted Choice Riders</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-the-persistent-pnpdetectedfatalerror-issue-in-windows-10/"><u>How to Fix the Persistent 'PNP_Detected_Fatal_Error' Issue in Windows 10</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-images-androidandiphones-top-10-freeware-overlays/"><u>In 2024, Enhance Images Android&iPhone's Top 10 Freeware Overlays</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simple-setup-winning-the-art-of-fishy-voice-transformation-for-2024/"><u>Simple Setup Winning the Art of Fishy Voice Transformation for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/which-ones-right-for-you-obs-or-twitch-studio-reviewed/"><u>Which One's Right for You? - OBS or Twitch Studio Reviewed</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-installation-insight-pinpointing-software-homesteads/"><u>Windows Installation Insight: Pinpointing Software Homesteads</u></a></li>
 </ul></div>
 

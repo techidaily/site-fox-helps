@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Optimize iPhone Cinematography  Ultimate Capture Additions\""
-date: 2024-08-23T17:04:25.148Z
-updated: 2024-08-24T17:04:25.148Z
+date: 2024-12-16T18:10:25.237Z
+updated: 2024-12-22T16:44:13.208Z
 tags: 
   - screen-recording
   - ai video
@@ -45,17 +45,19 @@ How to press the record button without ever touching your phone? The answer is s
 ![remote-shutter-release ](https://images.wondershare.com/filmora/article-images/remote-shutter-release.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## External Lenses
 
 Nothing influences the quality of your pictures more than the optics you use to capture them. A lens is probably the most important part of any camera and since most built-in lenses on iPhones have limitations an external lens is a perfect solution to those limitations. Using external lenses such as [Moment Lenses](https://www.shopmoment.com/) will ensure that the images you create with your iPhone live up to the standards of professional photographers. You can choose between Fisheye, Wide-angle, or Telelenses since each of them provides you with a new set of possibilities. Moment lenses are light and easy to mount on your iPhone, which is why carrying them on your road trips and adventures requires minimum effort. Using an external lens is a great way to improve the quality of images you take with your iPhone.
 
 ![ iphone-lense](https://images.wondershare.com/filmora/article-images/iphone-lense.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## External Light Source
 
 To photograph or to film something simply means to capture the light at the certain place in a certain moment. Due to the lack of light that is not always possible and an additional source of light is often necessary to ensure that camera receives enough light. Using a camera flash can be a quick solution for this problem, but the light the flash produces can be too hard and it always comes from the same direction. [Photojojo's pocket spotlight](https://photojojo.com/awesomeness/pocket-spotlight) is an external light source that allows you to get creative with light in your videos or photos. You can adjust the brightness settings and choose between full strength, half strength, and strobe modes. Photojojo's pocket spotlight is one of many external light sources that can be used with iPhones and other Apple's devices and it will enable you to unleash your creativity.
@@ -63,11 +65,9 @@ To photograph or to film something simply means to capture the light at the cert
 ![light-iphone ](https://images.wondershare.com/filmora/article-images/light-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## External Battery/Charger
 
 Recording or taking photos for long periods of time can be demanding on your iPhone's battery. There is nothing worse than your battery dying in the middle of the scene you wanted to capture. [RAVPower 20100mAh Qualcomm Quick Charge 2.0 USB-C/Type-C Port External Battery](https://www.ravpower.com) is one of the most powerful chargers on the market today that can be used as an external power source for latest computers or any of the Apple's devices. At 20100 mAh it is capable of charging the iPhone 6S up to seven times in a row. The device is small enough to fit your pocket, which is why it should be your loyal companion on occasions when you are far away from a standard power source.
@@ -75,11 +75,9 @@ Recording or taking photos for long periods of time can be demanding on your iPh
 ![battery-iphone ](https://images.wondershare.com/filmora/article-images/battery-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
+
 ## Microphone
 
 The era of silent movies is long gone and today the quality of the video's sound is as important as the image quality. iPhone's built-in microphones are far from perfect and if for any reason the sound quality in your video is important to you, you should use an external shotgun microphone like [VideoMic Me](http://www.rode.com/microphones/videomicme). This microphone for iPhones is produced by Røde Microphones one the industry's leading companies which speak volumes about the quality of this small and practical microphone. VideoMic Me connects to an iPhone through the TRRS headphone/microphone socket and it can be used with both front and back cameras. This directional mic is designed to shoot outdoors and it's equipped with a deluxe furry windshield, that enables you to capture perfect audio even when it is windy outside.
@@ -87,13 +85,18 @@ The era of silent movies is long gone and today the quality of the video's sound
 ![mic-iphone ](https://images.wondershare.com/filmora/article-images/mic-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Stabilization Gadgets
 
 Besides tripods, you can use gimbals like [DJI Osmo Mobile](http://store.dji.com/product/osmo-mobile?gclid=CjwKEAjwgZrJBRDS38GH1Kv%5FvGYSJAD8j4Dfjx4uY6dtl4LycNBeOvkn5lBd-062PP5K%5F714fRidQxoCe8nw%5FwcB) to keep your iPhone or any other Smartphone still while recording or taking a photo. Options like ActiveTrack that is built-into the DJI GO app enable Osmo Mobile to track your movements. The handle of the device is equipped with camera controls on the handle which means that you don't even need to touch the display of your iPhone while you are using the Osmo Mobile. To make things even better, you can share videos live, create panorama photos composed out of 9 different pictures or create time-lapse videos by adjusting a few simple settings. DJI Osmo Mobile can be placed almost everywhere, which gives you the confidence to experiment without ever having to worry about the stability of the shot you are about to take.
 
 ![iphone-stabilizer ](https://images.wondershare.com/filmora/article-images/iphone-stabilizer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Camera Dollies
 
@@ -102,8 +105,9 @@ Did you ever dream of taking a perfect tracking shot with your iPhone? Anyone wh
 ![ iphone-stabilizer-dolly](https://images.wondershare.com/filmora/article-images/iphone-stabilizer-dolly.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Camera apps
 
 There is no doubt that iPhone's cameras are capable of stunning performances, but if you'd like to give the videos you create with your iPhone a more cinematic look, camera apps might be the thing that you are looking for. Apps like [FiLMiC Pro](http://www.filmicpro.com/apps/apple/filmic-pro/) turn iOS camera into a high definition camera that can stand shoulder to shoulder with some of the best professional cameras today. This two-time video camera app of the year enables you to fully control settings like ISO, Shutter Speed or Exposure bias which results in the footage that is worthy of industry's best cameras. The app allows you to shoot 4K video in resolutions at up to 100Mbps and the latest update added the digital cinema 17:9 aspect ratio.
@@ -116,6 +120,10 @@ Taking a selfie isn't always easy, especially if you want to capture some of the
 
 ![selfie-stick-iphone ](https://images.wondershare.com/filmora/article-images/selfie-stick-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Underwater Housing
 
 In the summertime, many people like to document their underwater adventures. But most underwater cameras are disposable and the image quality they produce is questionable at best. Underwater housings for iPhones might be a little pricey, but they enable you to capture the magnificence of the sea life in high definition. The [LenzO for iPhone 7 Plus](https://www.valstech.com/products/lenzo-for-iphone-7-plus) is designed and built using the same technologies that created the success of Lenzo's housings for iPhone 6/6s and iPhone 7\. The housing is composed out of aluminum and can be used at depths up to a hundred meters below the surface. You can access all of the phone's camera functions including the 4K or time-lapse modes. Underwater housings protect your iPhone and enable you to have a lot of fun while exploring the underwater world.
@@ -124,9 +132,6 @@ In the summertime, many people like to document their underwater adventures. But
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -150,4 +155,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-deep-dive-ultimate-ice-cream-viewer-analysis/"><u>[New] 2024 Approved Deep Dive Ultimate Ice Cream Viewer Analysis</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-revolutionize-your-laptop-experience-innovative-methods-for-screen-capture/"><u>[New] 2024 Approved Revolutionize Your Laptop Experience Innovative Methods for Screen Capture</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-pros-guide-to-hidden-power-ups-in-vlc-playback/"><u>[New] The Pro's Guide to Hidden Power-Ups in VLC Playback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-complete-manual-for-logging-and-storing-periscope-video/"><u>[Updated] 2024 Approved A Complete Manual for Logging & Storing Periscope Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-5-best-no-cost-video-enhancement-platforms-for-2024/"><u>[Updated] 5 Best No-Cost Video Enhancement Platforms for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-zero-to-hero-making-your-instagram-videos-go-wild-for-2024/"><u>[Updated] From Zero to Hero Making Your Instagram Videos Go Wild for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-technological-testing-and-tracking-the-vll-method/"><u>[Updated] Technological Testing and Tracking The VLL Method</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-innovative-solutions-for-your-ultimate-3d-viewing-needs/"><u>2024 Approved Innovative Solutions for Your Ultimate 3D Viewing Needs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-reno-11-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo Reno 11 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-asmrs-impact-on-stress-reduction-for-2024/"><u>Explore ASMR’s Impact on Stress Reduction for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guide-to-fixing-path-of-exile-stutter-and-hangs/"><u>Guide to Fixing Path of Exile Stutter and Hangs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-evolution-of-drone-remote-control-systems-syma-x8c/"><u>In 2024, The Evolution of Drone Remote Control Systems – Syma X8C</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unveiling-nikons-1j5-a-4k-video-masterpiece/"><u>In 2024, Unveiling Nikon's 1J5 A 4K Video Masterpiece</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/is-this-a-bug-or-intentional-edit-on-instagram/"><u>Is This a Bug or Intentional Edit on Instagram?</u></a></li>
+<li><a href="https://app-tips.techidaily.com/revolutionizing-ux-with-xr-digital-twins-and-spatial-tech-a-comprehensive-industry-handbook-zdnet-insights/"><u>Revolutionizing UX with XR, Digital Twins & Spatial Tech: A Comprehensive Industry Handbook | ZDNet Insights</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-iphone-13-pro-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of iPhone 13 Pro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-mastering-the-gameplay-of-pokemon-go/"><u>Ultimate Guide: Mastering the Gameplay of Pokémon Go</u></a></li>
+</ul></div>
 

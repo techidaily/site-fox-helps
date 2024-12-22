@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Independent Analysis  Unveiling the Mysteries of '3DR'\""
-date: 2024-12-06T16:19:51.356Z
-updated: 2024-12-13T16:20:10.188Z
+date: 2024-12-21T19:42:55.210Z
+updated: 2024-12-22T18:49:56.350Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of 3DR Solo
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -119,7 +119,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -147,19 +147,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-video-titling-solutions-online-now/"><u>[New] 2024 Approved Best Video Titling Solutions Online Now</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-cutting-edge-ppt-techniques-for-s2t-integration-advocates/"><u>[New] 2024 Approved Cutting-Edge PPT Techniques for S2T Integration Advocates</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-tier-innovations-in-virtual-reality-setup/"><u>[New] In 2024, Top-Tier Innovations in Virtual Reality Setup</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-whats-revolutionary-about-movavi-plus-video-editor-in-2024/"><u>[New] What's Revolutionary About Movavi Plus Video Editor , In 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-master-quick-youtube-video-rendering-and-efficient-uploading/"><u>[Updated] Master Quick YouTube Video Rendering & Efficient Uploading</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-capture-natural-motion-blur-for-pics/"><u>2024 Approved Capture Natural Motion Blur for Pics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-ultimate-ig-coverage-toolkit-apple-and-android-included/"><u>2024 Approved The Ultimate IG Coverage Toolkit, Apple & Android Included</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-online-converter-transforming-midiaudio-files-mod-into-wav-movavi/"><u>Free Online Converter: Transforming MIDI/Audio Files (MOD) Into WAV - Movavi</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-natural-beauty-video-suggestions/"><u>In 2024, Natural Beauty Video Suggestions</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-unleashing-new-voices-premier-applications-for-anime-character-reinterpretation-desktop-and-mobile/"><u>In 2024, Unleashing New Voices Premier Applications for Anime Character Reinterpretation (Desktop & Mobile)</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/navigating-iphone-release-cycles-to-determine-upgrades/"><u>Navigating iPhone Release Cycles to Determine Upgrades</u></a></li>
-<li><a href="https://win-tips.techidaily.com/not-found-alert-navigating-the-404-error-maze/"><u>Not Found Alert: Navigating the 404 Error Maze</u></a></li>
-<li><a href="https://win-answers.techidaily.com/revamp-your-wow-play-eliminate-lag-and-boost-frame-rates-with-our-ultimate-2024-guide/"><u>Revamp Your WoW Play: Eliminate Lag and Boost Frame Rates with Our Ultimate 2024 Guide</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-overcome-cannot-access-device-path-in-windows/"><u>Troubleshooting Guide: Overcome 'Cannot Access Device Path in Windows'</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-avoiding-common-pitfalls-in-youtube-sponsorships-according-to-famebit/"><u>[New] 2024 Approved Avoiding Common Pitfalls in YouTube Sponsorships, According to FameBit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-text-techniques-top-10-video-enhancers/"><u>[New] In 2024, Text Techniques Top 10 Video Enhancers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-filmmakers-first-steps-learning-15-fundamental-shots/"><u>[New] In 2024, The Filmmaker's First Steps Learning 15 Fundamental Shots</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-conquering-challenges-expert-gopro-tips/"><u>[Updated] 2024 Approved Conquering Challenges Expert GoPro Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-flawless-offline-viewing-your-guide-to-mobile-video-downloads-for-idevices/"><u>[Updated] Flawless Offline Viewing Your Guide to Mobile Video Downloads for iDevices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-instructions-for-installing-windows-movie-maker-6/"><u>[Updated] In 2024, Instructions for Installing Windows Movie Maker 6</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-professional-video-capture-techniques-mastering-movs-on-win10-for-2024/"><u>[Updated] Professional Video Capture Techniques Mastering MOVs on Win10 for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-blueprint-for-successful-biographies-top-tips-and-techniques-from-experts-for-2024/"><u>[Updated] The Blueprint for Successful Biographies Top Tips & Techniques From Experts for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-honor-magic-5-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Honor Magic 5 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-guide-for-video-narration-implementation/"><u>In 2024, Step-By-Step Guide for Video Narration Implementation</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-oneplus-11-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your OnePlus 11 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-compreenasive-breakdown-how-to-use-microsofts-movie-maker-on-w11-for-2024/"><u>The Compreenasive Breakdown How to Use Microsoft's Movie Maker on W11 for 2024</u></a></li>
 </ul></div>
 
