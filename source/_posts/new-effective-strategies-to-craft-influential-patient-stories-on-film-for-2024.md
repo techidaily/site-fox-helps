@@ -1,7 +1,7 @@
 ---
 title: "[New] Effective Strategies to Craft Influential Patient Stories on Film for 2024"
-date: 2024-12-15T18:38:11.786Z
-updated: 2024-12-22T19:13:57.606Z
+date: 2024-12-25T09:10:39.806Z
+updated: 2024-12-27T20:34:38.889Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ If you want to learn how to create video testimonials that convert, then this po
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
@@ -36,13 +40,13 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
@@ -59,16 +63,12 @@ It may seem like a daunting task, but there are several ways you can go about de
 * You can also use the word "they" for an authoritative tone, or "them", which is more casual and vaguer, depending on what you want to convey.
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Keep it All Short and Sweet
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
@@ -81,6 +81,10 @@ Asking open-ended questions allows people greater freedom when responding—and 
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
@@ -89,13 +93,13 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -104,10 +108,6 @@ If someone says "I love this product," but then shows their eyes darting around 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,21 +143,24 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-methodology-creating-life-changing-video-guides/"><u>[New] 2024 Approved Methodology Creating Life-Changing Video Guides</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-comprehensive-guide-to-utilizing-telegram-web-services/"><u>[New] Comprehensive Guide to Utilizing Telegram Web Services</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-chart-success-using-youtube-statistics-to-grow-engagement/"><u>[New] In 2024, Chart Success Using YouTube Statistics to Grow Engagement</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pinnacle-performances-in-figure-skate-22/"><u>[Updated] 2024 Approved Pinnacle Performances in Figure Skate '22</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-revolutionize-unboxing-on-instagram-a-guide-to-popularity/"><u>[Updated] 2024 Approved Revolutionize Unboxing on Instagram A Guide to Popularity</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-visual-verdict-clash-sj6-prodigy-versus-yis-4k-masterpiece/"><u>[Updated] 2024 Approved Visual Verdict Clash SJ6 Prodigy Versus Yi’s 4K Masterpiece</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-enhancing-social-engagement-with-zoom-fb-live-streams/"><u>[Updated] Enhancing Social Engagement with Zoom-FB Live Streams</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-free-to-use-the-top-10-mobile-live-streaming-apps-list/"><u>[Updated] Free to Use The Top 10 Mobile Live Streaming Apps List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-survey-unique-categories-in-visual-media-equipment/"><u>2024 Approved Survey Unique Categories in Visual Media Equipment</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-self-sustained-youtube-moguls-handbook-no-ads-only-gains/"><u>2024 Approved The Self-Sustained YouTube Mogul’s Handbook No Ads, Only Gains</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-top-gear-helmet-cams-the-most-trusted-choice-riders/"><u>2024 Approved Top Gear Helmet Cams - The Most Trusted Choice Riders</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-the-persistent-pnpdetectedfatalerror-issue-in-windows-10/"><u>How to Fix the Persistent 'PNP_Detected_Fatal_Error' Issue in Windows 10</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-images-androidandiphones-top-10-freeware-overlays/"><u>In 2024, Enhance Images Android&iPhone's Top 10 Freeware Overlays</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/simple-setup-winning-the-art-of-fishy-voice-transformation-for-2024/"><u>Simple Setup Winning the Art of Fishy Voice Transformation for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/which-ones-right-for-you-obs-or-twitch-studio-reviewed/"><u>Which One's Right for You? - OBS or Twitch Studio Reviewed</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-installation-insight-pinpointing-software-homesteads/"><u>Windows Installation Insight: Pinpointing Software Homesteads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-funimate-essentials-for-the-avid-gamer/"><u>[New] 2024 Approved Funimate Essentials for the Avid Gamer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-best-writers-workshop-online-for-2024/"><u>[New] Best Writer’s Workshop Online for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-bite-sized-narrative-notation-for-2024/"><u>[New] Bite-Sized Narrative Notation for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-crafting-visual-narratives-effective-titling/"><u>[New] Crafting Visual Narratives Effective Titling</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-explore-free-fcp-download-options-for-2024/"><u>[New] Explore FREE FCP Download Options for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-nimbusaieditor-soaring-edits-to-new-heights/"><u>[New] In 2024, NimbusAiEditor Soaring Edits to New Heights</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-zoom-establishing-a-top-tier-video-conferencing-space/"><u>[Updated] 2024 Approved Mastering Zoom Establishing a Top-Tier Video Conferencing Space</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-azure-speech-to-text-explained-simply-for-2024/"><u>[Updated] Azure Speech to Text Explained Simply for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-discovering-the-edge-of-action-cam-excellence-with-intova-x/"><u>[Updated] Discovering the Edge of Action Cam Excellence with Intova X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-iphone-shots-the-live-photo-method-for-2024/"><u>[Updated] Enhancing iPhone Shots The Live Photo Method for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-amplify-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>[Updated] In 2024, Amplify Video Dynamics A Guide to Perfecting Jump Cutting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-crafting-an-elite-home-computer-for-professional-4k-editing/"><u>[Updated] In 2024, Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-telegram-tactics-for-aspiring-marketers-a-compreeher-guide/"><u>[Updated] In 2024, Telegram Tactics for Aspiring Marketers A Compreeher Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/installing-microsoft-office-365-seamlessly-a-step-by-step-process-for-windows-and-mac-users/"><u>Installing Microsoft Office 365 Seamlessly - A Step-by-Step Process for Windows and Mac Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-video-conversion-in-vlc-from-mp4-onward/"><u>Navigating Video Conversion in VLC From MP4 Onward</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-multiscreen-woes-in-windows/"><u>Overcoming Multiscreen Woes in Windows</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-s17-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/syncing-soundscapes-with-visuals-in-film-teasers/"><u>Syncing Soundscapes with Visuals in Film Teasers</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/voedsel-bij-je-usb-stick-volgelingen-efficient-herstellende-tijden-met-cmd/"><u>Voedsel Bij Je USB-Stick Volgelingen: Efficiënt Herstellende Tijden Met CMD</u></a></li>
 </ul></div>
 

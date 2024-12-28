@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2024-12-17T16:45:43.661Z
-updated: 2024-12-22T17:44:12.312Z
+date: 2024-12-20T21:49:09.395Z
+updated: 2024-12-28T03:24:50.433Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -50,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Get closer
@@ -63,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -91,15 +91,15 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -110,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit your footage
@@ -152,21 +152,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-superior-speech-logging-apps-for-ipads-3/"><u>[New] 2024 Approved Superior Speech Logging Apps for iPads #3</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tips-for-extracting-tweets-as-mp3-audio-files/"><u>[New] 2024 Approved Tips for Extracting Tweets as MP3 Audio Files</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers/"><u>[New] 2024 Approved Transform Your Tactics Exclusive Free Voice Change Tool for Valorant Gamers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-elevate-visual-impact-with-custom-typography-in-after-effects/"><u>[New] Elevate Visual Impact with Custom Typography in After Effects</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-photographic-poise-achieving-dynamic-motion-blur-on-facial-elements-through-picsart/"><u>[New] Photographic Poise Achieving Dynamic Motion Blur on Facial Elements Through Picsart</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-ultimate-strategy-for-professional-srt-production/"><u>[New] Ultimate Strategy for Professional SRT Production</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-choosing-the-right-gimbal-dslr-vs-mirrorless-edition-for-2024/"><u>[Updated] Choosing the Right Gimbal DSLR vs Mirrorless Edition for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-breaking-boundaries-top-10-novel-facebook-memes/"><u>[Updated] In 2024, Breaking Boundaries Top 10 Novel Facebook Memes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-up-your-video-game-expert-endorsed-cost-free-intro-creators/"><u>[Updated] In 2024, Step Up Your Video Game Expert-Endorsed, Cost-Free Intro Creators</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-which-is-the-top-screener-bandicam-or-camtasia/"><u>[Updated] In 2024, Which Is the Top Screener? - Bandicam Or Camtasia</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-resolution-war-gopro-hero-series-against-polaroid-cube-for-2024/"><u>[Updated] Resolution War GoPro Hero Series Against Polaroid Cube for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-agni-2-5g-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Agni 2 5G.</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-advanced-gadgets-and-devices-on-toms-hardware-platform/"><u>Exploring Advanced Gadgets and Devices on Tom's Hardware Platform</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-dim-to-dazzling-a-guide-to-selecting-top-quality-displays-for-2024/"><u>From Dim to Dazzling A Guide to Selecting Top-Quality Displays for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/how-to-watch-live-streaming-football-for-free-on-pc-or-mobile-for-2024/"><u>How to Watch Live Streaming Football for Free on PC or Mobile for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-quick-windows-data-assessment-tutorial/"><u>In 2024, Quick Windows Data Assessment Tutorial</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-power-of-4k-in-the-samsung-galaxy-s8-experience/"><u>[New] In 2024, The Power of 4K in the Samsung Galaxy S8 Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-become-a-vr-pro-ios-devices-guide-to-vr-viewing/"><u>[Updated] 2024 Approved Become a VR Pro IOS Device's Guide to VR Viewing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-cutting-room-floor-experts-share-tips-on-video-editing/"><u>[Updated] 2024 Approved The Cutting Room Floor Experts Share Tips on Video Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-discover-a-broad-array-top-15-cams-not-like-gopro/"><u>[Updated] In 2024, Discover a Broad Array Top 15 Cams Not Like GoPro</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-troubleshooting-solo-earbuds/"><u>[Updated] Troubleshooting Solo Earbuds</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-spark-10c-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Spark 10C.</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/moviemakerpro-insights-full-analysis-for-2024/"><u>MovieMakerPro Insights – Full Analysis for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/reversal-strategies-moving-from-latest-sierra-to-el-capitan-for-2024/"><u>Reversal Strategies Moving From Latest Sierra to El Capitan for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-valheim-lag-issues-optimize-gameplay-on-your-windows-pc/"><u>Solving Valheim Lag Issues: Optimize Gameplay on Your Windows PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726028455298-twitter/"><u>Twitter向け動画の最適化: 効果的なコンプレッション手法</u></a></li>
+<li><a href="https://win-lab.techidaily.com/upcoming-change-alert-will-microsoft-charge-for-windows-11-updates-expected-prices-and-details-unveiled-zdnet-insights/"><u>Upcoming Change Alert: Will Microsoft Charge for Windows 11 Updates? Expected Prices & Details Unveiled | ZDNET Insights</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-do-you-want-to-create-slow-motion-videos-this-article-shows-methods-to-create-slow-mo-videos-without-changing-the-medias-quality-for-2024/"><u>Updated Do You Want to Create Slow-Motion Videos? This Article Shows Methods to Create Slow-Mo Videos without Changing the Medias Quality for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/your-ultimate-guide-to-free-movie-watching-on-youtube-in-july-2024/"><u>Your Ultimate Guide to Free Movie Watching on YouTube in July 2024</u></a></li>
 </ul></div>
 
