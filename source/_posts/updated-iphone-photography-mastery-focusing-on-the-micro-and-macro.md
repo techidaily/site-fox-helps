@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Photography Mastery  Focusing on the Micro & Macro\""
-date: 2024-12-23T23:48:16.268Z
-updated: 2024-12-28T00:38:43.536Z
+date: 2024-12-30T22:10:21.210Z
+updated: 2025-01-06T16:01:23.830Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,6 @@ You May Also Like: [Resizing a Photo without Losing Quality](https://tools.techi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Section 1. What is close-up and macro photography?
 
 Close-up photography and macro photography are all about photographing things in a way that makes them appear larger than they are in real life. It lets us look in detail at the things around us and can be an exciting and dramatic way to shoot images. But is there a difference between close up and macro in photography terms?
@@ -68,6 +64,10 @@ Shooting in the macro range requires decent lighting, so consider when and how y
 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-light.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: Urdu-Mag.com
 
 If you do want to snap some macro images in bright sunlight, try positioning your shadow to create a more indirect lighting of the subject. You can also move your own orientation so that the sun is shining into your shot, rather than behind it.
@@ -79,7 +79,7 @@ With any photo, focus is crucial to an awesome result. But when you're creating 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: PicMonkey
@@ -114,10 +114,6 @@ If you've researched photography in general, you'll already have heard of the �
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: SmashingHub
 
 The rule states that if the image were divided into thirds horizontally and vertically, the most important objects in the image should be placed at the points where the lines intersect. This is easy on iPhone, as you can switch on the gridlines and instantly see where to place the subject in the photos. When shooting macro images, place your focal point at one of the intersections to give your photo the professional touch.
@@ -129,7 +125,7 @@ iPhone macro photography is all about looking at the world in a different way. T
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: Flickr
@@ -158,10 +154,14 @@ Explore, experiment, and practice, and you'll soon find your own style and be th
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -189,19 +189,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-record-films-seamlessly-across-tech-devices/"><u>[New] How to Record Films Seamlessly Across Tech Devices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-key-approaches-to-enhance-vhs-photos-digitally/"><u>[New] In 2024, Key Approaches to Enhance VHS Photos Digitally</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hort-form-spectrum-youtube-meets-tiktok/"><u>[New] Short-Form Spectrum YouTube Meets TikTok</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/pc-dvdwindows-10/"><u>「自家用 PC でタイトル付きDVDの完全バックアップ：Windows 10対応ガイド」</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/best-rated-wedding-timekeepers-a-comprehensive-android-and-ios-app-review-for-2024/"><u>Best-Rated Wedding Timekeepers A Comprehensive Android & iOS App Review for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/celestial-wonders-at-your-fingertips-hd-sky-website-guide/"><u>Celestial Wonders at Your Fingertips - HD Sky Website Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/connect-play-and-share-the-essentials-of-xbox-zoom/"><u>Connect, Play and Share The Essentials of Xbox Zoom</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/elevate-your-images-mastering-text-on-pc-and-mac-photos/"><u>Elevate Your Images Mastering Text on PC & Mac Photos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/essentials-of-drafting-engaging-vlogger-speeches/"><u>Essentials of Drafting Engaging Vlogger Speeches</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/evaluating-color-accuracy-the-srgb-alternative-to-rgb/"><u>Evaluating Color Accuracy The Srgb Alternative to Rgb</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-x100-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo X100 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-implications-of-youtube-video-savings/"><u>Legal Implications of YouTube Video Savings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-best-practices-in-digital-image-creation-for-youtube/"><u>[New] 2024 Approved Best Practices in Digital Image Creation for YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-core-elements-in-storytelling-skills/"><u>[New] 2024 Approved Core Elements in Storytelling Skills</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-cutting-edge-templates-for-memetic-art/"><u>[New] 2024 Approved Cutting-Edge Templates for Memetic Art</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-art-of-accompanying-visual-content-with-music/"><u>[New] 2024 Approved The Art of Accompanying Visual Content with Music</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-chroma-control-made-simple-with-these-11-expert-tips/"><u>[New] Chroma Control Made Simple with These 11 Expert Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xclusive-youtube-snippet-access-high-quality-free-download-in-2024/"><u>[New] Exclusive YouTube Snippet Access - High Quality, Free Download, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-expertly-evaluating-webcam-technology-for-professionals/"><u>[New] In 2024, Expertly Evaluating WebCam Technology for Professionals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-space-saver-strategies-pioneering-the-best-cloud-platforms/"><u>[New] Space-Saver Strategies Pioneering the Best Cloud Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-srt-guide-everything-you-should-know-about-srt/"><u>[Updated] 2024 Approved SRT Guide Everything You Should Know About SRT</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-avoiding-pitfalls-in-angled-and-merged-video-manipulation-android/"><u>[Updated] Avoiding Pitfalls in Angled & Merged Video Manipulation (Android)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-strategies-for-discovering-personal-style-identity-for-2024/"><u>[Updated] Strategies for Discovering Personal Style Identity for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-stream-to-stardom-mastering-live-with-xsplit-or-obs-for-2024/"><u>[Updated] Stream to Stardom Mastering Live with XSplit or OBS for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-list-of-free-cross-platform-uhd-software-for-windows/"><u>In 2024, Ultimate List of Free, Cross-Platform UHD Software for Windows</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/lg-unveils-upcoming-xr-vision-gear-a-closer-look-at-the-next-gen-meta-quest-3-pro-challenger/"><u>LG Unveils Upcoming XR Vision Gear - A Closer Look at the Next-Gen Meta Quest 3 Pro Challenger</u></a></li>
+<li><a href="https://common-error.techidaily.com/restoring-print-screens-effective-fixes-for-common-problems-on-microsofts-latest-operating-systems/"><u>Restoring Print Screens: Effective Fixes for Common Problems on Microsoft's Latest Operating Systems</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/unlocking-the-power-of-gpt-4-making-cutting-edge-ai-accessible-to-all/"><u>Unlocking the Power of GPT-4: Making Cutting-Edge AI Accessible to All</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/windows-10-kanal-acimak-icin-sesle-kaydetme-yolu-4-tane-algilanabilir-temel-baslar/"><u>Windows 10, Kanal Açımak Için Sesle Kaydetme Yolu 4 Tane Algılanabilir: Temel Başlar</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/windows-inspection-rapid-execution-procedures-for-2024/"><u>Windows Inspection Rapid Execution Procedures for 2024</u></a></li>
 </ul></div>
 

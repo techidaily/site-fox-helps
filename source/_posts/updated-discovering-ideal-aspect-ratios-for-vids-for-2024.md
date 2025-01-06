@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Discovering Ideal Aspect Ratios for Vids for 2024"
-date: 2024-12-23T01:29:04.353Z
-updated: 2024-12-28T02:44:50.834Z
+date: 2025-01-03T21:26:54.155Z
+updated: 2025-01-06T22:36:47.456Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ This aspect ratio is recognized as the worldwide reference format for film, mobi
 
 This resolution is originally used in older television screens, which transformed into mobile use as this aspect ratio works really well for Instagram and Facebook videos, referring to the 9:16 phone resolution making a square video more pleasant to watch and to be featured in in-feed videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9:16 Vertical
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
@@ -62,7 +58,7 @@ The 21:9 resolution is designed for filming ultra-wide screen movies that gives 
 Depending on your project, broadcast location and filming options, here you can find an overview of which platforms are using which resolutions and how you can use that to improve your filming and viewer experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Facebook
@@ -78,7 +74,7 @@ Facebook is one of the most used website across the world on both computer and t
 9:16 for Facebook stories
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### YouTube
@@ -94,7 +90,7 @@ To this day, it's safe to say that YouTube is the leading platform in the video 
 21:9 for cinematic videos/shortfilms
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Instagram
@@ -125,17 +121,21 @@ Before Musical.ly users were migrated to a new platform called TikTok in 2018, i
 
 1:1; 16:9 or 9:16 for TikTok advertisements
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. How to adjust the aspect ratio of a video?
 
 A very important point we'd like to mention is that we don't recommend changing the aspect ratio after filming, because it could harm the video quality and we think it's best to choose the aspect ratio on your phone or camera before filming, besides that we have some great tips for optimizing your video for the watching experience below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Black bars
 
 When editing your video, adding black bars is not changing the aspect ratio as you are just adding black bars to the screen. What we do recommend is cropping the video until you get the desired result. Adding black bars won't automatically make the platform adjust the video and it will affect the viewer experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Cropping
 
@@ -175,18 +175,20 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-video-size-for-standout-instagram-content/"><u>[New] In 2024, Mastering Video Size for Standout Instagram Content</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-leading-face-transformation-apps-for-iphones-and-androids/"><u>[New] Leading Face Transformation Apps for iPhones & Androids</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-melodic-sharing-safeguarded-by-insta-laws/"><u>[New] Melodic Sharing Safeguarded by Insta Laws</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-boosting-video-dimensions-on-youtube-platform/"><u>[Updated] 2024 Approved Boosting Video Dimensions on YouTube Platform</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-live-cricket-livestreams/"><u>[Updated] Mastering the Art of Live Cricket Livestreams</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-compose-chuckling-content-for-giphy-audience/"><u>2024 Approved Compose Chuckling Content for Giphy Audience</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/boosting-your-websites-analytics-the-role-of-cookiebot-solutions/"><u>Boosting Your Website's Analytics: The Role of Cookiebot Solutions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-into-the-digital-frontier-vr-today-and-tomorrow/"><u>In 2024, Into the Digital Frontier VR Today & Tomorrow</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-the-essential-list-top-8-android-daws-revolutionizing-music-for-2024/"><u>New The Essential List Top 8 Android DAWs Revolutionizing Music for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/pioneering-mobile-tech-androids-role-in-vr360-videos-update-2023-for-2024/"><u>Pioneering Mobile Tech Android's Role in VR/360 Videos (Update 2023) for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-editors-arsenal-advanced-techniques-in-chromatic-tuning/"><u>The Editor's Arsenal Advanced Techniques in Chromatic Tuning</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-constructing-your-own-diy-projector-screen/"><u>Ultimate Guide: Constructing Your Own DIY Projector Screen</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/zoom-makeover-effortless-background-softening-for-2024/"><u>Zoom Makeover Effortless Background Softening for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-auditory-enhancement-strategies-for-video-creators/"><u>[New] 2024 Approved Auditory Enhancement Strategies for Video Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-sdr-vs-hdr-embracing-hdr-for-enhanced-video-production/"><u>[New] 2024 Approved SDR vs HDR Embracing HDR for Enhanced Video Production</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing/"><u>[New] Crafted Clicks Guide to Software & Sites for Superior Photo Framing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-delve-deep-into-immersive-videography-tips-for-editing-full-spherical-content-in-premierepro/"><u>[New] In 2024, Delve Deep Into Immersive Videography Tips for Editing Full Spherical Content in PremierePro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-tier-extended-reality-experience-makers/"><u>[New] In 2024, Top-Tier Extended Reality Experience Makers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-editing-techniques-for-final-cut-pro-professionals/"><u>[New] In 2024, Ultimate Editing Techniques for Final Cut Pro Professionals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unparalleled-screenplay-craftsmanship-across-varied-fields/"><u>[Updated] 2024 Approved Unparalleled Screenplay Craftsmanship Across Varied Fields</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-amplify-your-profile-pull-clever-hacks-that-work-on-tinder-for-2024/"><u>[Updated] Amplify Your Profile Pull Clever Hacks That Work on Tinder for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfect-stitching-of-gopro-videos-into-complete-360-imagery/"><u>[Updated] Perfect Stitching of GoPro Videos Into Complete 360 Imagery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-halo-an-unusual-almost-invasive-fitness-tracker/"><u>Amazon Halo: An Unusual, Almost Invasive Fitness Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-rotibox-bluetooth-earmuffs-evaluation-exceptional-warmth-and-quality-sound/"><u>Comprehensive Rotibox Bluetooth Earmuffs Evaluation: Exceptional Warmth & Quality Sound</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exploring-funimates-full-potential/"><u>Exploring Funimate's Full Potential</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-persistent-screen-flashes-on-your-device-try-these-proven-tactics/"><u>How to Resolve Persistent Screen Flashes on Your Device - Try These Proven Tactics!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-making-friends-across-networks-instagram-plus-facebook/"><u>In 2024, Making Friends Across Networks Instagram + Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-xbox-xs-digital-deals/"><u>Unlocking Xbox X|S Digital Deals</u></a></li>
 </ul></div>
 
