@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Guide to Fisheye Camera Capabilities for 2024"
-date: 2024-08-16T07:34:45.542Z
-updated: 2024-08-17T07:34:45.542Z
+date: 2025-01-08T03:49:06.558Z
+updated: 2025-01-12T22:44:06.932Z
 tags: 
   - screen-recording
   - ai video
@@ -35,25 +35,25 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -67,9 +67,9 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -77,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -93,9 +97,6 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -120,4 +121,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-footage-to-fortune-unveiling-the-secrets-of-sj-cam-s6/"><u>[New] From Footage to Fortune Unveiling the Secrets of SJ-CAM S6</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-novice-to-master-photographer-with-lunapic/"><u>[New] From Novice to Master Photographer with LunaPic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-switching-views-iphone-video-retrospect/"><u>[New] In 2024, Switching Views IPhone Video Retrospect</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transition-to-hdr-a-step-forward-in-high-quality-video-for-2024/"><u>[New] Transition to HDR A Step Forward in High-Quality Video for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-essential-websites-how-to-get-the-right-youtube-ringtones/"><u>[Updated] 2024 Approved Essential Websites How to Get the Right YouTube Ringtones?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-compatibility-score-which-phones-work-with-gear-vr-in-2024/"><u>[Updated] Compatibility Score Which Phones Work with Gear VR, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-screen-surfing-simplified-navigate-with-netflixs-pip/"><u>[Updated] In 2024, Screen Surfing Simplified Navigate with Netflix's PIP</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-toolwiz-photos-app-complete-review-2023/"><u>2024 Approved Toolwiz Photos App - Complete Review 2023</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/arranging-expert-help-securing-an-apple-genius-bar-appointment/"><u>Arranging Expert Help: Securing an Apple Genius Bar Appointment</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/bulk-download-of-various-format-videos-from-the-history-channel-mp4-mov-avi-flv-mkv-wmv/"><u>Bulk Download of Various Format Videos From the History Channel: MP4, MOV, AVI, FLV, MKV, WMV</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-strategies-to-overcome-the-windows-10-update-failure-error-0x800705b4-explained-and-solved/"><u>Effective Strategies to Overcome the Windows 10 Update Failure: Error 0X800705b4 Explained and Solved</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-windows-10-search-issues-top-solutions/"><u>Fixing Windows 10 Search Issues: Top Solutions</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-zebra-printer-software-updates-for-windows-users/"><u>Get the Newest Zebra Printer Software Updates for Windows Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Vivo S17 | Dr.fone</u></a></li>
+</ul></div>
 

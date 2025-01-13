@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Photography Mastery  Focusing on the Micro & Macro\""
-date: 2024-12-30T22:10:21.210Z
-updated: 2025-01-06T16:01:23.830Z
+date: 2025-01-11T11:13:29.741Z
+updated: 2025-01-12T19:11:40.667Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,10 @@ There is, so if you're looking to get to grips with this type of photography, yo
 
 With your iPhone macro photography and close-up shooting are both possible and can bring great results if you know what you're doing. However, for the really professional touch, an investment in a macro lens or specialist app will certainly kick your photography skills into high gear.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Section 2. iPhone Macro Photography Tips
 
 Taking great photos in macro mode isn't always as easy as it looks. Novice users can become frustrated when images come out dark, blurry or out of focus. Here are some top tips to get your iPhone macro photography just right, and to start building a collection of gorgeous close up images.
@@ -65,7 +69,7 @@ Shooting in the macro range requires decent lighting, so consider when and how y
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-light.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: Urdu-Mag.com
@@ -79,7 +83,7 @@ With any photo, focus is crucial to an awesome result. But when you're creating 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: PicMonkey
@@ -104,6 +108,10 @@ When you're shooting macro images with your iPhone, the intention is to make the
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-distance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: GCFLearnFree
 
 Make the subject center stage by positioning your composition to give the least cluttered background possible. Use the sky if you can, or experiment with textured backgrounds such as a wall or fence. Think about how far your subject is from the background, as the further away the background is, the more blurry it will become and the greater the contrast of focus on your subject will appear.
@@ -114,6 +122,10 @@ If you've researched photography in general, you'll already have heard of the �
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: SmashingHub
 
 The rule states that if the image were divided into thirds horizontally and vertically, the most important objects in the image should be placed at the points where the lines intersect. This is easy on iPhone, as you can switch on the gridlines and instantly see where to place the subject in the photos. When shooting macro images, place your focal point at one of the intersections to give your photo the professional touch.
@@ -123,10 +135,6 @@ The rule states that if the image were divided into thirds horizontally and vert
 iPhone macro photography is all about looking at the world in a different way. To really accentuate this quality in your work, why not try shooting from a different perspective? Get very low down and shoot your subject from below, with the sky as a background, or snap from directly above to add drama to your images.
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image source: Flickr
 
@@ -154,15 +162,7 @@ Explore, experiment, and practice, and you'll soon find your own style and be th
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -189,24 +189,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-best-practices-in-digital-image-creation-for-youtube/"><u>[New] 2024 Approved Best Practices in Digital Image Creation for YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-core-elements-in-storytelling-skills/"><u>[New] 2024 Approved Core Elements in Storytelling Skills</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-cutting-edge-templates-for-memetic-art/"><u>[New] 2024 Approved Cutting-Edge Templates for Memetic Art</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-art-of-accompanying-visual-content-with-music/"><u>[New] 2024 Approved The Art of Accompanying Visual Content with Music</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-chroma-control-made-simple-with-these-11-expert-tips/"><u>[New] Chroma Control Made Simple with These 11 Expert Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/xclusive-youtube-snippet-access-high-quality-free-download-in-2024/"><u>[New] Exclusive YouTube Snippet Access - High Quality, Free Download, In 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-expertly-evaluating-webcam-technology-for-professionals/"><u>[New] In 2024, Expertly Evaluating WebCam Technology for Professionals</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-space-saver-strategies-pioneering-the-best-cloud-platforms/"><u>[New] Space-Saver Strategies Pioneering the Best Cloud Platforms</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-srt-guide-everything-you-should-know-about-srt/"><u>[Updated] 2024 Approved SRT Guide Everything You Should Know About SRT</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-avoiding-pitfalls-in-angled-and-merged-video-manipulation-android/"><u>[Updated] Avoiding Pitfalls in Angled & Merged Video Manipulation (Android)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-strategies-for-discovering-personal-style-identity-for-2024/"><u>[Updated] Strategies for Discovering Personal Style Identity for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-stream-to-stardom-mastering-live-with-xsplit-or-obs-for-2024/"><u>[Updated] Stream to Stardom Mastering Live with XSplit or OBS for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Xiaomi Civi 3? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-list-of-free-cross-platform-uhd-software-for-windows/"><u>In 2024, Ultimate List of Free, Cross-Platform UHD Software for Windows</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/lg-unveils-upcoming-xr-vision-gear-a-closer-look-at-the-next-gen-meta-quest-3-pro-challenger/"><u>LG Unveils Upcoming XR Vision Gear - A Closer Look at the Next-Gen Meta Quest 3 Pro Challenger</u></a></li>
-<li><a href="https://common-error.techidaily.com/restoring-print-screens-effective-fixes-for-common-problems-on-microsofts-latest-operating-systems/"><u>Restoring Print Screens: Effective Fixes for Common Problems on Microsoft's Latest Operating Systems</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/unlocking-the-power-of-gpt-4-making-cutting-edge-ai-accessible-to-all/"><u>Unlocking the Power of GPT-4: Making Cutting-Edge AI Accessible to All</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/windows-10-kanal-acimak-icin-sesle-kaydetme-yolu-4-tane-algilanabilir-temel-baslar/"><u>Windows 10, Kanal Açımak Için Sesle Kaydetme Yolu 4 Tane Algılanabilir: Temel Başlar</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/windows-inspection-rapid-execution-procedures-for-2024/"><u>Windows Inspection Rapid Execution Procedures for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-epic-assessment-and-alternative-measures-for-2024/"><u>[New] Epic Assessment & Alternative Measures for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-retrace-your-twitch-stream-steps-for-2024/"><u>[New] Retrace Your Twitch Stream Steps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-the-secrets-of-av1-codec-mastery-for-2024/"><u>[New] Unveiling the Secrets of AV1 Codec Mastery for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-yis-actioncam-the-innovation-leader-in-high-res-footage-for-2024/"><u>[New] Yi's ActionCam The Innovation Leader in High-Res Footage for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-10-must-have-tech-gadgets-for-seamless-video-meetings/"><u>[Updated] 10 Must-Have Tech Gadgets for Seamless Video Meetings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-advanced-equipment-guide-top-5-innovative-slow-motion-devices/"><u>[Updated] Advanced Equipment Guide Top 5 Innovative Slow Motion Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-essence-of-scripting-for-film-for-2024/"><u>[Updated] The Essence of Scripting for Film for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-top-photo-protection-apps-reviewed-for-2024/"><u>[Updated] The Top Photo Protection Apps Reviewed for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-breaking-down-sync-a-thorough-review-of-lgs-uhd68-display/"><u>2024 Approved Breaking Down Sync A Thorough Review of LG's UHD68 Display</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/guide-to-free-music-for-mindfulness-and-serenity/"><u>Guide to Free Music for Mindfulness & Serenity</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-y78plus-t1-edition-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/stop-motion-animation-made-easy-top-software-for-mac-and-pc/"><u>Stop Motion Animation Made Easy Top Software for Mac and PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oppo-a59-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Oppo A59 5G? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

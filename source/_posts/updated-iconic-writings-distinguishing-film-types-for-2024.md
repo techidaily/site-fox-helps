@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Iconic Writings Distinguishing Film Types for 2024"
-date: 2024-12-31T18:52:48.587Z
-updated: 2025-01-06T16:59:03.090Z
+date: 2025-01-11T09:19:04.058Z
+updated: 2025-01-13T05:46:17.783Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ When you look at the top-grossing movies at the box office, it's no surprise tha
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
@@ -148,10 +152,6 @@ A short video (usually animated) that explains ideas, products, or services in a
 
 This template begins with a scene where a character is struggling with the same problem your audience is facing. Once you've established a connection, you present the solution, show how it works and the results it delivers, and wrap it up with a call to action.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best short drama scripts
 
 _**1\. A GIFT – TEN MINUTE PLAY FOR TWO ACTORS**_
@@ -204,6 +204,10 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 ![2 guns](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Writers:** Blake Masters (screenplay by) Steven Grant
 
 This screenplay explores the relationship between two criminals – Denzel Washington and Mark Wahlberg – as they clash with U.S. border patrol in this fast-paced adventure.
@@ -219,6 +223,10 @@ _**2\. Casino Royale**_
 Secret Agent James Bond sets out on a mission as 007 in a screenplay that can show writers how to keep audiences guessing.
 
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Best thriller scripts
 
@@ -239,6 +247,10 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 **_2\. UNBREAKABLE_**
 
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** M. Night Shyamalan
 
@@ -266,17 +278,9 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Make your own short movie now
 
@@ -310,10 +314,6 @@ When you look at the top-grossing movies at the box office, it's no surprise tha
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
@@ -337,6 +337,10 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 **_2\. Halloween_**
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** John Carpenter and Debra Hill
 
@@ -363,6 +367,10 @@ Download the script here: <https://www.scriptslug.com/script/21-jump-street-2012
 **_2\. The Edge of Seventeen_**
 
 ![the edge of seventeen](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** Kelly Fremon Craig
 
@@ -394,10 +402,6 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
@@ -424,10 +428,6 @@ A short video (usually animated) that explains ideas, products, or services in a
 
 This template begins with a scene where a character is struggling with the same problem your audience is facing. Once you've established a connection, you present the solution, show how it works and the results it delivers, and wrap it up with a call to action.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best short drama scripts
 
 _**1\. A GIFT – TEN MINUTE PLAY FOR TWO ACTORS**_
@@ -445,6 +445,10 @@ Ages of the actors: _Approximately 30-40 years of age_
 Suitable for: _All ages_
 
 ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
@@ -474,19 +478,11 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best action scripts
 
 **_1\. 2 Guns_**
 
 ![2 guns](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Writers:** Blake Masters (screenplay by) Steven Grant
 
@@ -503,10 +499,6 @@ _**2\. Casino Royale**_
 Secret Agent James Bond sets out on a mission as 007 in a screenplay that can show writers how to keep audiences guessing.
 
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Best thriller scripts
 
@@ -528,6 +520,10 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Writer:** M. Night Shyamalan
 
 Night Shyamalan (not necessarily a name you'd expect on a list of 'thriller screenplays you should read') has been praised as much for THE SIXTH SENSE as he is criticized for everything that isn't THE SIXTH SENSE, but UNBREAKABLE is a film that ironically, it breaks the mold.
@@ -535,6 +531,10 @@ Night Shyamalan (not necessarily a name you'd expect on a list of 'thriller scre
 The film stands out in the now crowded genre by avoiding any cataclysmic showdown and instead focusing on a man unsure of who and what he is. Although David exhibits some potentially "super" powers, the story is vague enough that whether he's truly superhuman won't be entirely clear until later, and it's because of this that he's in a constant crisis of faith.
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Best animation scripts
 
@@ -563,7 +563,7 @@ Like any child of the 90s, I admit to having a soft spot for The Lion King. The 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Make a Video with Wondershare Filmora Easy Movie Maker
@@ -612,16 +612,22 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-all-about-metaverse-marketing-example-strategies-and-more-for-2024/"><u>[New] All About Metaverse Marketing Example, Strategies, and More for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-cutting-edge-innovation-best-8-cameras-for-live-broadcasting-for-2024/"><u>[New] Cutting-Edge Innovation Best 8 Cameras for Live Broadcasting for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-navigating-the-highest-rated-pixel-soundtracks-online/"><u>[New] Navigating the Highest-Rated Pixel Soundtracks Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-no-cost-windowsmac-solutions-for-movie-lovers/"><u>[Updated] 2024 Approved No-Cost Windows/Mac Solutions for Movie Lovers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-the-potential-of-your-phone-and-dslr-for-igtv-videos/"><u>[Updated] Unlocking the Potential of Your Phone & DSLR for IGTV Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-five-star-duo-of-picture-taking-and-musical-integration/"><u>2024 Approved Five-Star Duo of Picture Taking & Musical Integration</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-update-mpow-bluetooth-driver-supports-windows-11-8-and-7-systems/"><u>Download & Update MPOW Bluetooth Driver - Supports Windows 11, 8, & 7 Systems</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-embracing-resilience-against-online-detractors/"><u>In 2024, Embracing Resilience Against Online Detractors</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-visual-engagement-creating-pip-videos-on-macos-systems/"><u>In 2024, Enhance Visual Engagement Creating PIP Videos on macOS Systems</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-infinix-note-30i-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Infinix Note 30i</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/no-roku-no-problem-watch-the-roku-channel-through-various-non-roku-methods/"><u>No Roku? No Problem! Watch the Roku Channel Through Various Non-Roku Methods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crafting-captivating-podcasts-a-step-by-step-writing-guide-for-2024/"><u>[New] Crafting Captivating Podcasts A Step-by-Step Writing Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-accelerating-learning-in-lut-design/"><u>[New] In 2024, Accelerating Learning in LUT Design</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevating-creative-flow-apex-plugins-for-ae/"><u>[New] In 2024, Elevating Creative Flow Apex Plugins for AE</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-laugh-out-loud-meme-making-techniques/"><u>[Updated] 2024 Approved Laugh Out Loud Meme-Making Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-practices-for-leveraging-b-roll-content-for-2024/"><u>[Updated] Best Practices for Leveraging B-Roll Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-charting-your-course-from-creator-to-major-label/"><u>[Updated] In 2024, Charting Your Course From Creator to Major Label</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ghostly-movie-editing-hacks/"><u>[Updated] In 2024, Ghostly Movie Editing Hacks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ultimate-guide-to-online-portals-for-text-artistry/"><u>[Updated] In 2024, Ultimate Guide to Online Portals for Text Artistry</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveil-your-inner-artist-best-free-sketching-software-on-mac/"><u>[Updated] In 2024, Unveil Your Inner Artist Best Free Sketching Software on Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-android-device-screen-capture-made-simple-and-gratis/"><u>2024 Approved Android Device Screen Capture Made Simple and Gratis</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/dealing-with-a-non-booting-hard-disk-essential-tips-by-yl-software-professionals/"><u>Dealing with a Non-Booting Hard Disk: Essential Tips by YL Software Professionals</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-enhancement-for-gtx-750-ti-drivers/"><u>Direct Enhancement for GTX 750 Ti Drivers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-iphone-6-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About iPhone 6 Activation Lock</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-livestran-interactions-with-these-ten-backtrack-techniques-for-2024/"><u>Mastering Livestran Interactions with These Ten Backtrack Techniques for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-how-to-add-audio-fade-out-effect/"><u>New 2024 Approved How to Add Audio Fade Out Effect</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-tips-unlocking-a-non-responsive-windows-console/"><u>Quick Tips: Unlocking a Non-Responsive Windows Console</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/troubleshooting-steps-how-to-fix-a-non-responsive-printer-solutions-by-yl-computing/"><u>Troubleshooting Steps: How to Fix a Non-Responsive Printer - Solutions by YL Computing</u></a></li>
 </ul></div>
 

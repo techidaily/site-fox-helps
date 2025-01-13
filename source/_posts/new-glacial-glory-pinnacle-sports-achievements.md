@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Glacial Glory  Pinnacle Sports Achievements\""
-date: 2025-01-03T19:39:56.216Z
-updated: 2025-01-06T22:05:36.150Z
+date: 2025-01-08T18:14:12.330Z
+updated: 2025-01-13T10:27:38.378Z
 tags: 
   - screen-recording
   - ai video
@@ -28,20 +28,20 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
 
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
@@ -53,10 +53,6 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
@@ -64,7 +60,7 @@ Injuries are part of sports events but some injuries are gruesome and are result
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
@@ -77,11 +73,19 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Van der Poel Breaks the World Record
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
@@ -99,11 +103,11 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
-With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
@@ -111,21 +115,17 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
@@ -156,19 +156,21 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-creative-twists-transformative-text-in-imagery/"><u>[New] 2024 Approved Unveiling Creative Twists Transformative Text in Imagery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-mastering-tiktok-audio-crafting-it-as-your-perfect-ringtone-for-2024/"><u>[New] Mastering TikTok Audio Crafting It as Your Perfect Ringtone for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-picks-for-the-modern-buyer-advanced-360cams-for-2024/"><u>[New] Top Picks for the Modern Buyer Advanced 360Cams for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-canva-skills-purging-images-of-their-surroundings/"><u>[Updated] Canva Skills Purging Images of Their Surroundings</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-recording-device-feedback-guide-for-2024/"><u>[Updated] Recording Device Feedback Guide for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-guide-to-the-ai-breakthroughs-showcased-by-apple-at-worldwide-developers-conference-wwdc-24/"><u>Comprehensive Guide to the AI Breakthroughs Showcased by Apple at Worldwide Developers Conference 'WWDC 24'</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-delete-icloud-account-with-or-without-password-from-your-apple-iphone-12-prowindowsmac-by-drfone-ios/"><u>How to Delete iCloud Account with or without Password from your Apple iPhone 12 Pro/Windows/Mac</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-navigating-the-social-sphere-instaplustiktok/"><u>In 2024, Navigating the Social Sphere Insta+TikTok</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/inside-look-at-premium-tech-tools-curated-by-the-a-team-at-toms-corner/"><u>Inside Look at Premium Tech Tools – Curated by the A-Team at Tom's Corner</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unlock-final-cut-pro-at-a-steal-explore-student-discounts/"><u>New In 2024, Unlock Final Cut Pro at a Steal Explore Student Discounts</u></a></li>
-<li><a href="https://review-topics.techidaily.com/oppo-data-recovery-recover-lost-data-from-oppo-a18-by-fonelab-android-recover-data/"><u>Oppo Data Recovery – recover lost data from Oppo A18</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-issues-with-component-configuration-in-windows-operating-systems/"><u>Overcoming Issues with Component Configuration in Windows Operating Systems</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/quick-recovery-methods-for-erased-reddit-topics-for-2024/"><u>Quick Recovery Methods for Erased Reddit Topics for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-11-must-have-windows-and-mac-programs-featured-on-zdnet/"><u>Top 11 Must-Have Windows & Mac Programs Featured on ZDNet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-revolutionary-6-applications-to-enhance-photo-editing-experience/"><u>[New] 2024 Approved Revolutionary 6 Applications to Enhance Photo Editing Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-skyrocketing-your-iphone-film-quality-essential-filmmaking-insights/"><u>[New] In 2024, Skyrocketing Your iPhone Film Quality Essential Filmmaking Insights</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-sundae-surveillance-insightful-review-of-frozen-film-software/"><u>[New] In 2024, Sundae Surveillance Insightful Review of Frozen Film Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-the-basics-of-vlogging-gear-and-software/"><u>[New] In 2024, Unveiling the Basics of Vlogging Gear & Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-voice-modification-made-simple-a-playbook-for-pubg-enthusiasts/"><u>[Updated] In 2024, Voice Modification Made Simple A Playbook for PUBG Enthusiasts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-definitive-guide-to-valheim-agriculture-for-2024/"><u>[Updated] The Definitive Guide to Valheim Agriculture for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-effective-sales-methods-for-2024/"><u>[Updated] Unveiling Effective Sales Methods for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-youtubers-picks-on-anti-shake-gear-for-professional-videos-for-2024/"><u>[Updated] YouTubers’ Picks on Anti-Shake Gear for Professional Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-conquering-peaks-comparing-gopro-hero5-black-and-session/"><u>In 2024, Conquering Peaks Comparing GoPro Hero5 Black and Session</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-motorola-moto-g34-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Motorola Moto G34 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-vfx-artisan-suite/"><u>In 2024, VFX Artisan Suite</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/pioneering-methods-to-log-lol-gaming-sessions-for-2024/"><u>Pioneering Methods to Log LOL Gaming Sessions for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/539135-9780307757753-soul-psychology/"><u>Soul Psychology | Free Book</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-look-at-samsung-galaxy-s8-in-4k-for-2024/"><u>The Ultimate Look at Samsung Galaxy S8 in 4K for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-resolving-loading-issues-in-madden-nfl-22/"><u>Troubleshooting Tips: Resolving 'Loading' Issues in Madden NFL 22</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/uncover-the-stealthy-culprits-methods-to-detect-and-remove-secretive-startup-applications-that-sluggish-your-windows-system/"><u>Uncover the Stealthy Culprits: Methods to Detect and Remove Secretive Startup Applications That Sluggish Your Windows System</u></a></li>
 </ul></div>
 

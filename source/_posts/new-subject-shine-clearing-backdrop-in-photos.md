@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Subject Shine  Clearing Backdrop in Photos\""
-date: 2025-01-03T16:54:09.119Z
-updated: 2025-01-06T20:31:06.121Z
+date: 2025-01-08T01:49:12.062Z
+updated: 2025-01-13T08:15:50.434Z
 tags: 
   - screen-recording
   - ai video
@@ -27,12 +27,16 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
@@ -49,12 +53,16 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -68,10 +76,6 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -100,10 +104,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
@@ -131,7 +131,7 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -202,18 +202,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-bringing-anime-characters-to-life-jujutsu-kaisen-for-tiktok/"><u>[New] 2024 Approved Bringing Anime Characters to Life Jujutsu Kaisen for TikTok</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-comprehensive-degree-of-view-analysis/"><u>[New] 2024 Approved Comprehensive Degree of View Analysis</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-science-of-perfectly-timed-episodes/"><u>[New] In 2024, The Science of Perfectly Timed Episodes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-master-your-creative-vision-with-digital-cropting-skills-for-2024/"><u>[New] Master Your Creative Vision with Digital Cropting Skills for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-syncing-your-soundtrack-import-music-into-inshot/"><u>[Updated] 2024 Approved Syncing Your Soundtrack Import Music Into InShot</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-a-comprehensive-manual-on-motion-detection-systems/"><u>[Updated] A Comprehensive Manual on Motion Detection Systems</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-superior-audio-modification-software-with-enchanting-features/"><u>In 2024, Superior Audio Modification Software with Enchanting Features</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-comparison-how-vive-cosmos-stacks-up-against-its-formidable-rivalry-in-vr-tech/"><u>The Ultimate Comparison: How Vive Cosmos Stacks Up Against Its Formidable Rivalry in VR Tech</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-to-personalizing-whatsapp-ringtone-on-all-devices-for-2024/"><u>The Ultimate Guide to Personalizing WhatsApp Ringtone on All Devices for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/topo-10-aplicativos-recomendados-para-criar-imagens-com-watcha-no-tiktok/"><u>Topo 10 Aplicativos Recomendados Para Criar Imagens Com Wátcha No TikTok</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-window-cleaner-stellar-file-eraser-pro-v5-securely-wipe-out-files-and-folders/"><u>Ultimate Window Cleaner: Stellar File Eraser Pro V5 - Securely Wipe Out Files & Folders</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-honor-x7b-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-craft-impressive-clips-with-these-intros/"><u>[New] 2024 Approved Craft Impressive Clips With These Intros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-pathways-to-profitability-in-personal-vlogging/"><u>[New] 2024 Approved Pathways to Profitability in Personal Vlogging</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essential-srt-knowledge-for-all-levels-for-2024/"><u>[New] Essential SRT Knowledge for All Levels for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-how-to-edit-blur-or-remove-photo-background/"><u>[New] In 2024, How to Edit, Blur or Remove Photo Background?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-minute-movie-narrative-blueprint/"><u>[New] In 2024, Minute Movie Narrative Blueprint</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-perfect-ringtone-repository-excellent-sources/"><u>[New] In 2024, Perfect Ringtone Repository Excellent Sources</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unleash-the-power-of-digital-beats-with-our-free-tools-for-2024/"><u>[New] Unleash the Power of Digital Beats with Our Free Tools for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-peacock-party-patter/"><u>[Updated] 2024 Approved Peacock Party Patter</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-explore-the-very-best-in-ios-video-playback-tools-for-2024/"><u>[Updated] Explore the Very Best in iOS Video Playback Tools for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-avoiding-darkness-with-lightrooms-dynamic-range-technique/"><u>[Updated] In 2024, Avoiding Darkness with Lightroom’s Dynamic Range Technique</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-beatbox-recorder-a-compreeved-guide/"><u>[Updated] In 2024, BeatBox Recorder A Compreeved Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-free-picture-perfection-the-finest-10-sites-reviewed/"><u>[Updated] In 2024, Free Picture Perfection The Finest 10 Sites Reviewed</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/direct-link-get-the-windows-software-for-your-brother-hl-l2380dw-laser-multifunction-printer/"><u>Direct Link: Get the Windows Software for Your Brother HL-L2380DW Laser Multifunction Printer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expert-tips-for-blending-multiple-hdr-photographs-in-lightroom-for-2024/"><u>Expert Tips for Blending Multiple HDR Photographs in Lightroom for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/explore-best-locations-for-vr-viewing/"><u>Explore Best Locations for VR Viewing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/identifying-9-signs-for-a-full-pc-reboot/"><u>Identifying 9 Signs for a Full PC Reboot</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unraveling-the-warped-world-of-gopro-fisheye-effects/"><u>In 2024, Unraveling The Warped World of GoPro Fisheye Effects</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unearthing-excellent-seeds-the-valheim-way/"><u>Unearthing Excellent Seeds The Valheim Way</u></a></li>
 </ul></div>
 

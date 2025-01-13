@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Homemade Guide to Google VR Headset Construction"
-date: 2024-08-16T07:36:01.351Z
-updated: 2024-08-17T07:36:01.351Z
+date: 2025-01-06T05:56:05.130Z
+updated: 2025-01-13T09:06:59.561Z
 tags: 
   - screen-recording
   - ai video
@@ -28,13 +28,18 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 
  Google cardboard offers an immersive virtual reality experience in a fun, affordable and simple way. You don’t need to spend quite huge amount of money only to have your own Google cardboard. Just recently, Google introduced DIY virtual reality with some basic tools and at the comfort of your own home. So, how do you get started?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Steps for DIY VR
 
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1.The accessories you will need
 
 * PDF file of [Google cardboard](https://vr.google.com/intl/en%5Fus/cardboard/get-cardboard/  )
@@ -50,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2.How to assemble accessories
 
 * Download the compressed [template folder from Google](https://vr.google.com/intl/en%5Fus/cardboard/get-cardboard/  ).
@@ -65,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Pros and cons of DYI Google cardboard
 
  Using Google cardboard is an excellent choice, since it is…
@@ -85,8 +92,9 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
  But overall, DIY VR is can offer you one-of-a-kind virtual reality experience you will surely love in a cost-effective way. Have a fun DIY VR headset and see you in the virtual world!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -112,4 +120,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-picks-of-the-year-premium-google-cardboard-vr-gaming/"><u>[New] 2024 Approved Picks of the Year Premium Google Cardboard VR Gaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-20plus-speedy-controls-mastering-your-pcs-fps/"><u>[New] 2024 Approved Top 20+ Speedy Controls Mastering Your PC's FPS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-advanced-tips-for-crafting-vhs-images-on-computers/"><u>[New] Advanced Tips for Crafting VHS Images on Computers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-software-bundles-for-animation-modelers-for-2024/"><u>[New] Best Software Bundles for Animation Modelers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-innovative-high-definition-software-top-8-free-listings-for-2024/"><u>[New] Innovative High Definition Software Top 8 FREE Listings for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-is-revenue-derived-from-evaluating-products-in-2024/"><u>[New] Is Revenue Derived From Evaluating Products, In 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-essential-guide-to-cost-free-cam-screen-recording-apps/"><u>[New] The Essential Guide to Cost-Free Cam Screen Recording Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-simplified-techniques-for-correcting-profile-ages/"><u>[Updated] 2024 Approved Simplified Techniques for Correcting Profile Ages</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-next-step-in-virtual-reality-jaunt-vr-review/"><u>[Updated] 2024 Approved The Next Step in Virtual Reality Jaunt VR Review</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-charting-a-course-for-youtube-success-viewer-numbers-and-income-for-2024/"><u>[Updated] Charting a Course for YouTube Success Viewer Numbers and Income for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-blending-primary-and-b-roll-for-smooth-transitions/"><u>[Updated] In 2024, Blending Primary and B-Roll for Smooth Transitions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-smartphone-security-iphone-xs-face-id-versus-galaxy-recognition/"><u>[Updated] In 2024, Smartphone Security IPhone X’s Face ID Versus Galaxy Recognition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-sound-innovation-at-hand-dive-into-free-easy-voice-overhaul-tools/"><u>[Updated] Sound Innovation at Hand Dive Into Free, Easy Voice Overhaul Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-indoors-adopting-the-vibe-of-a-brighter-world/"><u>2024 Approved Indoors Adopting the Vibe of a Brighter World</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-securely-distributing-exclusive-youtube-videos-through-gmail/"><u>2024 Approved Securely Distributing Exclusive YouTube Videos Through Gmail</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-nubia-z50s-pro-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Nubia Z50S Pro Phone When You Forget the Password</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-comparison-game-youtube-against-dailymention/"><u>In 2024, The Comparison Game YouTube Against DailyMention</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-video-clarity-with-version-22-vce-for-2024/"><u>Mastering the Art of Video Clarity with Version 2.2 VCE for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/premier-7-phone-apps-for-changing-tone-quality/"><u>Premier 7 Phone Apps for Changing Tone Quality</u></a></li>
+</ul></div>
 

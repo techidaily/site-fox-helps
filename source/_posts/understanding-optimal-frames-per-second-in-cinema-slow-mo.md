@@ -1,7 +1,7 @@
 ---
 title: "\"Understanding Optimal Frames Per Second in Cinema Slow-Mo\""
-date: 2024-08-16T07:35:24.559Z
-updated: 2024-08-17T07:35:24.559Z
+date: 2025-01-09T23:04:39.774Z
+updated: 2025-01-12T17:26:10.937Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ Best Situation - When you are shooting slow-motion video for any action that is 
 
 ![60 fps slow motion video](https://images.wondershare.com/filmora/article-images/60-fps-for-slow-motion-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. 120 fps
 
 Let us assume that you are shooting at 120 fps and displaying at 30 fps. The video will play 4 times slower than it is in real life. The slow-motion effect will be two times slower than shooting at 60fps. If you shoot slow action at 120 fps, the output will be unusually slow and visually unpleasant. Therefore, you should shoot fast action scenes at 120 fps.
@@ -41,13 +45,11 @@ Some of the examples are someone running, playing slow sports, or drifting a car
 Best Situation - When you are shooting slow-motion video for fast-paced action and fast moving subjects.
 
 ![120 fps slow motion](https://images.wondershare.com/filmora/article-images/120-fps-for-slow-motion-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. 180 fps
 
 The scenes that are suitable for 120 fps are also suitable for 180 fps. This means you can shoot fast-moving subjects, objects, and elements. Some of the examples are horse riding, subject running, riding a bike, and likewise. But when you shoot at 180 fps, your objective is to show down the action much further.
@@ -59,8 +61,9 @@ Best Situation - When you are shooting slow-motion video for fast moving action 
 ![180 fps slow motion](https://images.wondershare.com/filmora/article-images/180-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. 240 fps
 
 When you are capturing an action that is too fast for your eyes to see, you should use 240 fps. For example, when you are watching a fast-paced sports event, your eyes cannot capture all movements. When you capture those scenes at 240 fps, the output video will look more comfortable for the eyes. The use of 240 fps is very popular in sports like cricket.
@@ -70,13 +73,11 @@ The broadcasters show replays in slow motion by capturing bat and ball strikes a
 Best Situation - When you are shooting slow-motion video for action that are too fast for the eyes.
 
 ![240 fps slow motion video](https://images.wondershare.com/filmora/article-images/240-fps-for-slow-motion-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. 480 fps
 
 If you want super slow motion video, you have to shoot at 480 fps. The 480 frame rate is considered to be the base of super slow motion. There are higher frame rates available for more enhanced super slow-motion videos. When you shoot at 480 fps, the video will play 16 times slower. This is usual in showcasing extremely fast movements.
@@ -86,8 +87,9 @@ For example, when you are shooting with a gun, the bullet goes out at lightning 
 Best Situation - When you are shooting extremely fast actions and show in super slow motion.
 
 ![480 fps slow motion](https://images.wondershare.com/filmora/article-images/480-fps-for-slow-motion-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -115,4 +117,20 @@ The shooting frame rate determines how slow your video will look. If you shoot a
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-step-by-step-tutorial-crafting-photo-videos-in-pixiz/"><u>[New] 2024 Approved Step-by-Step Tutorial Crafting Photo Videos in Pixiz</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-webcam-wizardry-on-macbook-pro/"><u>[New] In 2024, Webcam Wizardry on MacBook Pro</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-professionals-guide-to-innovative-360-cams-2023/"><u>[New] The Professionals’ Guide to Innovative 360° Cams, 2023</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-propel-your-workflow-final-cut-pros-must-have-tools/"><u>[Updated] 2024 Approved Propel Your Workflow Final Cut Pro’s Must-Have Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-essential-guide-to-8-best-free-and-paid-videomosaic-tools-on-android/"><u>[Updated] In 2024, The Essential Guide to #8 Best Free & Paid Videomosaic Tools on Android</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-outstanding-graphic-revisions/"><u>[Updated] Outstanding Graphic Revisions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transforming-your-imagery-a-thorough-analysis-of-the-background-erase-tool-in-photoshop-for-2024/"><u>[Updated] Transforming Your Imagery A Thorough Analysis of the Background Erase Tool in Photoshop for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-understanding-igs-evolution-reels-vs-stories/"><u>2024 Approved Understanding IG's Evolution Reels vs Stories</u></a></li>
+<li><a href="https://common-error.techidaily.com/hybrid-systems/"><u>Hybrid Systems:</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-illusions-manipulating-past-and-future-events/"><u>In 2024, Illusions Manipulating Past & Future Events</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-jumping-from-sdr-to-hdr-the-ultimate-transformation-guide/"><u>In 2024, Jumping From SDR to HDR The Ultimate Transformation Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-essential-checklist-for-selecting-the-best-hdr-cameras-for-2024/"><u>The Essential Checklist for Selecting the Best HDR Cameras for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/vanish-3-melee-disguise-4-rises/"><u>Vanish 3 Melee Disguise 4 Rises</u></a></li>
+</ul></div>
 

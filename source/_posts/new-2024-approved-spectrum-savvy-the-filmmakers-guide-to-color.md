@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Spectrum Savvy  The Filmmaker's Guide to Color\""
-date: 2025-01-03T19:41:43.170Z
-updated: 2025-01-06T17:17:52.711Z
+date: 2025-01-12T02:02:56.184Z
+updated: 2025-01-13T06:23:18.162Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Color Grading?
@@ -39,23 +39,15 @@ In cinematography, color grading refers to the manipulation of film and video im
 
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why is Color Grading Important?
 
@@ -92,12 +84,16 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -132,6 +128,10 @@ First, you need to select the specific video portion you want to change the colo
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
 
@@ -223,18 +223,24 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-behind-the-camera-studio-insights-extended-xvideoguide-for-2024/"><u>[New] Behind-the-Camera Studio Insights Extended XVideoGuide for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-rapid-views-hourlys-youtube-hit-list/"><u>[New] Rapid Views Hourly's YouTube Hit List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-droning-made-simple-top-picks-for-kids-and-newbies/"><u>[Updated] Droning Made Simple Top Picks for Kids & Newbies</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-ultimate-guide-to-choosing-between-gopro-and-yi/"><u>[Updated] In 2024, The Ultimate Guide to Choosing Between GoPro and Yi</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-shortcut-to-achieving-unique-vocal-flair-in-pubg/"><u>[Updated] In 2024, The Ultimate Shortcut to Achieving Unique Vocal Flair in PUBG</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-panoramic-storytelling-simplified-top-9-tips-for-filmmakers/"><u>2024 Approved Panoramic Storytelling Simplified Top 9 Tips for Filmmakers</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/fixing-the-c1900101-problem-during-windows-11-boot-up/"><u>Fixing the C1900101 Problem During Windows 11 Boot Up</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-from-ordinary-to-extraordinary-creating-hdr-in-lightroom/"><u>In 2024, From Ordinary to Extraordinary Creating HDR in Lightroom</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-passcode-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 12 Passcode without Computer?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-t2-pro-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo T2 Pro 5G Phone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/nikon-km-170-vs-gopro-for-flexible-filmmaking-for-2024/"><u>Nikon KM-170 Vs GoPro for Flexible Filmmaking for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/solving-the-problem-steps-to-correct-missing-helperdll-files/"><u>Solving the Problem: Steps to Correct Missing Helper.dll Files</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-background-noise-in-virtual-presentations-for-2024/"><u>Tackling Background Noise in Virtual Presentations for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-list-makeup-tutorials-who-to-watch/"><u>[New] 2024 Approved A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-compendium-of-different-photographic-gadgets/"><u>[New] Compendium of Different Photographic Gadgets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exploring-depth-and-shadow-in-ai-text-art-for-2024/"><u>[New] Exploring Depth and Shadow in AI Text Art for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-metaverse-shenanigans-a-treasury-of-hilarity-and-creative-memes/"><u>[New] In 2024, Metaverse Shenanigans A Treasury of Hilarity and Creative Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-visualizing-creativity-to-perfection-with-magix-video-pro-x/"><u>[New] In 2024, Visualizing Creativity to Perfection with Magix Video Pro X</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-voice-overs-for-videos-step-by-step-guide-for-2024/"><u>[New] Mastering Voice-Overs for Videos Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-save-pc-sound-frequencies-and-mic-dialogue-for-2024/"><u>[New] Save PC Sound Frequencies & Mic Dialogue for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-diverse-windows-movie-maker-versions-for-2024/"><u>[New] Unveiling Diverse Windows Movie Maker Versions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elevate-the-way-you-learn-and-work-with-these-15-podcast-friendly-tasks/"><u>[Updated] 2024 Approved Elevate the Way You Learn & Work with These 15 Podcast-Friendly Tasks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-harnessing-multiple-windows-learn-pip-in-microsoft-edge/"><u>[Updated] 2024 Approved Harnessing Multiple Windows Learn PIP in Microsoft Edge</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-assembling-an-eye-catching-movie-miniature/"><u>[Updated] In 2024, Assembling an Eye-Catching Movie Miniature</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-enhance-your-visual-storytelling-with-adobes-lut-tools/"><u>[Updated] In 2024, Enhance Your Visual Storytelling with Adobe's LUT Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-revolutionizing-video-speed-in-social-networks/"><u>[Updated] In 2024, Revolutionizing Video Speed in Social Networks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-smartphone-tools-for-crafting-your-ideal-vocal-sound/"><u>[Updated] Smartphone Tools for Crafting Your Ideal Vocal Sound</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-who-offers-least-expensive-cloud-storage/"><u>2024 Approved Who Offers Least Expensive Cloud Storage ?</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/amd-graphics-adapter-not-installed-on-older-windows-versions/"><u>AMD Graphics Adapter Not Installed on Older Windows Versions</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/dealing-with-a-faulty-graphics-card-find-help-here-yl-softwares-expert-tips/"><u>Dealing with a Faulty Graphics Card? Find Help Here! (YL Software's Expert Tips)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-augmenting-flight-top-11-must-have-drone-accessories/"><u>In 2024, Augmenting Flight Top 11 Must-Have Drone Accessories</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-cameras-for-athletic-spectacle/"><u>In 2024, Ultimate Cameras for Athletic Spectacle</u></a></li>
 </ul></div>
 

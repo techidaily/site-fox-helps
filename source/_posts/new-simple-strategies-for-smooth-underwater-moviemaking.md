@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2025-01-01T20:05:20.008Z
-updated: 2025-01-06T22:28:31.312Z
+date: 2025-01-08T16:16:41.245Z
+updated: 2025-01-12T21:31:48.570Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips on shooting video underwater
@@ -48,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -59,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -69,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -82,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
@@ -105,10 +109,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit your footage
 
  To make your underwater videos good rather than great, it’s important that the editing process is of the highest quality.
@@ -121,11 +121,11 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
 
@@ -152,20 +152,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-expert-analysis-on-slomo-video-softwares-performance/"><u>[New] 2024 Approved Expert Analysis on SloMo Video Software's Performance</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-decoding-zdsofts-key-recording-features/"><u>[New] In 2024, Decoding ZDSoft's Key Recording Features</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-master-stitching-gopro-content-in-extended-panorama-videos/"><u>[New] In 2024, Master Stitching GoPro Content in Extended Panorama Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-essential-guide-to-understanding-and-using-instagrams-music-features/"><u>[New] In 2024, The Essential Guide to Understanding and Using Instagram's Music Features</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-elevating-ppt-impact-through-high-quality-recordings/"><u>[Updated] 2024 Approved Elevating PPT Impact Through High-Quality Recordings</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-boosting-visibility-key-steps-in-submitting-on-reddit/"><u>[Updated] In 2024, Boosting Visibility Key Steps in Submitting on Reddit</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-mastering-status-update-in-discord-chat/"><u>[Updated] In 2024, Mastering Status Update in Discord Chat</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-navigating-instagrams-video-landscape-a-detailed-look/"><u>[Updated] In 2024, Navigating Instagram's Video Landscape A Detailed Look</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-rising-tide-of-infographics-for-social-insights/"><u>[Updated] In 2024, The Rising Tide of Infographics for Social Insights</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-the-quintessential-list-of-top-tier-gaming-cams-for-live-viewers-for-2024/"><u>[Updated] The Quintessential List of Top-Tier Gaming Cams for Live Viewers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-your-phones-callback-diary-iphone-future-for-2024/"><u>[Updated] Your Phone's Callback Diary - iPhone Future for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-vision-to-reality-benqs-masterpiece-the-bl2711u-monitor-review/"><u>In 2024, From Vision to Reality BenQ’s Masterpiece, the BL2711U Monitor Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/premier-action-cameras-for-snow-adventures-for-2024/"><u>Premier Action Cameras for Snow Adventures for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-5-video-editing-tools-compatible-with-windows-7-enhancing-your-media-creations/"><u>Top 5 Video Editing Tools Compatible with Windows 7: Enhancing Your Media Creations</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/1725288187777-dvd/"><u>ユーザーの意見を基にしたDVDメモリ評価・特徴解説、利益とデメリット</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-igniting-virality-with-captivating-fb-giveaway-campaigns-for-2024/"><u>[New] Igniting Virality with Captivating FB Giveaway Campaigns for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-dynamic-imagery-made-simple-with-our-top-10-image-switchers/"><u>[New] In 2024, Dynamic Imagery Made Simple with Our Top 10 Image Switchers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-streamlining-sound-speeds-in-spotify-without-compromise/"><u>[New] In 2024, Streamlining Sound Speeds in Spotify Without Compromise</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-perfecting-color-balance-in-gopro-editing-for-2024/"><u>[New] Perfecting Color Balance in GoPro Editing for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-synchronizing-social-channels-transferring-fb-videos-on-whatsapp/"><u>[New] Synchronizing Social Channels Transferring FB Videos on WhatsApp</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-players-showcase-top-rated-oculus-devices-for-2024/"><u>[New] The Ultimate Players Showcase Top-Rated Oculus Devices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-amp-up-your-pixel-with-top-download-links/"><u>[Updated] Amp Up Your Pixel with Top Download Links</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-8-android-visionaries-for-speedy-videos/"><u>[Updated] In 2024, Top 8 Android Visionaries for Speedy Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-minecraft-survival-shelter-mastery/"><u>[Updated] Minecraft Survival Shelter Mastery</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diy-guide-removing-iphone-sim-card-with-household-items-instead-of-ejector-pin/"><u>DIY Guide: Removing iPhone SIM Card with Household Items Instead of Ejector Pin</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-download-of-canon-mx340-printer-drivers-compatible-with-various-windows-versions/"><u>Easy Download of Canon MX340 Printer Drivers Compatible with Various Windows Versions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-realme-12plus-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Realme 12+ 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-sifting-through-the-advantages-and-disadvantages-of-vr/"><u>In 2024, Sifting Through the Advantages and Disadvantages of VR</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-nokia-c110-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Nokia C110 Users</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-oppo-reno-9a-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Oppo Reno 9A to Gmail | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unlocking-visual-clarity-bypassing-background-in-photopea/"><u>Unlocking Visual Clarity Bypassing Background in Photopea</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Quick Corrections for iPhone Shot Blur Issues"
-date: 2025-01-04T21:16:47.246Z
-updated: 2025-01-06T21:46:52.991Z
+date: 2025-01-07T21:08:19.677Z
+updated: 2025-01-12T22:40:36.758Z
 tags: 
   - screen-recording
   - ai video
@@ -45,25 +45,21 @@ thumbnail: https://thmb.techidaily.com/e8fcd349e6a8281ada057683af29fba698cce45bd
 
 ![auto focus](https://images.wondershare.com/filmora/auto-focus.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part2: Lock AE/AF
 
  As in the above tip, we explained to tap on the srceen where you wish to set the focus. However, sometimes, single tapping on the srceen isn’t sufficient. This is because if any kind of movement happens in the scene or if you move, the camera will start re-adjusting its focus which obviously you don’t want. If you seriously want to take a better picture, make sure to lock the focus on the subject in the scene. This can be done by enabling AE/AF feature and doing this will keep the focus on the subject even if anything moves in the scene. To do this, just tap and hold on the subject for a few seconds until you get to see a yellow box at the top of the srceen saying “AE/AF LOCK”. Once you notice, you can release your fingers and start having fun with picture capturing moment.
 
 ![auto focus](https://images.wondershare.com/filmora/ae-lock.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part3: Stand too close is not good
 
  If you are not getting standard iPhone focus, check if you are standing too near to the subject. Probably this is the case, and if yes, the problem of focus got the solution. Make sure to stand at least three inches apart from the subject. This is because the camera of iPhone is designed in a way that it can’t give you clear picture if it is placed too close to the subject. All in all, if you are holding your iPhone excessively close to the subject, pull it back little inches otherwise you will end up clicking a blurred photo.
 
 ![stand too close](https://images.wondershare.com/filmora/close.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part4: Upgrade iOS
 
@@ -72,11 +68,11 @@ thumbnail: https://thmb.techidaily.com/e8fcd349e6a8281ada057683af29fba698cce45bd
 ![upgrade ios](https://images.wondershare.com/filmora/upgrade-ios.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part5: Turn off your iPhone
@@ -86,7 +82,11 @@ thumbnail: https://thmb.techidaily.com/e8fcd349e6a8281ada057683af29fba698cce45bd
 ![turn off iphone](https://images.wondershare.com/filmora/turn-off-iphone-ios.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Verdict
@@ -122,24 +122,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/rom-script-to-screenplay-expert-video-editing-insights-for-2024/"><u>[New] From Script to Screenplay Expert Video Editing Insights for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-multitasking-with-picture-in-picture-mode-on-microsoft-edge-browser/"><u>[New] In 2024, Mastering Multitasking with Picture-in-Picture Mode on Microsoft Edge Browser</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-iphone-saving-and-utilizing-gifs-effectively/"><u>[New] Mastering iPhone Saving & Utilizing GIFs Effectively</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-diving-into-the-depths-of-hdr-with-asus-pa32u/"><u>[Updated] 2024 Approved Diving Into the Depths of HDR with ASUS PA32U</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-hide-and-seek-top-5-for-secret-story-lovers/"><u>[Updated] 2024 Approved Hide & Seek Top 5 For Secret Story Lovers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-auditory-enhancement-unlocked-delve-into-freeware-audio-effect-software/"><u>[Updated] Auditory Enhancement Unlocked Delve Into Freeware Audio Effect Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-adoption-trends-for-arvr-shopping/"><u>[Updated] In 2024, Adoption Trends for AR/VR Shopping</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-samsung-photography-essentials-a-detailed-review-2023/"><u>[Updated] In 2024, Samsung Photography Essentials – A Detailed Review, 2023</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ultimate-guide-to-editbox-suite-reviewed/"><u>[Updated] In 2024, Ultimate Guide to EditBox Suite, Reviewed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-intersecting-experiences-dissecting-vr-augmented-and-mixed-reality-for-2024/"><u>[Updated] Intersecting Experiences Dissecting VR, Augmented & Mixed Reality for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-precision-cuts-in-kinemaster-transition-essentials-for-2024/"><u>[Updated] Precision Cuts in Kinemaster Transition Essentials for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/beat-game-glitch-expert-tips-on-smoothing-out-hogwarts-legacy-playback-enthusiasts/"><u>Beat Game Glitch: Expert Tips on Smoothing Out Hogwarts Legacy Playback Enthusiasts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/brand-your-content-download-complimentary-templates-for-youtube-makers/"><u>Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-to-prevent-and-fix-microsoft-edge-crashing-on-your-windows-11-device/"><u>Expert Tips to Prevent and Fix Microsoft Edge Crashing on Your Windows 11 Device</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/guide-adjusting-folder-display-settings-in-the-macos-finder/"><u>Guide: Adjusting Folder Display Settings in the MacOS Finder</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-game-crashing-issues/"><u>How to Fix Game Crashing Issues</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-religious-ringtones-for-daily-devotion-and-driving/"><u>In 2024, Religious Ringtones for Daily Devotion and Driving</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-unveiling-the-ultimate-vr-experience-the-htc-vive-story/"><u>In 2024, Unveiling the Ultimate VR Experience The HTC Vive Story</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/premiered-patterns-for-panzoid-creation-for-2024/"><u>Premiered Patterns for Panzoid Creation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-must-try-top-5-mac-streaming-applications/"><u>[New] In 2024, Must-Try Top 5 Mac Streaming Applications</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-passport-self-portrait-maker-free-access-to-top-quality-images/"><u>[New] In 2024, Passport Self-Portrait Maker – Free Access to Top Quality Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-retrospective-on-the-goofy-movie-a-comprehensive-review/"><u>[New] In 2024, Retrospective on 'The Goofy Movie' A Comprehensive Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-powerdirector-2024-success-complete-review/"><u>[New] The Ultimate Guide to PowerDirector 2024 Success (Complete Review)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-transform-your-photos-mastering-time-lapse-with-samsung-mobile/"><u>[Updated] 2024 Approved Transform Your Photos Mastering Time Lapse with Samsung Mobile</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-a-swift-guide-to-starting-conversations-on-instagram-for-2024/"><u>[Updated] A Swift Guide to Starting Conversations on Instagram for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-finding-the-perfect-date-tracker-10-best-androidios-apps-for-2024/"><u>[Updated] Finding the Perfect Date Tracker 10 Best Android/iOS Apps for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-visuals-and-vibrations-merging-soundtracks-with-vimeo-media/"><u>[Updated] In 2024, Visuals and Vibrations Merging Soundtracks with Vimeo Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pivotal-vr-films-for-your-watchlist/"><u>[Updated] Pivotal VR Films for Your Watchlist</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-prime-youtube-mp4-encoding-steps/"><u>[Updated] Prime YouTube MP4 Encoding Steps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-video-editors-unite-learn-image-upload-on-youtube-for-2024/"><u>[Updated] Video Editors Unite! Learn Image Upload on YouTube for 2024</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/automatische-loschfunktion-in-outlook-deaktivieren-eine-detaillierte-losungskompass/"><u>Automatische Löschfunktion in Outlook Deaktivieren - Eine Detaillierte Lösungskompass</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-m34-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-lenovo-thinkphone-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Lenovo ThinkPhone Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-guide-to-green-screen-expertise-with-kinemaster/"><u>In 2024, The Ultimate Guide to Green Screen Expertise with Kinemaster</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-vivo-x100-pro-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Vivo X100 Pro to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unleash-creativity-best-free-video-editor-apps-android-edition/"><u>In 2024, Unleash Creativity Best Free Video Editor Apps, Android Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/perfecting-video-calls-merging-zoom-and-skype-expertise-for-2024/"><u>Perfecting Video Calls Merging ZOOM and SKYPE Expertise for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/swiftly-resolving-file-corrupted-error-x70-on-windows-1011/"><u>Swiftly Resolving 'File Corrupted' Error X70 on Windows 10/11</u></a></li>
 </ul></div>
 
