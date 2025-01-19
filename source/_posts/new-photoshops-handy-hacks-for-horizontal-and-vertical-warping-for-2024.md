@@ -1,7 +1,7 @@
 ---
 title: "[New] Photoshop's Handy Hacks for Horizontal and Vertical Warping for 2024"
-date: 2024-12-08T16:00:37.613Z
-updated: 2024-12-13T16:15:47.109Z
+date: 2025-01-17T06:37:05.543Z
+updated: 2025-01-19T00:07:50.774Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Simple Steps to Curve an Image in Photoshop
@@ -44,7 +44,7 @@ After creating the new document, open the image that you want to curve. You may 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3Warp the Image
@@ -64,12 +64,16 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
@@ -79,10 +83,6 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
@@ -90,7 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,24 +127,18 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-best-gopro-helmet-mounts-and-how-to-use-them-for-2024/"><u>[New] Best GoPro Helmet Mounts and How to Use Them for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-crafting-cinematic-stories-in-extended-seconds-a-guide-to-creating-spectacularly-long-lasting-video-from-still-images-online/"><u>[New] Crafting Cinematic Stories in Extended Seconds A Guide to Creating Spectacularly Long Lasting Video From Still Images Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-crafting-curve-concepts-for-text-visualization/"><u>[New] Crafting Curve Concepts for Text Visualization</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-youtubes-latest-revenue-guidelines/"><u>[New] In 2024, Exploring YouTube's Latest Revenue Guidelines</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-art-of-iphone-podcast-listening/"><u>[New] In 2024, The Art of iPhone Podcast Listening</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ideal-beginning-enhancer-for-your-devices/"><u>[New] In 2024, The Ideal Beginning Enhancer for Your Devices</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-quick-tips-uploading-to-apple-podcast-network/"><u>[New] Quick Tips Uploading to Apple Podcast Network</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-screen-recording-google-meets-on-mobile-devices-for-2024/"><u>[New] Screen Recording Google Meets on Mobile Devices for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unlocking-windows-10-seamless-media-importation-techniques/"><u>[New] Unlocking Windows 10 Seamless Media Importation Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-iphone-tips-free-techniques-to-incorporate-music-in-video-projects/"><u>[Updated] 2024 Approved IPhone Tips Free Techniques to Incorporate Music in Video Projects</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-harnessing-the-power-of-video-playback-acceleration-for-2024/"><u>[Updated] Harnessing the Power of Video Playback Acceleration for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-10-eye-catching-text-in-media/"><u>[Updated] In 2024, Top 10 Eye-Catching Text in Media</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-selecting-video-editors-filmora-vs-democreator-compared-for-2024/"><u>[Updated] Selecting Video Editors Filmora Vs. Democreator Compared for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-secrets-to-effortlessly-record-seascapes/"><u>[Updated] Unraveling the Secrets to Effortlessly Record Seascapes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-transform-your-view-exclusive-alternative-video-websites/"><u>2024 Approved Transform Your View Exclusive Alternative Video Websites</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/6kej5rg65rii44g6yca55plusl77ya54plusplus5zyo44gu44kz44oz44ou44ol44o844k5lik44gr44k344k544og44og55s75yop44gm5a2y5zyo44gx44gplus44gb44kt/"><u>解決済み通知：現在のコンピュータ上にシステム画像が存在しません</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/expert-insights-on-the-byb-e430-led-lamppost-with-ergonomic-swing-arm-design/"><u>Expert Insights on the BYB E430 LED Lamppost with Ergonomic Swing Arm Design</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-twitch-vs-youtube-an-in-depth-comparative-analysis/"><u>In 2024, Twitch vs YouTube An In-Depth Comparative Analysis</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/why-no-sound-the-twitter-video-amplification-guide-for-2024/"><u>Why No Sound? The Twitter Video Amplification Guide for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-frontline-contenders-top-7-action-fps-games/"><u>[New] In 2024, Frontline Contenders Top 7 Action FPS Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-5-uavs-for-elevating-your-gopro-videos-and-movies-for-2024/"><u>[New] Top 5 UAVs for Elevating Your GoPro Videos and Movies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-video-production-atlas-xstudio-analysis-edition-for-2024/"><u>[New] Video Production Atlas XStudio Analysis Edition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-clearviewenlarge-7-image-size-tailored-for-you/"><u>[Updated] ClearViewEnlarge 7 Image Size Tailored for You</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-faces-under-scrutiny-how-iphone-x-and-galaxy-unlock-tech-compare-for-2024/"><u>[Updated] Faces Under Scrutiny How iPhone X and Galaxy Unlock Tech Compare for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlock-premium-image-quality-through-youtubes-av1-settings/"><u>[Updated] In 2024, Unlock Premium Image Quality Through YouTube's AV1 Settings</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-insiders-look-at-vlc-functionality-on-macbooks-for-2024/"><u>[Updated] Insider's Look at VLC Functionality on MacBooks for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-leading-6-low-cost-superior-4k-tv-projectors/"><u>[Updated] Leading 6 Low-Cost, Superior 4K TV Projectors</u></a></li>
+<li><a href="https://win-info.techidaily.com/1-how-to-fix-auto-deletion-of-files-by-windows-defender/"><u>1. How to Fix: Auto-Deletion of Files by Windows Defender</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-compelling-narratives-with-wmm-and-animation-techniques/"><u>In 2024, Crafting Compelling Narratives with WMM and Animation Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/innovative-gaming-rig-features-built-in-espresso-barista-complete-coffee-maker-system/"><u>Innovative Gaming Rig Features Built-In Espresso Barista: Complete Coffee Maker System</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/instantaneous-windows-photo-explorer-for-2024/"><u>Instantaneous Windows Photo Explorer for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-video-ventures-selecting-an-mcn/"><u>Unified Video Ventures Selecting an MCN</u></a></li>
 </ul></div>
 

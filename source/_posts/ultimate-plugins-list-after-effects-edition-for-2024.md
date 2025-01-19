@@ -1,7 +1,7 @@
 ---
 title: "\"Ultimate Plugins List  After Effects Edition for 2024\""
-date: 2025-01-09T08:47:24.142Z
-updated: 2025-01-13T07:49:14.973Z
+date: 2025-01-17T02:33:59.083Z
+updated: 2025-01-18T20:12:16.832Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ Adobe After Effects remains one of the most powerful ways to edit videos. One of
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TextDelay
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
@@ -41,10 +45,6 @@ TextExploder is an After Effects plugin that is developed by MamoWorld and it al
 
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## iExpressions 2
 
 Link: <https://aescripts.com/iexpressions/>
@@ -53,6 +53,10 @@ If you want to effectively use the After Effects expressions even if you are not
 
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -60,6 +64,10 @@ Link: <https://aescripts.com/textbox/>
 If you want to create the perfect shape behind your text, then TextBox is a good text plugin to consider. This is a native After Effects plugin, meaning that you will not need to install it and the shapes it creates can be very easily customized. It updates the shapes you create automatically and adds them to the text layer, making it the most ideal solution to create closed captions, lower thirds, and subtitles.
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Font Manager
 
@@ -70,7 +78,7 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cartoon Moblur
@@ -82,7 +90,7 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shadow Studio
@@ -90,10 +98,6 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Texts Animation Bundle
 
@@ -104,11 +108,7 @@ This is a bundle of more than 80 different templates to add text effects to any 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Artificial Intelligence Titles
@@ -128,7 +128,7 @@ This is another great text animation bundle with different options for just abou
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -165,24 +165,21 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-transcribe-a-youtube-video-free/"><u>[New] In 2024, How to Transcribe a YouTube Video [FREE]</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-guide-to-affordable-online-photo-edits-of-the-year/"><u>[New] In 2024, Ultimate Guide to Affordable Online Photo Edits of the Year</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-masterclass-in-webp-to-jpeg-conversion/"><u>[New] Masterclass in WebP to JPEG Conversion</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elite-audit-the-updated-parrot-ar-drone/"><u>[Updated] 2024 Approved Elite Audit The Updated Parrot AR Drone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-immersive-innovations-the-distinct-worlds-of-mr-ar-and-vr/"><u>[Updated] 2024 Approved Immersive Innovations The Distinct Worlds of MR, AR, & VR</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-expert-tips-on-choosing-the-ideal-live-broadcast-service/"><u>[Updated] Expert Tips on Choosing the Ideal Live Broadcast Service</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-leading-sites-boosting-youtube-viewership/"><u>[Updated] In 2024, Leading Sites Boosting YouTube Viewership</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-smarter-spending-on-cloud-data-services-insights-and-recommendations/"><u>[Updated] In 2024, Smarter Spending on Cloud Data Services Insights & Recommendations</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-streams-weighing-xsplit-against-obs-capabilities-for-2024/"><u>[Updated] Mastering Streams Weighing XSplit Against OBS Capabilities for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-revolutionize-your-mac-streaming-experience-for-2024/"><u>[Updated] Revolutionize Your Mac Streaming Experience for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-step-into-the-world-of-slowed-motion-a-comprehensive-ig-reel-guide/"><u>[Updated] Step Into the World of Slowed-Motion A Comprehensive IG Reel Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-under-100-budget-friendly-action-cams-top-choices-guide/"><u>[Updated] Under-$100 Budget-Friendly Action Cams – Top Choices Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-video-popularity-a-comprehensive-guide-to-tagging-on-youtube/"><u>[Updated] Unlocking Video Popularity A Comprehensive Guide to Tagging on YouTube</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-advice-for-fixing-unavailable-destiny-ebservers-a-comprehensive-guide/"><u>Expert Advice for Fixing Unavailable Destiny Ebservers: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/exploring-benq-bl2711u-ultra-hd-monitor-deep-dive-for-2024/"><u>Exploring BenQ BL2711U Ultra-HD Monitor Deep Dive for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-a-comprehensive-examination-of-lg-27ud68-display-tech/"><u>In 2024, A Comprehensive Examination of LG 27UD68 Display Tech</u></a></li>
-<li><a href="https://fox-place.techidaily.com/media-monkey-mastery-enhance-and-refresh-your-audiovisual-tagging-with-dj-expertise/"><u>Media Monkey Mastery: Enhance & Refresh Your Audiovisual Tagging with DJ Expertise</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/premier-live-chat-platforms-for-virtual-gatherings/"><u>Premier Live-Chat Platforms for Virtual Gatherings</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-accessing-bios-in-windows-10-and-windows-7/"><u>Step-by-Step Guide: Accessing BIOS in Windows 10 and Windows 7</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-b-cut-scenarios-in-filmmaking/"><u>[New] 2024 Approved Mastering B-Cut Scenarios in Filmmaking</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-boosting-windows-file-audit-with-precision-for-2024/"><u>[New] Boosting Windows File Audit with Precision for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-strategic-approaches-to-googles-podcast-submission-protocol/"><u>[New] In 2024, Strategic Approaches to Google’s Podcast Submission Protocol</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-progopro-sessions-four-meets-five-for-2024/"><u>[New] ProGoPro Sessions Four Meets Five for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-windows-11-photos-enhancement-techniques-soundtracks-plus-filter-layers/"><u>[New] Windows 11 Photos Enhancement Techniques Soundtracks + Filter Layers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-making-funny-photos-no-fees-involved/"><u>[Updated] 2024 Approved Making Funny Photos No Fees Involved</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-zip-to-subrip-conversion-techniques/"><u>[Updated] In 2024, Zip-to-SubRip Conversion Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-unseen-viewers-route-navigating-instagram-stories-with-anonymous-viewing-for-2024/"><u>[Updated] The Unseen Viewer's Route Navigating Instagram Stories with Anonymous Viewing for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/distinguished-cinematic-foreshadowing-collection/"><u>Distinguished Cinematic Foreshadowing Collection</u></a></li>
+<li><a href="https://os-tips.techidaily.com/do-you-absolutely-need-a-phone-screen-guard-for-your-mobile-device/"><u>Do You Absolutely Need a Phone Screen Guard for Your Mobile Device?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/high-end-methods-for-monitoring-and-recording-pc-sounds/"><u>High-End Methods for Monitoring and Recording PC Sounds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-complete-examination-the-video-show-app/"><u>In 2024, Complete Examination The Video Show App</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-xiaomi-redmi-note-13-proplus-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Xiaomi Redmi Note 13 Pro+ 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/seamless-hd-experience-how-to-link-and-share-your-computer-display-on-a-television-via-chromecast/"><u>Seamless HD Experience: How to Link and Share Your Computer Display on a Television via Chromecast</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-riddle-behind-bizarre-electric-car-monikers-exploring-evs-oddball-name-choices/"><u>The Riddle Behind Bizarre Electric Car Monikers: Exploring EVs' Oddball Name Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-video-builder-how-to-create-video-ads-for-free/"><u>YouTube Video Builder How to Create Video Ads for Free?</u></a></li>
 </ul></div>
 

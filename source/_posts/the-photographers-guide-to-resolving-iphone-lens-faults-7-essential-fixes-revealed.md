@@ -1,7 +1,7 @@
 ---
 title: The Photographer’s Guide to Resolving iPhone Lens Faults - 7 Essential Fixes Revealed
-date: 2025-01-04T18:52:19.168Z
-updated: 2025-01-06T18:35:55.223Z
+date: 2025-01-13T04:26:30.453Z
+updated: 2025-01-18T17:18:01.679Z
 tags:
   - iphone
   - apple
@@ -24,22 +24,14 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. iPhone Camera Shows a Black Screen
 
 ![iPhone Camera not working, showing black screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-Camera-not-working-showing-black-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![iPhone Camera not working close apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-Camera-app-from-App-Switcher-view.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -52,14 +44,22 @@ Close
 5. Turn off your iPhone by holding the Side button (along with either Volume button on the iPhone X and later), then slide to power off. Wait 30 seconds before pressing the Side button again to restart your iPhone. If that doesn't work,[force restart your iPhone](https://www.makeuseof.com/tag/restart-iphone-recovery-mode/) instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. iPhone Photos Are Blurry or Out of Focus
 
 ![iPhone camera blurry close up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-camera-blurry-close-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![iPhone camera in focus close up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-camera-in-focus-close-up.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -80,6 +80,10 @@ Close
 2. Make sure you set the flash to**On** or**Auto** in the Camera app. To do this, tap the lightning bolt icon on the left side of the screen to see your flash options (you can't use the flash for panoramic photographs or time-lapse videos).
 3. Be careful when using the flash for long videos or in hot environments. If your iPhone gets too hot, it might disable the flash entirely until it has cooled down again.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. iPhone Photos Are Flipped the Wrong Way
 
 ![iPhone photo flipped the wrong way](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-photo-flipped-the-wrong-way.jpg)
@@ -96,19 +100,15 @@ Close
 3. You can always edit your pictures later from the Photos app, or other [third-party iPhone image editing apps](https://www.makeuseof.com/tag/best-free-photo-editing-apps-iphone/) .
 4. If you're wondering why your selfies always appear mirrored, that's simply how Apple designed the front-facing camera. The camera works like a mirror, but the photo flips over as if someone took it for you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. The Camera App Is Missing or Keeps Freezing
 
 ![Screen Time settings on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Screen-Time-settings-on-iPhone.jpg)
 
-![Allowed Apps in Screen Time restrictions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Allowed-Apps-in-Screen-Time-restrictions.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Allowed Apps in Screen Time restrictions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Allowed-Apps-in-Screen-Time-restrictions.jpg)
 
 Close
 
@@ -131,7 +131,7 @@ Close
 5. Finally,[factory reset your iPhone](https://www.makeuseof.com/tag/how-to-factory-reset-iphone-ipad/) and set it up as a new device. This erases everything and is the last resort, but should resolve any software issues that stop your iPhone camera from working.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. General iPhone Camera Hardware Fixes
@@ -167,22 +167,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-crafting-subc-from-srt-efficient-actionable-paths-for-2024/"><u>[New] Crafting SUBC From SRT Efficient, Actionable Paths for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-prime-choices-in-cinema-cameras-from-newbies-to-professionals/"><u>[New] In 2024, Prime Choices in Cinema Cameras From Newbies to Professionals</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-the-update-to-sonys-premium-blu-ray-player/"><u>[New] In 2024, Unveiling the Update to Sony’s Premium Blu-Ray Player</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-8-zero-cost-3d-plugins-the-ideal-pick-for-pcmac-users-for-2024/"><u>[New] Top 8 Zero-Cost 3D Plugins The Ideal Pick for PC/Mac Users for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-a-step-by-step-tutorial-to-monitor-popular-interactions-on-youtube-for-2024/"><u>[Updated] A Step-by-Step Tutorial to Monitor Popular Interactions on YouTube for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-best-way-to-perform-obs-streaming/"><u>[Updated] Best Way to Perform OBS Streaming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-establishing-an-individual-identity-on-youtube-platform-for-2024/"><u>[Updated] Establishing an Individual Identity on YouTube Platform for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-enhancing-video-engagement-with-correctly-uploaded-srt-files/"><u>[Updated] In 2024, Enhancing Video Engagement with Correctly Uploaded SRT Files</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-premium-internet-spots-for-glossy-3d-text-effects/"><u>[Updated] Premium Internet Spots for Glossy 3D Text Effects</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-creating-popular-youtube-openings/"><u>[Updated] Step-by-Step Guide to Creating Popular YouTube Openings</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-ultimate-tech-marvels-top-picks-for-everyone-for-2024/"><u>[Updated] Ultimate Tech Marvels Top Picks for Everyone for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-10plus-best-instagram-video-editor-for-pc-online-android/"><u>2024 Approved 10+ Best Instagram Video Editor for PC, Online, Android</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-tips-on-enhancing-your-photos-using-personal-selfie-stations/"><u>Expert Tips on Enhancing Your Photos Using Personal Selfie Stations</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-first-steps-in-vector-art-exploring-kinds-applications/"><u>In 2024, First Steps in Vector Art Exploring Kinds, Applications</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-tecno-camon-30-pro-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Tecno Camon 30 Pro 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/reviving-unplugged-realtek-high-fidelity-sound-systems-a-step-by-step-guide/"><u>Reviving Unplugged Realtek High-Fidelity Sound Systems: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solving-no-compatible-hardwaredriver-error-in-rainbow-six-extraction-a-step-by-step-guide/"><u>Solving 'No Compatible Hardware/Driver' Error in Rainbow Six Extraction - A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-prime-desktop-systems-for-quality-use/"><u>[New] 2024 Approved Prime Desktop Systems for Quality Use</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-digital-therapeutics-and-patient-engagement/"><u>[New] In 2024, Digital Therapeutics and Patient Engagement</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-direct-data-delivery-master-5-techniques-for-uploading-files/"><u>[New] In 2024, Direct Data Delivery Master 5 Techniques for Uploading Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elevate-presentations-10-must-have-slide-show-designs-at-no-cost/"><u>[Updated] 2024 Approved Elevate Presentations 10 Must-Have Slide Show Designs at No Cost</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-guide-to-effortless-acquisition-of-exquisite-royalty-free-images/"><u>[Updated] In 2024, The Guide to Effortless Acquisition of Exquisite Royalty-Free Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-streamers-guide-to-best-free-options-across-every-system/"><u>[Updated] Ultimate Streamer's Guide to Best Free Options Across Every System</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-picture-in-picture-mode-with-confidence-using-microsoft-edge/"><u>2024 Approved Navigating Picture-In-Picture Mode with Confidence Using Microsoft Edge</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/androids-best-in-sky-file-sanctuaries/"><u>Android's Best In-Sky File Sanctuaries</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211461026-9781839388576-anomalous-phenomena/"><u>Anomalous Phenomena | Free Book</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/beyond-the-keys-discover-why-this-iphone-case-outshines-others-com/"><u>Beyond the Keys: Discover Why This iPhone Case Outshines Others .com</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-discover-the-ultimate-metaverse-glasses-selection/"><u>In 2024, Discover the Ultimate Metaverse Glasses Selection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-podcast-playback-iphone-edition/"><u>In 2024, Mastering Podcast Playback IPhone Edition</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-game-lag-fixing-pc-errors-in-nba-2k21/"><u>Overcoming Game Lag: Fixing PC Errors in NBA 2K21</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/resolving-system-lockups-expert-tips-from-yl-softwares-tech-experts/"><u>Resolving System Lockups: Expert Tips From YL Software's Tech Experts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-4-remedies-enhancing-iphone-hdr-images-in-premiere-pro-for-2024/"><u>Top 4 Remedies Enhancing iPhone HDR Images in Premiere Pro for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mellowing Sound Piece-by-Piece in FL\""
-date: 2024-12-09T16:19:22.740Z
-updated: 2024-12-13T16:21:29.398Z
+date: 2025-01-18T03:20:44.800Z
+updated: 2025-01-19T08:07:42.914Z
 tags: 
   - screen-recording
   - ai video
@@ -37,15 +37,15 @@ Step1 The first and foremost task to do is the successful installation of FL Stu
 
 ![open fl studio](https://images.wondershare.com/filmora/article-images/2022/07/open-fl-studio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Open your FL Studio window on your pc or mac. Then, choose the right volume parameter for the creation of automation in your FL studio. You can do it using the mixer channel method.
 
 Step3 After getting the volume parameter, now you will need to create automation. For this, you will have to click right in the volume layer and then tap on ‘Create Automation Clip’.
 
 ![create automation clips fl studio](https://images.wondershare.com/filmora/article-images/2022/07/create-automation-clips-fl-studio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After selecting that, there will be an addition of a new automation clip to the playlist.
 
@@ -69,10 +69,6 @@ Step2 To fade audio in, you have to go to the audio setting. Then drag the point
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
@@ -83,13 +79,13 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
 
@@ -101,12 +97,16 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
@@ -114,7 +114,7 @@ Step3 If you want your audio to fade out, again go to the audio setting. Then dr
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Related FAQs of FL Studio Audio Editing
@@ -128,7 +128,7 @@ If you want to fade out your audio in FL on your mobile phone, tap on the wavefo
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
@@ -159,24 +159,20 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-compact-video-summary-key-insights-unveiled/"><u>[New] 2024 Approved Compact Video Summary Key Insights Unveiled</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-screen-record-instagram-story/"><u>[New] How to Screen Record Instagram Story</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-pro-audio-recording-the-ultimate-audacity-course/"><u>[New] Pro Audio Recording The Ultimate Audacity Course</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-ultimate-resource-compilation-for-media-imagery/"><u>[New] Ultimate Resource Compilation for Media Imagery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-declutter-your-visuals-learn-background-removal-with-photopea/"><u>[Updated] 2024 Approved Declutter Your Visuals Learn Background Removal with Photopea</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-upgrade-photographic-images-preserve-precision/"><u>[Updated] 2024 Approved Upgrade Photographic Images, Preserve Precision</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-5-strategies-for-enhancing-iphone-hdr-footage-in-premiere-pro/"><u>[Updated] 5 Strategies for Enhancing iPhone HDR Footage in Premiere Pro</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-full-overview-of-installing-wm6/"><u>[Updated] Full Overview of Installing WM6</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-high-quality-vector-graphics-top-10-sources-for-2024/"><u>[Updated] High-Quality Vector Graphics Top 10 Sources for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/44cq5oml44g244km5aplusplus562w44cr5yplusm55y86yplush44gu5a6j5a6a5yyw44go44gn44km44ge44gq55s76loq5zcr5lik5pa55rovic0g5pya5paw44og44kv44ol44od44kv5yws6zal/"><u>【手ぶれ対策】双眼鏡の安定化ときれいな画質向上方法 - 最新テクニック公開</u></a></li>
-<li><a href="https://extra-information.techidaily.com/10-best-free-luts-roundup-download-links-galore-for-2024/"><u>10 Best Free LUTs Roundup - Download Links Galore for 2024</u></a></li>
-<li><a href="https://win-info.techidaily.com/como-crear-copias-exactas-de-discos-y-particiones-tecnicas-avanzadas-de-clonacion/"><u>Cómo Crear Copias Exactas De Discos Y Particiones: Técnicas Avanzadas De Clonación</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/exploring-prevalent-factors-contributing-to-cognitive-memory-impairments-with-yl-technology-solutions/"><u>Exploring Prevalent Factors Contributing to Cognitive Memory Impairments with YL Technology Solutions</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-htc-u23-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-avoidance-techniques-for-oculus-motion-sickness/"><u>In 2024, Avoidance Techniques for Oculus Motion Sickness</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-navigating-day-to-day-streams-key-dos-and-donts/"><u>In 2024, Navigating Day-to-Day Streams Key Do's & Don'ts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-navigating-the-maze-of-srt-to-multiple-media-standards/"><u>In 2024, Navigating the Maze of SRT to Multiple Media Standards</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-garageband-tutorial-for-podcast-creation/"><u>In 2024, Step-by-Step GarageBand Tutorial for Podcast Creation</u></a></li>
-<li><a href="https://app-tips.techidaily.com/unmasking-crypto-illusions-a-revealing-paper-challenges-bitcoins-anonymity-claims/"><u>Unmasking Crypto Illusions: A Revealing Paper Challenges Bitcoin's Anonymity Claims</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-transforming-standard-calls-into-visual-masterpieces-with-zoom/"><u>[New] 2024 Approved Transforming Standard Calls Into Visual Masterpieces with Zoom</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-11-must-know-hues-for-professional-grading/"><u>[New] In 2024, 11 Must-Know Hues for Professional Grading</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-naming-your-podcast-a-complete-guide-plus-list-of-over-50-creative-ideas/"><u>[New] In 2024, Naming Your Podcast A Complete Guide + List of Over 50 Creative Ideas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transforming-pedagogy-through-vr-innovation-for-2024/"><u>[New] Transforming Pedagogy Through VR Innovation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-x-ology-vintage-iphone-xx-photography/"><u>[New] X-Ology Vintage iPhone Xx Photography</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2023-endless-ears-on-facebook-downloads-for-2024/"><u>[Updated] 2023 Endless Ears on Facebook Downloads for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unlock-potential-with-best-sd-cards-for-gopro-hero-78/"><u>[Updated] 2024 Approved Unlock Potential with Best SD Cards for GoPro HERO 7/8</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-incremental-sound-diminishment-guidebook/"><u>[Updated] In 2024, Incremental Sound Diminishment Guidebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-insiders-blueprint-for-commanding-attention-with-posts/"><u>[Updated] The Insider's Blueprint for Commanding Attention with Posts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-full-spectrum-analysis-unpacking-xstudio-video-workshop-essentials/"><u>2024 Approved Full Spectrum Analysis Unpacking XStudio Video Workshop Essentials</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-v30t-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Realme V30T Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-words-to-wax-mastering-voice-note-techniques/"><u>In 2024, From Words to Wax Mastering Voice Note Techniques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-vr-game-creators-to-watch-for-2024/"><u>Top VR Game Creators To Watch for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/undoing-the-delete-action-recovering-lost-messages-in-microsoft-outlook/"><u>Undoing the Delete Action: Recovering Lost Messages in Microsoft Outlook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/write-on-windows-of-imagery-ios-and-android-leaders-for-2024/"><u>Write on Windows of Imagery – iOS & Android Leaders for 2024</u></a></li>
 </ul></div>
 
