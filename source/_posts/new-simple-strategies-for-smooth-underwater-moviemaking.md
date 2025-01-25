@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2025-01-13T07:37:16.778Z
-updated: 2025-01-19T14:49:43.730Z
+date: 2025-01-21T06:16:03.182Z
+updated: 2025-01-24T17:15:31.677Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -50,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Get closer
@@ -63,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -77,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -84,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  To add greater stability to your camera, hold it as close to yourself as is realistically possible. Alternatively, consider using a tripod if you can. Keep your camera on your subject for as long as you need to, and try to wait for ten seconds without re-adjusting your camera at all.
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
 
@@ -98,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
@@ -108,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -126,6 +122,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,24 +152,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-prime-selection-optimal-free-and-paid-bd-players-for-windows-macos/"><u>[New] 2024 Approved Prime Selection Optimal Free & Paid BD Players for Windows, macOS</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-playwriting-workshop/"><u>[New] In 2024, Ultimate Playwriting Workshop</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-viral-video-vanguard-top-ten-in-one-hour-one-day-on-yt/"><u>[New] In 2024, Viral Video Vanguard Top Ten in One Hour, One Day on YT</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unveiling-the-specs-hp-envy-27s-4k-capabilities-for-2024/"><u>[New] Unveiling the Specs HP Envy 27'S 4K Capabilities for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-erase-unwanted-black-fringes-on-youtube-tracks/"><u>[Updated] 2024 Approved Erase Unwanted Black Fringes on YouTube Tracks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[Updated] 2024 Approved Restore Pristine Photos Easily Discover Top 10 Online Enhancers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-unleash-the-full-potential-in-the-metaverse-with-this-list/"><u>[Updated] 2024 Approved Unleash the Full Potential in the Metaverse with This List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-excellence-in-image-making-via-premium-grid-makers-for-2024/"><u>[Updated] Excellence in Image Making via Premium Grid Makers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-how-to-optimize-your-next-4k-camera-lens-purchase-for-2024/"><u>[Updated] How to Optimize Your Next 4K Camera Lens Purchase for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unleashing-the-full-potential-of-your-phone-into-vr-realm/"><u>[Updated] In 2024, Unleashing the Full Potential of Your Phone Into VR Realm</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-turning-viewers-into-revenue-key-video-figures/"><u>[Updated] Turning Viewers Into Revenue Key Video Figures</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-apowersoft-examined-a-full-review-of-its-capabilities/"><u>2024 Approved Apowersoft Examined A Full Review of Its Capabilities</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/advanced-palette-tweaks-by-professionals/"><u>Advanced Palette Tweaks by Professionals</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-sony-xperia-1-v-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Sony Xperia 1 V 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/how-to-copy-partitions-from-one-hard-drive-to-another-using-windows-11/"><u>How to Copy Partitions From One Hard Drive to Another Using Windows 11</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/kopieren-von-spielen-auf-ihrem-iphone-eine-schritt-fur-schritt-anleitung/"><u>Kopieren Von Spielen Auf Ihrem iPhone: Eine Schritt-Für-Schritt-Anleitung</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/premium-6-choices-for-cost-effective-4k-projection/"><u>Premium 6 Choices for Cost-Effective 4K Projection</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-10-audio-transformation-apps-for-next-level-vtuber-performance/"><u>Top 10 Audio Transformation Apps for Next-Level VTuber Performance</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-create-a-personalized-internet-joke-today/"><u>[New] 2024 Approved Create a Personalized Internet Joke Today</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-empower-collaborative-meetings-the-best-10-free-recorders-in-review-for-2024/"><u>[New] Empower Collaborative Meetings The Best 10 Free Recorders in Review for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-streamline-filming-borders-on-instagram-videos-for-2024/"><u>[New] Streamline Filming Borders on Instagram Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-audio-visual-harmony-in-digital-photos/"><u>[Updated] 2024 Approved Audio-Visual Harmony in Digital Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-bring-life-to-pixels-add-motion-blur/"><u>[Updated] Bring Life to Pixels Add Motion Blur</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-15-best-gopro-alternatives-for-all-your-needs/"><u>[Updated] In 2024, 15 Best GoPro Alternatives for All Your Needs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-premiere-20-unlicensed-pubg-picture-collections/"><u>[Updated] In 2024, Premiere 20 Unlicensed PUBG Picture Collections</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-15-leading-cameras-excluding-gopro/"><u>[Updated] Unveiling the 15 Leading Cameras Excluding GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-live-stream-showdown-xsplit-vs-obs/"><u>2024 Approved Live Stream Showdown XSplit Vs. OBS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-the-15-leading-cameras-excluding-gopro/"><u>2024 Approved Unveiling the 15 Leading Cameras Excluding GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/airdrop-not-working-how-to-fix-it-on-iphone-ipad-and-mac-for-2024/"><u>Airdrop Not Working, How to Fix It on iPhone, iPad, & Mac for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/best-laughter-inducing-flicks-your-guide-to-free-viewing-and-downloads-of-comedy-classics/"><u>Best Laughter-Inducing Flicks: Your Guide to Free Viewing & Downloads of Comedy Classics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/passive-viewers-to-earnings-youtubes-monetization-mastery/"><u>From Passive Viewers to Earnings YouTube's Monetization Mastery</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/simplifying-the-process-of-enabling-virtual-screen-on-meet/"><u>Simplifying the Process of Enabling Virtual Screen on Meet</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-elite-selection-of-stardew-customizations-and-updates-for-2024/"><u>The Elite Selection of Stardew Customizations and Updates for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-efficient-techniques-for-disinfecting-your-television-remote/"><u>Ultimate Guide: Efficient Techniques for Disinfecting Your Television Remote</u></a></li>
 </ul></div>
 

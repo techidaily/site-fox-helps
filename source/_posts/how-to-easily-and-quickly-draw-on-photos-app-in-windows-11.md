@@ -1,7 +1,7 @@
 ---
 title: "How to Easily and Quickly Draw on Photos App in Windows 11"
-date: 2024-08-08T17:12:28.682Z
-updated: 2024-08-09T17:12:28.682Z
+date: 2025-01-19T01:41:57.916Z
+updated: 2025-01-24T21:37:19.922Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 
 # How to Easily and Quickly Draw on Photos App in Windows 10
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -35,8 +32,9 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 * [**Part2: How to Draw on Photos Online**](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -46,13 +44,18 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -68,25 +71,24 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 * You can see a range of options when you click on Draw, but you need to select the drawing tool
 * You get 7 options for tool selection – filled polygon, filled ellipse, ellipse, filled rectangle, rectangle, straight line, and free hand pencil. Select the free hand pencil option
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
@@ -118,4 +120,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-chucklecrafts-join-and-start-crafting-laughter-for-2024/"><u>[New] ChuckleCrafts Join and Start Crafting Laughter for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-overcoming-youtubes-content-id-blockades-with-tactics/"><u>[New] Overcoming YouTube's Content ID Blockades with Tactics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-stepwise-journey-becoming-a-pro-with-audacity-for-recording-for-2024/"><u>[New] Stepwise Journey Becoming a Pro with Audacity for Recording for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-from-digital-designs-to-emoji-delights-making-the-most-of-your-gifs/"><u>[Updated] 2024 Approved From Digital Designs to Emoji Delights Making the Most of Your GIFs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-perfect-your-videography-skills-with-our-expert-tutorial-series/"><u>[Updated] In 2024, Perfect Your Videography Skills with Our Expert Tutorial Series</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-supreme-cameras-for-extreme-sports-fans/"><u>2024 Approved Supreme Cameras for Extreme Sports Fans</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unraveling-the-secrets-of-exceptional-green-screen-filming/"><u>2024 Approved Unraveling the Secrets of Exceptional Green Screen Filming</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/get-ready-to-have-a-blast-6-top-notch-chatgpt-games-awaiting-you/"><u>Get Ready to Have a Blast: 6 Top-Notch ChatGPT Games Awaiting You</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-comprehensive-review-of-googles-ar-stickers/"><u>In 2024, Comprehensive Review of Google's AR Stickers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-leading-waterproof-cams-7-compilation-review/"><u>In 2024, Leading Waterproof Cams #7 Compilation Review</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-media-meld-space/"><u>In 2024, Media Meld Space</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-picture-in-picture-feature-in-chrome-anywhere/"><u>Mastering Picture In Picture Feature in Chrome, Anywhere</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/savvy-sentries-of-the-mind-top-quizzes/"><u>Savvy Sentries of the Mind Top Quizzes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/virtual-help-hub-comprehensive-support-services-for-winx-media-conversion-tools-and-dvd-copying-features/"><u>Virtual Help Hub: Comprehensive Support Services for WinX Media Conversion Tools and DVD Copying Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/why-is-instagram-turning-my-videos-sideways/"><u>Why Is Instagram Turning My Videos Sideways?</u></a></li>
+</ul></div>
 
