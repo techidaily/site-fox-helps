@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Simplify Aquatic Footage  7 Key Shooting Strategies\""
-date: 2025-01-17T21:27:33.853Z
-updated: 2025-01-19T03:02:53.342Z
+date: 2025-01-31T09:39:39.879Z
+updated: 2025-02-04T18:33:08.467Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -55,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -70,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -81,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
@@ -88,7 +92,7 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\. Wide angle
@@ -96,10 +100,6 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -110,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit your footage
@@ -152,14 +152,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-action-seekers-guide-to-polaroid-xs-100i/"><u>[New] 2024 Approved The Action Seeker's Guide to Polaroid XS 100I</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tips-for-crafting-an-engaging-video-closure-on-youtub/"><u>[Updated] 2024 Approved Tips for Crafting an Engaging Video Closure on YouTub</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-vr-accessories-unleashed-in-depth-reviews/"><u>[Updated] In 2024, VR Accessories Unleashed In-Depth Reviews</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-mastering-youtube-srt-extracts-a-triad-approach-for-2024/"><u>[Updated] Mastering YouTube SRT Extracts A Triad Approach for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-ultimate-30-list-of-no-cost-high-quality-online-film-effects-tools/"><u>[Updated] The Ultimate 30 List of No-Cost, High-Quality Online Film Effects Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/best-of-the-best-10-timeless-family-vacation-films/"><u>Best of the Best 10 Timeless Family Vacation Films</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exclusive-presidents-day-promotion-save-200-on-latest-macbook-pro-equipped-with-m3-pro-chip-special-offer-from-zdnet/"><u>Exclusive Presidents' Day Promotion: Save $200 on Latest MacBook Pro Equipped with M3 Pro Chip - Special Offer From ZDNet</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-harmonizing-your-camera-and-drone-with-a-pro-gimbal/"><u>In 2024, Harmonizing Your Camera and Drone with a Pro Gimbal</u></a></li>
-<li><a href="https://extra-information.techidaily.com/smilescreen-simple-steps-for-video-making/"><u>SmileScreen Simple Steps for Video Making</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-crayoncrafts-thorough-examination-and-users-manual-2eva-for-2024/"><u>[New] CrayonCrafts Thorough Examination & User's Manual 2Eva for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-subtitle-transformation-made-simple-top-10-lists/"><u>[New] Expert Subtitle Transformation Made Simple - Top 10 Lists</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-transforming-gaming-logs-alternatives-to-fbx-recording/"><u>[New] In 2024, Transforming Gaming Logs Alternatives to FBX Recording</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-androids-premier-photographic-tool-is-pickup-at-the-forefront-for-2024/"><u>[Updated] Android’s Premier Photographic Tool – Is PickUp at the Forefront for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-aperture-alchemy-crafting-the-top-10-lens-list/"><u>[Updated] Aperture Alchemy Crafting the Top 10 Lens List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-stage-youtube-wisdom-sidestep-these-8-common-mistakes/"><u>Early-Stage YouTube Wisdom Sidestep These 8 Common Mistakes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oppo-k11x-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Oppo K11x Without PUK Codes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-radiant-palette-adjuster/"><u>In 2024, Radiant Palette Adjuster</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-realme-narzo-60-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Realme Narzo 60 5G Location | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/simplifying-laptop-edits-with-inshot-software/"><u>Simplifying Laptop Edits with Inshot Software</u></a></li>
 </ul></div>
 

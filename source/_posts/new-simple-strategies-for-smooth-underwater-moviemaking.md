@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2025-01-21T06:16:03.182Z
-updated: 2025-01-24T17:15:31.677Z
+date: 2025-02-04T05:52:03.612Z
+updated: 2025-02-05T03:24:28.697Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Get closer
 
  You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
@@ -70,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -82,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
@@ -91,15 +87,15 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -121,10 +117,14 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -152,22 +152,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-create-a-personalized-internet-joke-today/"><u>[New] 2024 Approved Create a Personalized Internet Joke Today</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-empower-collaborative-meetings-the-best-10-free-recorders-in-review-for-2024/"><u>[New] Empower Collaborative Meetings The Best 10 Free Recorders in Review for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-streamline-filming-borders-on-instagram-videos-for-2024/"><u>[New] Streamline Filming Borders on Instagram Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-audio-visual-harmony-in-digital-photos/"><u>[Updated] 2024 Approved Audio-Visual Harmony in Digital Photos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-bring-life-to-pixels-add-motion-blur/"><u>[Updated] Bring Life to Pixels Add Motion Blur</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-15-best-gopro-alternatives-for-all-your-needs/"><u>[Updated] In 2024, 15 Best GoPro Alternatives for All Your Needs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-premiere-20-unlicensed-pubg-picture-collections/"><u>[Updated] In 2024, Premiere 20 Unlicensed PUBG Picture Collections</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-15-leading-cameras-excluding-gopro/"><u>[Updated] Unveiling the 15 Leading Cameras Excluding GoPro</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-live-stream-showdown-xsplit-vs-obs/"><u>2024 Approved Live Stream Showdown XSplit Vs. OBS</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-unveiling-the-15-leading-cameras-excluding-gopro/"><u>2024 Approved Unveiling the 15 Leading Cameras Excluding GoPro</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/airdrop-not-working-how-to-fix-it-on-iphone-ipad-and-mac-for-2024/"><u>Airdrop Not Working, How to Fix It on iPhone, iPad, & Mac for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/best-laughter-inducing-flicks-your-guide-to-free-viewing-and-downloads-of-comedy-classics/"><u>Best Laughter-Inducing Flicks: Your Guide to Free Viewing & Downloads of Comedy Classics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/passive-viewers-to-earnings-youtubes-monetization-mastery/"><u>From Passive Viewers to Earnings YouTube's Monetization Mastery</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30 5G Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/simplifying-the-process-of-enabling-virtual-screen-on-meet/"><u>Simplifying the Process of Enabling Virtual Screen on Meet</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/the-elite-selection-of-stardew-customizations-and-updates-for-2024/"><u>The Elite Selection of Stardew Customizations and Updates for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-efficient-techniques-for-disinfecting-your-television-remote/"><u>Ultimate Guide: Efficient Techniques for Disinfecting Your Television Remote</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-a-compreranium-of-hand-tracking-systems-for-2024/"><u>[New] A Compreranium of Hand Tracking Systems for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enriching-vlog-topics-to-share-for-2024/"><u>[New] Enriching Vlog Topics to Share for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unlock-the-power-of-design-in-audio-branding/"><u>[New] Unlock the Power of Design in Audio Branding</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unmatched-subtitle-expertise-top-10-leaders-in-video-caption-manipulation/"><u>[New] Unmatched Subtitle Expertise – Top 10 Leaders in Video Caption Manipulation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-exploring-hues-from-textbooks-to-canvas/"><u>[Updated] 2024 Approved Exploring Hues From Textbooks to Canvas</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-15-whatsapp-tricks-that-will-change-everything/"><u>[Updated] In 2024, Top 15 WhatsApp Tricks That Will Change Everything</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-playlist-of-scores-for-clips/"><u>[Updated] Ultimate Playlist of Scores for Clips</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/yl-u/"><u>独到见解专栏 - YL计算和软件 | 雪球创作：启发自u家的孤独之旅</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/comment-passez-facilement-des-fichiers-sans-erreur-sur-windows-11-8-ou-7/"><u>Comment Passez Facilement Des Fichiers Sans Erreur Sur Windows 11, 8 Ou 7?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-10-ultimate-action-hunting-cameras-ranked/"><u>In 2024, 10 Ultimate Action Hunting Cameras Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-fundamentals-of-managing-volume-increase-in-projects/"><u>In 2024, Fundamentals of Managing Volume Increase in Projects</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-multilingual-communication-a-guide-to-leveraging-chatgpt-for-language-translation/"><u>Mastering Multilingual Communication: A Guide to Leveraging ChatGPT for Language Translation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/obs-studio-for-gamers-ps4-screenshots-and-recordings-guide-for-2024/"><u>OBS Studio for Gamers PS4 Screenshots & Recordings Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-filmmakers-guide-to-using-standardized-color-luts/"><u>The Filmmaker's Guide to Using Standardized Color Luts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-5-pillars-behind-chatgpts-surge-in-popularity/"><u>Top 5 Pillars Behind ChatGPT’s Surge in Popularity</u></a></li>
 </ul></div>
 
