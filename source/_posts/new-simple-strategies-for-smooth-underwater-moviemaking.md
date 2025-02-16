@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2025-02-04T05:52:03.612Z
-updated: 2025-02-05T03:24:28.697Z
+date: 2025-02-13T18:53:26.036Z
+updated: 2025-02-16T04:23:10.857Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -54,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  This will also make your images clearer and more colourful.
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Lighting is important
 
@@ -66,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -77,25 +89,21 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -117,15 +125,7 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,20 +152,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-a-compreranium-of-hand-tracking-systems-for-2024/"><u>[New] A Compreranium of Hand Tracking Systems for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-enriching-vlog-topics-to-share-for-2024/"><u>[New] Enriching Vlog Topics to Share for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unlock-the-power-of-design-in-audio-branding/"><u>[New] Unlock the Power of Design in Audio Branding</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unmatched-subtitle-expertise-top-10-leaders-in-video-caption-manipulation/"><u>[New] Unmatched Subtitle Expertise – Top 10 Leaders in Video Caption Manipulation</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-exploring-hues-from-textbooks-to-canvas/"><u>[Updated] 2024 Approved Exploring Hues From Textbooks to Canvas</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-15-whatsapp-tricks-that-will-change-everything/"><u>[Updated] In 2024, Top 15 WhatsApp Tricks That Will Change Everything</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-ultimate-playlist-of-scores-for-clips/"><u>[Updated] Ultimate Playlist of Scores for Clips</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/yl-u/"><u>独到见解专栏 - YL计算和软件 | 雪球创作：启发自u家的孤独之旅</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/comment-passez-facilement-des-fichiers-sans-erreur-sur-windows-11-8-ou-7/"><u>Comment Passez Facilement Des Fichiers Sans Erreur Sur Windows 11, 8 Ou 7?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-10-ultimate-action-hunting-cameras-ranked/"><u>In 2024, 10 Ultimate Action Hunting Cameras Ranked</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-fundamentals-of-managing-volume-increase-in-projects/"><u>In 2024, Fundamentals of Managing Volume Increase in Projects</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-multilingual-communication-a-guide-to-leveraging-chatgpt-for-language-translation/"><u>Mastering Multilingual Communication: A Guide to Leveraging ChatGPT for Language Translation</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/obs-studio-for-gamers-ps4-screenshots-and-recordings-guide-for-2024/"><u>OBS Studio for Gamers PS4 Screenshots & Recordings Guide for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-filmmakers-guide-to-using-standardized-color-luts/"><u>The Filmmaker's Guide to Using Standardized Color Luts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-5-pillars-behind-chatgpts-surge-in-popularity/"><u>Top 5 Pillars Behind ChatGPT’s Surge in Popularity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-capturing-brilliance-essential-angles-in-iphone-photography/"><u>[New] 2024 Approved Capturing Brilliance Essential Angles in iPhone Photography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-guide-to-adding-effects-in-tiktok-videos/"><u>[New] 2024 Approved The Ultimate Guide to Adding Effects in TikTok Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-crafting-engaging-instagram-reels-step-by-step/"><u>[New] In 2024, Crafting Engaging Instagram Reels Step-by-Step</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-premier-macos-sierra-tools-for-video-changeovers/"><u>[New] In 2024, Premier macOS Sierra Tools for Video Changeovers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-soundscapes-synopsis-a-guide-to-visual-tunes/"><u>[New] In 2024, Soundscapes Synopsis A Guide to Visual Tunes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-precision-cinematography-closing-in-on-details-for-2024/"><u>[New] Precision Cinematography Closing in on Details for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-quintessential-vr-enhancements-for-players/"><u>[New] Quintessential VR Enhancements for Players</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ise-in-the-rankings-essential-seo-for-video-creators/"><u>[New] Rise in the Rankings Essential SEO for Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-critical-number-of-views-for-youtube-earnings/"><u>[New] The Critical Number of Views for YouTube Earnings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unmarked-image-accumulation-essentials/"><u>[New] Unmarked Image Accumulation Essentials</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/delving-into-history-accessible-copyrighted-canvases/"><u>Delving Into History Accessible, Copyrighted Canvases</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effortlessly-strengthen-wi-fi-security-on-windows-10781-a-step-by-step-guide/"><u>Effortlessly Strengthen Wi-Fi Security on Windows 10/7/8.1: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expertise-in-iphone-the-ultimate-hdr-photo-journey-for-2024/"><u>Expertise in iPhone The Ultimate HDR Photo Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-video-conferencing-with-a-blend-of-skype-and-zoom/"><u>In 2024, Enhance Video Conferencing with a Blend of Skype & Zoom</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-power-of-srt-in-broadcasting/"><u>In 2024, Unveiling the Power of SRT in Broadcasting</u></a></li>
+<li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/venturing-beyond-reality-understanding-vr-basics-for-2024/"><u>Venturing Beyond Reality Understanding VR Basics for 2024</u></a></li>
 </ul></div>
 

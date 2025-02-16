@@ -1,7 +1,7 @@
 ---
 title: "[New] Explore the Power of Easy Video Editing in Photos & Windows 11 for 2024"
-date: 2025-02-04T10:32:04.667Z
-updated: 2025-02-05T06:11:01.226Z
+date: 2025-02-09T08:14:37.614Z
+updated: 2025-02-16T05:06:01.083Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to trim video in Windows 10 Photos
@@ -55,18 +55,18 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
-**Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -80,15 +80,15 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,16 +127,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-viral-skeleton-master/"><u>[New] In 2024, Viral Skeleton Master</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-pathway-from-srt-to-subc-3-actionable-methods-for-2024/"><u>[New] Pathway From SRT to SUBC 3 Actionable Methods for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-master-quick-red-eye-correction-with-this-free-ios-tool/"><u>[Updated] 2024 Approved Master Quick Red-Eye Correction with This Free iOS Tool</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-gaming-and-video-content-showdown-twitch-and-youtube-compared/"><u>[Updated] In 2024, Gaming and Video Content Showdown Twitch & YouTube Compared</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-and-basic-win-driven-design-applications-guide/"><u>[Updated] Premium & Basic Win-Driven Design Applications Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-stream-vs-record-deciding-on-obs-studio-or-bandicam/"><u>[Updated] Stream vs Record Deciding on OBS Studio or Bandicam</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-wrapping-the-world-in-one-frame-not-two-sides/"><u>[Updated] Wrapping the World in One Frame, Not Two Sides</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-realme-c33-2023-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Realme C33 2023 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-honor-magic-5-lite-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Honor Magic 5 Lite</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-cannot-open-audio-device-problem-in-audacity-5-effective-fixes/"><u>Solving the 'Cannot Open Audio Device' Problem in Audacity: 5 Effective Fixes</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-essential-triad-of-upcoming-tech-breakthroughs-to-monitor-now/"><u>The Essential Triad of Upcoming Tech Breakthroughs to Monitor Now</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-bridging-gaps-in-dialogue-techniques-for-smooth-editing-with-garageband-for-2024/"><u>[New] Bridging Gaps in Dialogue Techniques for Smooth Editing with GarageBand for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-after-effects-textwork-essentials-the-10-best-presets/"><u>[New] In 2024, After Effects Textwork Essentials The 10 Best Presets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easy-peasy-youtube-tutorials-making-content-that-works-for-all/"><u>[New] In 2024, Easy-Peasy YouTube Tutorials Making Content That Works for All</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-invent-iconic-images-through-giphy/"><u>[New] In 2024, Invent Iconic Images Through Giphy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-navigating-lens-distortion-a-practical-guide-for-gopro-editors/"><u>[New] In 2024, Navigating Lens Distortion A Practical Guide for GoPro Editors</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-mastering-creativity-the-leading-chrome-drawing-apps-for-2024/"><u>[New] Mastering Creativity The Leading Chrome Drawing Apps for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-professional-workshop-embedding-countdown-features-in-obs/"><u>[Updated] 2024 Approved Professional Workshop Embedding Countdown Features in OBS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-premiers-choice-the-very-best-12-gps-integrated-camcorders/"><u>[Updated] Premier's Choice The Very Best 12 GPS-Integrated Camcorders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-guide-to-vr-game-engine-picks-2023-for-2024/"><u>[Updated] The Ultimate Guide to VR Game Engine Picks, 2023 for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-sony-xperia-5-v-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Sony Xperia 5 V? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/full-review-exploring-hero4-black-functions/"><u>Full Review Exploring Hero4 Black Functions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y200e-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo Y200e 5G Is Unlocked</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/leading-10-best-list-for-free-video-conferencing-and-desktop-sharing/"><u>Leading 10-Best List for FREE Video Conferencing & Desktop Sharing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-alchemy-of-aesthetics-top-1-written-by-an-experienced-graphic-designer/"><u>The Alchemy of Aesthetics Top 1 Written by an Experienced Graphic Designer</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-itel-p55-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/top-rated-free-hard-drive-partitioning-tools-for-all-windows-users-111087/"><u>Top Rated Free Hard Drive Partitioning Tools for All Windows Users (11/10/8/7)</u></a></li>
 </ul></div>
 

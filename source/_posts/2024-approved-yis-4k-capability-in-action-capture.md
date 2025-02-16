@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Yi's 4K Capability in Action Capture\""
-date: 2024-08-08T17:08:32.976Z
-updated: 2024-08-09T17:08:32.976Z
+date: 2025-02-09T22:55:50.628Z
+updated: 2025-02-16T01:08:03.290Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
 # YI 4K Action Camera Review
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -33,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -42,10 +43,11 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -79,10 +81,11 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -138,10 +141,11 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
  Need more information?[Check GoPro Hero5 Black vs Xiaomi Yi 4K Action Camera](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -166,6 +170,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-apple-macbook-air-vs-macbook-pro-which-m1-laptop-is-better/"><u>[New] Apple MacBook Air Vs. MacBook Pro Which M1 Laptop Is Better?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-exclusive-list-of-e-commerce-sites-for-one-of-a-kind-boxed-gifts/"><u>[New] In 2024, Exclusive List of E-Commerce Sites for One-of-a-Kind Boxed Gifts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-premier-meme-editing-software/"><u>[New] In 2024, Premier Meme Editing Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-now-available-vr-hardware-specs-for-2024/"><u>[New] Now Available VR Hardware Specs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-beyond-basics-why-hdr-dominates-in-video-editing-workflows/"><u>[Updated] 2024 Approved Beyond Basics Why HDR Dominates in Video Editing Workflows</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dslr-vs-mirrorless-optimal-choice-for-video-production-for-2024/"><u>[Updated] DSLR vs Mirrorless Optimal Choice for Video Production for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-flat-to-fantastic-animated-text-transformations-for-2024/"><u>[Updated] From Flat to Fantastic Animated Text Transformations for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-creative-climb-steps-towards-thriving-in-graphic-design/"><u>[Updated] The Creative Climb Steps Towards Thriving in Graphic Design</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-solutions-overcoming-the-problem-of-non-opening-discord-chat-platform/"><u>Effective Solutions: Overcoming the Problem of Non-Opening Discord Chat Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exclusive-top-10-list-free-image-layering-progs-iosandroid/"><u>Exclusive Top 10 List Free Image Layering Progs iOS/Android</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/extensive-appraisal-hero4-black-capabilities/"><u>Extensive Appraisal Hero4 Black Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-visionaryvideoeditor-thorough-breakdown-and-opinions/"><u>In 2024, VisionaryVideoEditor Thorough Breakdown & Opinions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/strengthening-bonds-networking-tips-for-youtube-content-creators-for-2024/"><u>Strengthening Bonds Networking Tips for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tackling-steam-network-failure-on-modern-pc-win11/"><u>Tackling Steam Network Failure on Modern PC, Win11</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-smartest-approach-to-launching-your-youtube-businesspersonal-brand-from-phone/"><u>The Smartest Approach to Launching Your YouTube Business/Personal Brand From Phone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unbeatable-ecovacs-deal-alert-top-of-the-line-deebots-and-winbots-now-at-50-off-for-a-limited-time-on-prime-day/"><u>Unbeatable ECOVACS Deal Alert: Top-of-the-Line Deebots and Winbots Now at 50% Off for a Limited Time on Prime Day!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/windows-hdri-a-users-editing-handbook-for-2024/"><u>Windows HDRI A User’s Editing Handbook for 2024</u></a></li>
+</ul></div>
 

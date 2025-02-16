@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Shining a Light  Top Photo Illumination Hacks\""
-date: 2024-08-08T17:07:46.284Z
-updated: 2024-08-09T17:07:46.284Z
+date: 2025-02-11T21:43:16.618Z
+updated: 2025-02-16T04:03:16.346Z
 tags: 
   - screen-recording
   - ai video
@@ -30,28 +30,28 @@ Photography derives its name from two ancient Greek words, photos, which means l
 
 Being a photographer means that you must be able to use light to your own advantage and play with it to get better results, so in this article we are going to take you through a lot of different types of light and we are going to provide you with useful tips on how to use light in your photos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## iPhone Photography Lighting Tips
 
 * [Part 1: Tips for Outdoor iPhone Photographers](#part1)
 * [Part 2: Tips for Indoor iPhone Photography Sessions](#part2)
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Tips for Outdoor iPhone Photographers
 
 **1\. Golden hour:** Diffused light is much more pleasant for taking photos and the softest natural light can be found during the sunrise and sunset. The hour before the sun sets or rises is called the golden hour and it is one of the best times of the day for photography in terms of the quality of light that is available. Colors on photos taken during the golden hour appear warm and pictures have a lot of red, yellow or orange due to the low position of the sun on the horizon. Sunrise and sunset are also a perfect time of the day to capture silhouette photos or breathtaking landscapes.
 
 ![golden-hour-photo](https://images.wondershare.com/filmora/article-images/golden-hour-photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Constractly
 
@@ -59,9 +59,6 @@ Anyone who has seen a photo of a sunset knows how light during the golden hour l
 
 **2\. Blue hour:** Around half an hour before the night ends or after the sunset there is still enough light to shoot amazing photos. During that narrow period of time, you can create stunning city vistas because the artificial light of metropolises creates a contrast to the sky in the background. The light during the blue hour is colder, which is why photos taken during the period tend to have more blues and greens.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![blue-hour-photography](https://images.wondershare.com/filmora/article-images/blue-hour-photography.jpg)
 
 Holding your phone in your hand while taking pictures during the blue hour may result in blurry photos because you have to set longer exposures in order to ensure your camera is getting enough light. Placing your iPhone on a tripod or on a surface on which it will be perfectly stable, will enable you to produce razor-sharp images with a lot of blue hour light.
@@ -77,6 +74,10 @@ The abundance of light puts you at risk of overexposing parts of your photo, and
 **4\. Cloudy sky:** Clouds can be photographer's best friend and his or her's worst enemy. A cloudy gray sky generates all sorts of problems to cameras because it is often much brighter than the rest of the scene. On the other hand, a blue sky with fluffy white clouds looks like the perfect background for a photo. This is a great example of how much outdoor photography depends on good weather conditions.
 
 ![cloudy-sky-lighting](https://images.wondershare.com/filmora/article-images/cloudy-sky-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: Digital Photo Secrets
 
@@ -94,9 +95,6 @@ As rewarding as they may be, mist creates a lot of problems for iPhone photograp
 
 **6\. Backlight:** Commonly, photos receive most of the light from the light that falls from the front, but when the light falls from the back of the photo's subject that means that the picture is backlit. The best example of the backlit photo is a silhouette photo, because most of the light in the photo comes from the source located behind the subject of a photo, thus making it possible to create a silhouette of a figure.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![get-silhoutte-photo](https://images.wondershare.com/filmora/article-images/get-silhoutte-photo.jpg)
 
 Image resource: Google
@@ -105,9 +103,6 @@ All you need to do in order to capitalize on backlight is to place the subject o
 
 **7\. Artificial light at night:** Long exposure photography is an art that takes time to master, but being patient and willing to learn all its tricks will improve your photo taking skills. Using an artificial light at night can help you avoid using flash or tripods while taking photos with an iPhone. Even if there is a lot of artificial light in the scene you want to photograph, the stability of your camera should be your main concern because even the smallest camera shake can easily blur the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![artificial-light-outdoor](https://images.wondershare.com/filmora/article-images/artificial-light-outdoor.jpg)
 
 Image resource: Efram Goldberg Photography
@@ -115,6 +110,10 @@ Image resource: Efram Goldberg Photography
 Rain creates reflections of artificial light on the streets at night, which is why if you like night photography, taking pictures at night after the rain is one of the best times for long exposure pictures. iPhones can capture amazing night shots, but they do need additional photo equipment to achieve their best results.
 
 ### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tips for Indoor iPhone Photography Sessions
 
@@ -149,6 +148,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-10-best-live-streaming-platforms-you-should-know/"><u>[New] 2024 Approved 10 Best Live Streaming Platforms You Should Know</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-cyberspace-screenplays-virtual-movie-journeys/"><u>[New] Cyberspace Screenplays Virtual Movie Journeys</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-free-video-chatting-software-for-windowsmac-users-uncovered/"><u>[New] In 2024, Free Video Chatting Software for Windows/Mac Users Uncovered</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-propel-your-skills-with-the-finest-android-drawing-software/"><u>[New] Propel Your Skills with the Finest Android Drawing Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enhance-your-listeners-experience-with-great-summaries/"><u>[Updated] Enhance Your Listeners' Experience with Great Summaries</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-hasty-hacks-for-enhancing-personal-movie-making/"><u>[Updated] In 2024, Hasty Hacks for Enhancing Personal Movie Making</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-cartoony-transformation-tools-for-pcs-and-macs/"><u>[Updated] Ultimate Cartoony Transformation Tools for PCs & Macs</u></a></li>
+<li><a href="https://discover-best.techidaily.com/buy-now-comparing-value-of-dvds-blu-ray-discs-and-digital-media-formats-for-your-viewing-pleasure/"><u>Buy Now: Comparing Value of DVDs, Blu-Ray Discs, and Digital Media Formats for Your Viewing Pleasure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-best-features-of-maistos-rc-rock-crawler-perfect-for-family-fun/"><u>Exploring the Best Features of Maisto's RC Rock Crawler - Perfect for Family Fun</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-s17t-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to S17t Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-game-crashes-decode-and-repair-your-cod-vanguard-en-error-0x00001338-on-pc-now/"><u>No More Game Crashes – Decode and Repair Your COD Vanguard E:N (Error 0X00001338) on PC Now!</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-diagnostics-policy-service-not-running-issue-quickly/"><u>Resolving 'Diagnostics Policy Service Not Running' Issue Quickly</u></a></li>
+</ul></div>
 

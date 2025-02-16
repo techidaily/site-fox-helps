@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Regaining Access to Windows Photo Viewer  Two Steps for Windows 10\""
-date: 2024-08-08T17:11:27.663Z
-updated: 2024-08-09T17:11:27.663Z
+date: 2025-02-13T05:13:25.817Z
+updated: 2025-02-16T03:04:48.001Z
 tags: 
   - screen-recording
   - ai video
@@ -58,8 +58,9 @@ Here is why they want to restore Windows Photo Viewer –
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -73,8 +74,9 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -89,21 +91,27 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -130,6 +138,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-capturing-the-action-overwatch-video-recordings/"><u>[New] Capturing the Action Overwatch Video Recordings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exclusive-panzoid-blueprint-selections/"><u>[New] Exclusive Panzoid Blueprint Selections</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-free-video-player-face-off-vlc-versus-mpc-for-2024/"><u>[New] Free Video Player Face-Off VLC Versus MPC for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-strategic-spending-to-skyrocket-your-video-views/"><u>[New] In 2024, Strategic Spending to Skyrocket Your Video Views</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-futures-canvas-unveiling-6-pioneers-of-nft-artistry/"><u>[New] In 2024, The Future's Canvas Unveiling 6 Pioneers of NFT Artistry</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mkv-mastery-best-mac-app-compilation-for-2024/"><u>[New] MKV Mastery Best Mac App Compilation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-profiles-in-metaverse-promotion-case-studies-and-more-for-2024/"><u>[New] Profiles in Metaverse Promotion Case Studies and More for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-affordable-subscriber-boost-buy-and-sell-youtube-views/"><u>[Updated] 2024 Approved Affordable Subscriber Boost Buy & Sell YouTube Views</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-becoming-a-maestro-at-zoom-broadcasting-on-youtube/"><u>[Updated] 2024 Approved Becoming a Maestro at Zoom Broadcasting on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tackling-the-challenge-of-locating-fbs-most-watched-videos-2e23/"><u>[Updated] 2024 Approved Tackling the Challenge of Locating Fb's Most-Watched Videos (2E23)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-embark-on-a-journey-through-augmented-space/"><u>[Updated] Embark on a Journey Through Augmented Space</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-text-tactics-top-10-best-practices/"><u>[Updated] In 2024, Text Tactics Top 10 Best Practices</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-streamline-your-gameplay-memory-with-these-6-steps/"><u>[Updated] Streamline Your Gameplay Memory with These 6 Steps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-explore-best-free-cloud-storage-services-accessible-up-to-1tb/"><u>2024 Approved Explore Best Free Cloud Storage Services - Accessible Up to 1TB</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/discovering-innovation-in-stories-top-4-artificial-intelligence-wizards/"><u>Discovering Innovation in Stories: Top 4 Artificial Intelligence Wizards</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-oppo-a38-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Oppo A38 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-slow-motion-a-guide-to-photo-editing-tools/"><u>Mastering Slow-Motion A Guide to Photo Editing Tools</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/techniques-to-reduce-nausea-while-in-vr-for-2024/"><u>Techniques to Reduce Nausea While In VR for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-best-beginnings-choosing-valheims-prime-plants/"><u>The Best Beginnings Choosing Valheim's Prime Plants</u></a></li>
+</ul></div>
 

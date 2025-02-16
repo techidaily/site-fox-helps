@@ -1,7 +1,7 @@
 ---
 title: "[New] Guidelines for Accurate Dating of Digital Pictures"
-date: 2025-01-30T06:39:57.342Z
-updated: 2025-02-04T16:13:29.130Z
+date: 2025-02-09T02:19:16.519Z
+updated: 2025-02-16T01:10:48.484Z
 tags: 
   - screen-recording
   - ai video
@@ -71,6 +71,10 @@ You probably know that you can **edit photos on your phone** or tablet. With the
 But what if you miss an important date? How would you plan for this? Well, now you have a solution to this problem by using **date stamps on your photos**.
 
 You can do this in two ways: With an **inbuilt photo editor** or an **external photo editor**. Let's take a look at both.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Use the inbuilt photo app on Android and iPhone to add date stamps
 
@@ -148,10 +152,6 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 
 ![vsco](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Color Correction
@@ -191,10 +191,6 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use inbuilt photo app on mac to add date stamps
 
 **Adding a date in a photo** can also be done on a Mac pc. Below are the steps to take to **add the date to a photo** with a Mac
@@ -208,6 +204,10 @@ Step2Then select Show Markup Tool.
 Step3Click on the text button.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4Proceed to add date and time into the text area manually.
 
@@ -230,7 +230,7 @@ Step2At the top of your screen, click on Edit & Create to get.
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Add date stamps using Windows PC
@@ -253,6 +253,10 @@ Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
@@ -264,10 +268,6 @@ Step7Proceed to click on the Save option.
 ## Part 4\. Edit Photos Online to add date stamps
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Canva](https://www.canva.com/photo-editor/)
 
@@ -299,10 +299,6 @@ Canva is a standout online photo editor where you can edit your and **add date t
 PIXLR is another great online platform that can be used to **edit pictures online**. PIXLR offers amazing features with its services. To use the platform, you must **sign up and upload a photo**.
 
 ![pixlp](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-21.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Key features**
 
@@ -382,15 +378,15 @@ The stock Android Camera app has full editing features that allow you to crop, r
 
 The stock iPhone Camera app also has full editing tools that allow you to crop, rotate and adjust the contrast of your photos. You can also add stickers and frames to your photo within this app.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use other photo editors to edit photos
 
 Why knowing **how to add date to a photo** with your in-built app is important; here is a complete guide on how you can use other third-party apps to **edit photos on your phone**.
 
 You can make use of other photo editing apps to edit your pictures. Here are three applications that you will find useful to do this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Instasize**
 
@@ -427,6 +423,10 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 * Healing Brushes
 
 You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **VSCO**
 
@@ -492,16 +492,12 @@ Step4Proceed to add date and time into the text area manually.
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step6Finally, select File>Save to add your date to the picture.
 
@@ -512,6 +508,10 @@ Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the imag
 Step2At the top of your screen, click on Edit & Create to get.
 
 ![click on edit create to get](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
@@ -532,7 +532,7 @@ Step4To create a text box, click and drag.
 ![create a text box](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-15.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5Enter the date you want.
@@ -569,6 +569,10 @@ Canva is a standout online photo editor where you can edit your and **add date t
 
 ![ftor](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-20.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Key Features**
 
 * Portrait Retouching
@@ -581,10 +585,6 @@ Canva is a standout online photo editor where you can edit your and **add date t
 PIXLR is another great online platform that can be used to **edit pictures online**. PIXLR offers amazing features with its services. To use the platform, you must **sign up and upload a photo**.
 
 ![pixlp](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-21.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Key features**
 
@@ -624,21 +624,24 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-the-craft-of-in-depth-and-impactful-interviews/"><u>[New] 2024 Approved Mastering the Craft of In-Depth and Impactful Interviews</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-10-action-cam-audio-upgrades/"><u>[New] 2024 Approved Top 10 Action Cam Audio Upgrades</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-digital-resurrection-breathing-life-into-old-vhs-images-for-2024/"><u>[New] Digital Resurrection Breathing Life Into Old VHS Images for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-integrating-social-spaces-tiktok-uploads-on-facebook-for-2024/"><u>[New] Integrating Social Spaces TikTok Uploads on Facebook for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-the-essential-playbook-turning-your-phone-into-a-vr-setup/"><u>[New] The Essential Playbook Turning Your Phone Into a VR Setup</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>[Updated] 2024 Approved Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-gazescope-grading-guide/"><u>[Updated] 2024 Approved GazeScope Grading Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-which-is-superior-gopro-max-360-or-hero-11/"><u>[Updated] 2024 Approved Which Is Superior, GoPro Max 360 or Hero 11?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-visual-wonders-an-insiders-guide-to-editing-on-snapchat/"><u>[Updated] Crafting Visual Wonders An Insider’s Guide to Editing on Snapchat</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unravel-the-secrets-of-saving-and-playing-gifs-on-your-ios-device/"><u>[Updated] In 2024, Unravel the Secrets of Saving & Playing GIFs on Your iOS Device</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-visualquilt-maker-macos-photoplusvideo-display/"><u>[Updated] In 2024, VisualQuilt Maker MacOS Photo+Video Display</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-obs-studio-vs-fraps-top-screen-capture-software-showdown/"><u>2024 Approved OBS Studio Vs Fraps Top Screen Capture Software Showdown</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-infused-inspiration-5-groundbreaking-writing-tools/"><u>AI-Infused Inspiration: 5 Groundbreaking Writing Tools</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oneplus-open-by-drfone-android/"><u>How To Fix OEM Unlock Missing on OnePlus Open?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-collecting-classics-copyrights-released/"><u>In 2024, Collecting Classics Copyrights Released</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-for-the-elusive-d3dxwindowsdll-error-and-how-to-fix-it/"><u>Step-by-Step Solutions for the Elusive D3DXWINDOWS.dll Error and How to Fix It</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elite-recording-equipment-headset-screen-preferred/"><u>[New] 2024 Approved Elite Recording Equipment Headset Screen Preferred</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-undersea-video-7-easy-to-follow-techniques/"><u>[New] 2024 Approved Mastering Undersea Video 7 Easy-to-Follow Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-crossapple-windows-vmx-version/"><u>[New] In 2024, CrossApple-Windows VMX Version</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-shopping-spree-to-stunning-video-haul-editing-explained/"><u>[New] In 2024, From Shopping Spree to Stunning Video Haul Editing Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-jaunt-vr-a-gateway-to-virtual-worlds/"><u>[New] Jaunt VR A Gateway to Virtual Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-strategies-pinterest-to-mp3-migration-guide-for-2024/"><u>[New] Ultimate Strategies Pinterest to MP3 Migration Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-comprehensive-study-gopro-slr4-sliver-feature-review/"><u>[Updated] 2024 Approved Comprehensive Study GoPro SLR4 Sliver Feature Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-augmented-reality-stickers-by-google-unveiled-and-compared-for-2024/"><u>[Updated] Augmented Reality Stickers by Google Unveiled and Compared for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-best-free-introduction-software-for-youtubers-for-2024/"><u>[Updated] Best Free Introduction Software for Youtubers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-hero-vs-hero-a-technological-comparison-for-2024/"><u>[Updated] Hero Vs Hero A Technological Comparison for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-command-line-magic-opening-srt-for-windows-macos/"><u>[Updated] In 2024, Command Line Magic Opening SRT for Windows, MacOS</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-innovative-video-designs-free-premiere-plans/"><u>[Updated] In 2024, Innovative Video Designs Free Premiere Plans</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfect-your-iphone-videographyphoto-expertise-with-add-ons/"><u>[Updated] Perfect Your iPhone Videography/Photo Expertise With Add-Ons</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-snapchat-slideshow-technique-for-2024/"><u>[Updated] The Ultimate Snapchat Slideshow Technique for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/a-complete-guide-to-fixing-slow-loading-times-in-rainbow-six-siege/"><u>A Complete Guide to Fixing Slow Loading Times in Rainbow Six Siege</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bypassing-url-scanning-in-microsoft-offices-spellcheck-a-step-by-step-guide/"><u>Bypassing URL Scanning in Microsoft Office's Spellcheck: A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/capture-and-amplify-no-cost-digital-picture-upgrades/"><u>Capture & Amplify - No Cost Digital Picture Upgrades</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-oppo-find-n3-flip-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Oppo Find N3 Flip for Streaming | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-photographers-toolkit-top-text-editors-for-images/"><u>The Photographer's Toolkit Top Text Editors for Images</u></a></li>
 </ul></div>
 

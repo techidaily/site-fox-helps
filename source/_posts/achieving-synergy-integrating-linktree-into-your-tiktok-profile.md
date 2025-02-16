@@ -1,7 +1,7 @@
 ---
 title: "\"Achieving Synergy  Integrating Linktree Into Your TikTok Profile\""
-date: 2024-08-08T17:09:29.436Z
-updated: 2024-08-09T17:09:29.436Z
+date: 2025-02-12T04:33:00.737Z
+updated: 2025-02-16T03:14:32.094Z
 tags: 
   - screen-recording
   - ai video
@@ -42,9 +42,6 @@ Using social media platforms correctly can boost your business significantly. Ho
 
 It is a freemium service that allows you to create a landing page with all your important links in one place. Then you can add the link of your Linktree landing page to the bio of your account on different social media platforms like TikTok, Instagram, etc. It allows your followers to easily access your links portfolio in one place, making it easier for them to visit their desired link.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Collaboration with TikTok
 
 Linktree has always supported adding your TikTok accounts link to your landing page. In October 2022, TikTok and Linktree announced a new collaboration to enhance the user experience by working on a new feature called “Profile Kit.” Part of the TikTok for Developers Program, it also includes SDK Login Kit, which allows users to log in through their TikTok credentials.
@@ -91,6 +88,10 @@ If you are creating Linktree on a web browser, use these steps to easily create 
 
 ![add your tiktok account](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** You can change the page theme, add a profile picture and insert a bio by clicking "Appearance." Through “Settings,” you can add SEO tags, integrate a mailing list, link your social media accounts, and do many other things.
 
 ![adjust the linktree appearance](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-5.jpg)
@@ -116,8 +117,9 @@ Linktree mobile app is also viable for creating a Linktree landing page if you a
 ![adjust the appearance settings](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to Add Link in TikTok Bio?
 
 Now that you have created your link portfolio on your Linktree landing page, the question is how you can add **Linktree to TikTok**. You can check this article to learn how to add a link to your TikTok bio.
@@ -139,6 +141,10 @@ TikTok has unlimited potential for business development, and you should fully ut
 * [Part 3: How to Add Link in TikTok Bio?](#%5FToc126053427)
 * [Bonus: How to make TikTok Videos?](#%5FToc126053428)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Linktree?
 
 Using social media platforms correctly can boost your business significantly. However, most of them don’t allow you to add multiple links in your bio. It becomes problematic if you want to add links to your other social media accounts, stores, and web pages besides your official website. To solve this issue, [Linktree](https://linktr.ee/) was created in 2016.
@@ -150,6 +156,10 @@ It is a freemium service that allows you to create a landing page with all your 
 Linktree has always supported adding your TikTok accounts link to your landing page. In October 2022, TikTok and Linktree announced a new collaboration to enhance the user experience by working on a new feature called “Profile Kit.” Part of the TikTok for Developers Program, it also includes SDK Login Kit, which allows users to log in through their TikTok credentials.
 
 After Profile Kit integration, the TikTok creators will have a more enhanced and engaging user experience on Linktree. Users can now log in to their TikTok through Linktree and display up to 6 of their videos to enhance their profile. People viewing the TikTok creator's profile on Linktree can play those videos without leaving the platform.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Premium Services Offered by Linktree
 
@@ -175,6 +185,10 @@ It is a freemium service with multiple paid plans. Although basic features like 
 
 The process to make a Linktree is quick and simple to follow. It will take you less than 5 minutes to set up a landing page and **Linktree to TikTok**. There is also a Linktree mobile app that can be used to create a Linktree landing page. You can learn how to create a Linktree using a website and mobile app below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step-by-Step Guide for Creating a Linktree on Browser
 
 If you are creating Linktree on a web browser, use these steps to easily create your Linktree landing page:
@@ -183,9 +197,17 @@ If you are creating Linktree on a web browser, use these steps to easily create 
 
 ![tap on sign up free](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Create your account password and tap “Continue.” Next, you will be asked to provide your name and choose your business or content categories. After choosing, click “Continue” and select a subscription package on the next screen.
 
 ![create your unique password](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Click on the link sent in your email to verify your account to proceed further. Once verified, press “Add Link” to add your first link. Here, you can add a direct link or click "View All" and choose a specific platform like "TikTok" to add your TikTok link.
 
@@ -195,28 +217,17 @@ If you are creating Linktree on a web browser, use these steps to easily create 
 
 ![adjust the linktree appearance](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Simple Instruction to Create a Linktree on Mobile Device
 
 Linktree mobile app is also viable for creating a Linktree landing page if you aren't comfortable creating an account on a website. Follow these steps to create Linktree using the mobile app:
 
 **Step 1:** Launch the Linktree app on your phone and press “Sign Up.” It will take you to your phone's browser, where you first need to create a username, provide your email, and create the account password.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![select the signup option](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Now you will be moved back to the app, and here you need to enter your name and select business or content categories. After that, you will receive a mail for account verification. Verify the account to proceed further.
 
@@ -230,9 +241,17 @@ Linktree mobile app is also viable for creating a Linktree landing page if you a
 
 ![adjust the appearance settings](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Add Link in TikTok Bio?
 
 Now that you have created your link portfolio on your Linktree landing page, the question is how you can add **Linktree to TikTok**. You can check this article to learn how to add a link to your TikTok bio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: How to make TikTok Videos?
 
@@ -268,6 +287,20 @@ TikTok has unlimited potential for business development, and you should fully ut
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-captivate-crowds-social-media-growth-hacks-for-youtube-for-2024/"><u>[New] Captivate Crowds Social Media Growth Hacks for YouTube for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-casual-to-pro-unpacking-kinemaster-for-android-gamers/"><u>[New] From Casual to Pro Unpacking KineMaster for Android Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveil-the-finest-vr-cycling-worlds-for-2024/"><u>[New] Unveil the Finest VR Cycling Worlds for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-innovating-quickly-2-approaches-to-making-snapchat-filters/"><u>[Updated] 2024 Approved Innovating Quickly 2 Approaches to Making Snapchat Filters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-jovial-jamboree-accessing-comic-crafts-for-free/"><u>[Updated] In 2024, Jovial Jamboree Accessing Comic Crafts for Free</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-premium.techidaily.com/mpegswf-movavi/"><u>線上自由MPEG到SWF的轉換 – 使用Movavi轉換器快速完成</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/gamers-almanac-expert-tips-to-record-and-save-your-minecraft-sessions-for-2024/"><u>Gamer's Almanac Expert Tips to Record and Save Your Minecraft Sessions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-smart-shelfings-leading-frame-apps-of-the-future/"><u>In 2024, Smart Shelfings Leading Frame Apps of the Future</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-file-transfers-from-android-to-apple-devices-for-2024/"><u>Navigating File Transfers From Android to Apple Devices for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/perfecting-your-srt-craft-a-compreran-guide-to-tips-and-tricks/"><u>Perfecting Your SRT Craft A Compreran Guide to Tips & Tricks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-apcs-back-ups-pro-1500va-powerhouse-performance-with-plenty-of-usb-ports-and-hot-swappable-batteries/"><u>The Definitive Guide to APC's Back-UPS Pro 1500VA: Powerhouse Performance with Plenty of USB Ports & Hot-Swappable Batteries</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-password-cracking-tools-for-oneplus-11r-by-drfone-android/"><u>Top 10 Password Cracking Tools For OnePlus 11R</u></a></li>
+</ul></div>
 

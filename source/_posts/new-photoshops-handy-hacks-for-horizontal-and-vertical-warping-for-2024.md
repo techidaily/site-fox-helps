@@ -1,7 +1,7 @@
 ---
 title: "[New] Photoshop's Handy Hacks for Horizontal and Vertical Warping for 2024"
-date: 2025-01-31T03:40:09.764Z
-updated: 2025-02-04T17:23:27.677Z
+date: 2025-02-11T19:09:28.750Z
+updated: 2025-02-16T02:58:44.958Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
@@ -55,33 +51,33 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Save the Image
 
@@ -90,7 +86,11 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,16 +127,24 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-savor-on-screen-mastering-food-films-with-these-7-essentials/"><u>[New] 2024 Approved Savor on Screen - Mastering Food Films with These 7 Essentials</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-how-to-get-windows-photo-viewer-running-smoothly-on-win-11/"><u>[New] How to Get Windows Photo Viewer Running Smoothly on Win 11</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlocking-windows-10-sound-capabilities/"><u>[New] In 2024, Unlocking Windows 10 Sound Capabilities</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tailoring-your-content-strategy-for-changed-algorithms/"><u>[Updated] In 2024, Tailoring Your Content Strategy for Changed Algorithms</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-syncing-speakers-with-slides-a-handbook-on-music-integration/"><u>2024 Approved Syncing Speakers with Slides A Handbook on Music Integration</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Vivo S18e | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-top-tech-picks-for-entering-and-thriving-in-the-metaverse/"><u>In 2024, Top Tech Picks for Entering and Thriving in the Metaverse</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/photobooth-playback-error-constant-pause-issues-for-2024/"><u>Photobooth Playback Error Constant Pause Issues for 2024</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/premium-wallpapers-and-hd-visuals-for-the-alfa-romeo-sauber-c37-f1-car-download-now-at-yl-software/"><u>Premium Wallpapers and HD Visuals for the Alfa Romeo Sauber C37 F1 Car – Download Now at YL Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/professional-insights-on-selecting-top-vhs-artistic-upgrades-for-2024/"><u>Professional Insights on Selecting Top VHS Artistic Upgrades for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unlock-6-free-youtube-endings-for-pros-in-2024/"><u>Unlock 6 Free YouTube Endings for Pros, In 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-unlock-creative-shots-with-photoshops-radial-distortion/"><u>[New] 2024 Approved Unlock Creative Shots with Photoshop's Radial Distortion</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-assessment-of-slomo-application-trends/"><u>[New] Full Assessment of SloMo Application - Trends</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unleash-potential-with-magix-video-pro-xs-power-tools/"><u>[New] In 2024, Unleash Potential with Magix Video Pro X's Power Tools</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-most-reliable-zero-price-online-photo-editors-guide/"><u>[New] The Most Reliable Zero-Price Online Photo Editors Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-film-star-access-pass-talent-release/"><u>[Updated] 2024 Approved Film Star Access Pass - Talent Release</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-how-to-send-large-video-files-from-iphone-to-iphonepcmac/"><u>[Updated] 2024 Approved How to Send Large Video Files From iPhone to iPhone/PC/Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-strategizing-superior-screen-snatchers/"><u>[Updated] 2024 Approved Strategizing Superior Screen-Snatchers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-capturing-seconds-extended-a-comprehensive-review-of-slomo-2024/"><u>[Updated] Capturing Seconds Extended A Comprehensive Review of SloMo, 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-your-virtual-alter-ego-in-a-metaverse-setting-for-2024/"><u>[Updated] Crafting Your Virtual Alter Ego in a Metaverse Setting for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhance-content-top-10-mobile-and-desktop-friendly-editors/"><u>[Updated] Enhance Content Top 10 Mobile & Desktop-Friendly Editors</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-by-step-tutorial-applying-computer-vhs-filters-for-2024/"><u>[Updated] Step-by-Step Tutorial Applying Computer VHS Filters for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-screensnapper-pro-2023-apowersofts-latest-for-pcs/"><u>2024 Approved ScreenSnapper Pro 2023 Apowersoft's Latest for PCs</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-static-to-sprightly-bouncing-text-animations-for-2024/"><u>From Static to Sprightly Bouncing Text Animations for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/getting-started-with-your-new-epson-scanner-essential-driver-downloads/"><u>Getting Started with Your New Epson Scanner: Essential Driver Downloads</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-leading-plot-coders-space/"><u>In 2024, Leading Plot Coders Space</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614415-9781648291173-restorative-rituals/"><u>Restorative Rituals | Free Book</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/stabilize-for-success-3-secrets-of-iphone-video-making/"><u>Stabilize for Success 3 Secrets of iPhone Video Making</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-pinnacle-of-scripts-across-the-cinematic-universes-sections/"><u>The Pinnacle of Scripts Across the Cinematic Universe's Sections</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"A6400 Video Display Issues  Troubleshooting Tips for 2024\""
-date: 2024-08-08T17:10:46.033Z
-updated: 2024-08-09T17:10:46.033Z
+date: 2025-02-10T17:26:10.943Z
+updated: 2025-02-16T06:43:11.060Z
 tags: 
   - screen-recording
   - ai video
@@ -58,9 +58,6 @@ This is a common reason why you can’t see the videos on Sony A6400\. Sometimes
 * Right-click on the video, and choose ‘properties.’
 * Click the ‘tools’ category on the new Windows and select the ‘error checking’ feature.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-4.jpg)
 
 * The next step is automatically clicking the ‘check’ button to repair the camera’s SD card.
@@ -109,9 +106,6 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 * **Step 3:** This will promptly redirect you to the editor page; click on the ‘file’ tab and choose ‘import media file.’ You need to have copied the video to your PC before beginning the process. You can also select ‘import from a camcorder’ to import the video directly.
 * **Step 4:** Navigate to the folder where the video is and click on ‘open.’
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-6.jpg)
 
 * **Step 5:** Start to customize your Sony A6400 video as you prefer; you can split the video into smaller clips, edit the audio track or add a new one to the video.
@@ -214,9 +208,6 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 * **Step 3:** This will promptly redirect you to the editor page; click on the ‘file’ tab and choose ‘import media file.’ You need to have copied the video to your PC before beginning the process. You can also select ‘import from a camcorder’ to import the video directly.
 * **Step 4:** Navigate to the folder where the video is and click on ‘open.’
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-6.jpg)
 
 * **Step 5:** Start to customize your Sony A6400 video as you prefer; you can split the video into smaller clips, edit the audio track or add a new one to the video.
@@ -271,9 +262,6 @@ This is a common reason why you can’t see the videos on Sony A6400\. Sometimes
 * Right-click on the video, and choose ‘properties.’
 * Click the ‘tools’ category on the new Windows and select the ‘error checking’ feature.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-4.jpg)
 
 * The next step is automatically clicking the ‘check’ button to repair the camera’s SD card.
@@ -464,6 +452,26 @@ Knowing why you can’t see videos on Sony A6400 is essential because it allows 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-build-stellar-youtube-beginnings-on-a-shoestring-budget/"><u>[New] 2024 Approved Build Stellar YouTube Beginnings on a Shoestring Budget</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-64gb-ideal-for-light-video-content-for-2024/"><u>[New] 64Gb Ideal for Light Video Content for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-a-comprehensive-guide-to-locating-and-creating-superb-instagram-alarms/"><u>[New] A Comprehensive Guide to Locating and Creating Superb Instagram Alarms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-exclusive-choice-premium-virtual-reality-experiences-on-google-cardboard/"><u>[New] In 2024, Exclusive Choice Premium Virtual Reality Experiences on Google Cardboard</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-the-top-7-nft-creators-for-your-artwork/"><u>[New] In 2024, Unveiling the Top 7 NFT Creators for Your Artwork</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-depth-analysis-how-galaxy-s8-dominates-in-4k-video-for-2024/"><u>[New] In-Depth Analysis How Galaxy S8 Dominates in 4K Video for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-11-free-youtube-playlist-downloadersonlinepcandroidios/"><u>[Updated] 11 FREE YouTube Playlist Downloaders[Online/PC/Android/iOS)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-piece-by-piece-crafting-the-mosaic-photo-collage-way/"><u>[Updated] 2024 Approved Piece-by-Piece Crafting The Mosaic Photo Collage Way</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-high-pfv-score-for-delayed-visual-sequences/"><u>[Updated] In 2024, High PFV Score for Delayed Visual Sequences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-opening-lines-breaking-the-ice-in-video-comments/"><u>[Updated] Opening Lines Breaking the Ice in Video Comments</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-skype-groups-setting-up-windowsmac-conversations-for-2024/"><u>[Updated] Skype Groups Setting Up Windows/Mac Conversations for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-pros-playbook-revolutionizing-your-instagram-feed/"><u>[Updated] The Pro's Playbook Revolutionizing Your Instagram Feed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-zero-to-hero-solo-podcast-trendsetters-secrets/"><u>From Zero to Hero Solo Podcast Trendsetters' Secrets</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-great-digital-debate-meta-vs-omni-for-2024/"><u>The Great Digital Debate Meta Vs. Omni for 2024</u></a></li>
+<li><a href="https://techidaily.com/unlock-locked-iphone-xs-max-by-restoring-it-to-default-settings-by-drfone-ios-unlock-ios-unlock/"><u>Unlock locked iPhone XS Max by restoring it to default settings</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

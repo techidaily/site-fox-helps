@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Configure YouTube PIP on iPhone Quickly\""
-date: 2025-02-03T02:47:57.389Z
-updated: 2025-02-05T09:24:08.125Z
+date: 2025-02-11T21:24:57.967Z
+updated: 2025-02-15T23:10:45.899Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
 
@@ -57,6 +53,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
@@ -69,7 +69,7 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
@@ -107,11 +107,11 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### PIP on Mac
@@ -132,7 +132,7 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -169,24 +169,19 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-parody-basics-tips-for-entertaining-mocks/"><u>[New] 2024 Approved Parody Basics Tips for Entertaining Mocks</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-canvas-kids-discover-10-free-kid-friendly-art-makers-for-mac/"><u>[New] Canvas Kids Discover 10 Free, Kid-Friendly Art Makers for Mac</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-channel-flair-free-download-templates-for-2024/"><u>[New] Channel Flair Free Download Templates for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-epic-game-viewing-spots-1-9-for-2024/"><u>[New] Epic Game Viewing Spots #1-#9 for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-right-way-to-pick-spiritual-phone-tunes/"><u>[New] In 2024, The Right Way to Pick Spiritual Phone Tunes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-inshot-unveiled-assessing-its-edge-over-other-editors/"><u>[New] InShot Unveiled Assessing Its Edge Over Other Editors</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-on-azure-speech-transcription-services/"><u>[New] Step-by-Step on Azure Speech Transcription Services</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tream-with-style-hacks-to-keep-your-daily-video-game-engaging/"><u>[New] Stream with Style Hacks to Keep Your Daily Video Game Engaging</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-turn-back-the-tape-on-twitch-broadcasting-for-2024/"><u>[New] Turn Back the Tape on Twitch Broadcasting for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-leading-no-cost-screen-recorders-for-windows-top-5-list/"><u>[Updated] 2024 Approved Leading No-Cost Screen Recorders For Windows – Top 5 List</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-perfect-flying-buddies-top-toys-for-children/"><u>[Updated] 2024 Approved Perfect Flying Buddies Top Toys for Children</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-elite-uavs-get-yours-today/"><u>[Updated] Elite UAVs Get Yours Today</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-spectacularly-in-3d-apt-selection-of-top-decks/"><u>[Updated] In 2024, Spectacularly in 3D Apt Selection of Top Decks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-best-8-screenshot-and-video-editing-tools-for-phones/"><u>[Updated] In 2024, The Best 8 Screenshot & Video Editing Tools for Phones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/visual-rhythm-optimal-dj-content-for-gatherings/"><u>Audiovisual Rhythm Optimal DJ Content for Gatherings</u></a></li>
-<li><a href="https://win-special.techidaily.com/easy-guide-tweaking-screen-brightness-on-your-pc-windows-11-edition-with-yl-computing/"><u>Easy Guide: Tweaking Screen Brightness on Your PC - Windows 11 Edition with YL Computing</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/professional-ipad-and-iphone-note-retrieval-solutions-bring-back-your-missing-thoughts/"><u>Professional iPad & iPhone Note Retrieval Solutions – Bring Back Your Missing Thoughts</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-fixes-for-non-functional-subtitles-on-roku-streamers/"><u>Quick Fixes for Non-Functional Subtitles on Roku Streamers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/tracing-your-instagram-fanbase-shifts/"><u>Tracing Your Instagram Fanbase Shifts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-android-photography-tools/"><u>[New] 2024 Approved Essential Android Photography Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-exploring-windows-11-essential-upgrades/"><u>[New] 2024 Approved Exploring Windows 11 Essential Upgrades</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-recording-101-from-youtube-playback-to-files/"><u>[Updated] 2024 Approved Audio Recording 101 From YouTube Playback To Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-boosting-participation-tips-for-fb-giveaway-posts/"><u>[Updated] Boosting Participation Tips for FB Giveaway Posts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-skyeconomys-haven-budget-friendly-large-data-space-for-2024/"><u>[Updated] SkyEconomy's Haven Budget-Friendly Large Data Space for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-video-features-youtube-annotations-guide/"><u>[Updated] Streamlining Video Features YouTube Annotations Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-transform-your-android-footage-with-stunning-time-lapse-videos-for-2024/"><u>[Updated] Transform Your Android Footage with Stunning Time-Lapse Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-mastery-in-removing-online-video-post-comments/"><u>2024 Approved Mastery in Removing Online Video Post-Comments</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-google-pixel-fold-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Google Pixel Fold.</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-tickle-treasure-trove-uncovering-best-apps-for-memes/"><u>In 2024, Tickle Treasure Trove Uncovering Best Apps for Memes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mophie-reintroduces-the-powerful-juice-pack-what-you-need-to-know/"><u>Mophie Reintroduces the Powerful Juice Pack: What You Need to Know</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-list-of-6-best-nft-platforms-for-artists-for-2024/"><u>The Ultimate List of 6 Best NFT Platforms for Artists for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleash-next-level-gaming-with-a-1000-budget-building-an-rtx-4070-and-2tb-ssd-pc-via-prime-day-deals-the-ultimate-guide/"><u>Unleash Next-Level Gaming with a $1,000 Budget - Building an RTX 4070 & 2TB SSD PC via Prime Day Deals: The Ultimate Guide</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/wie-man-mehrere-vmdk-disk-images-sicher-zu-einem-einzigen-image-zusammenfuhrt/"><u>Wie Man Mehrere VMDK-Disk-Images Sicher Zu Einem Einzigen Image Zusammenführt</u></a></li>
 </ul></div>
 
