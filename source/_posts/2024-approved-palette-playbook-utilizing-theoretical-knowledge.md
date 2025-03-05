@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Palette Playbook  Utilizing Theoretical Knowledge\""
-date: 2024-08-16T07:31:02.940Z
-updated: 2024-08-17T07:31:02.940Z
+date: 2025-02-25T20:32:32.928Z
+updated: 2025-03-05T07:29:45.295Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ So, you've heard about color theory but don't know what it is or how to use it a
 
 If you are more selective with your colors in your videos or imagery the viewer will find this aesthetically pleasing and may be more engaged in your content. This includes anything from logo design all the way to props for your shot. When creating your videos within Filmora it is good practice to think about your composition in all aspects including color theory and with the guide hopefully you will have a better understanding of how you can influence your color palette.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
@@ -35,9 +32,6 @@ There are many color wheels out there and all require understanding and research
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
@@ -60,9 +54,6 @@ The corners of the black rectangle land on what is known as tetradic complement 
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -73,9 +64,6 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
@@ -108,8 +96,23 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-revolutionize-your-creation-process-canvas-secret-edits/"><u>[New] 2024 Approved Revolutionize Your Creation Process Canva's Secret Edits</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-remedying-no-audio-in-obs-sessions/"><u>[New] In 2024, Remedying No Audio in OBS Sessions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-quick-guide-syncing-images-and-movies-between-iphones/"><u>[Updated] 2024 Approved Quick Guide Syncing Images & Movies Between iPhones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-developing-optimal-canon-time-lapse-artistry-for-2024/"><u>[Updated] Developing Optimal Canon Time-Lapse Artistry for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-exploring-roku-watching-facebook-live-effortlessly-for-2024/"><u>[Updated] Exploring Roku Watching Facebook Live Effortlessly for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-free-srt-translator-showdown-the-best-eight-in-ranking-for-2024/"><u>[Updated] Free SRT Translator Showdown The Best Eight in Ranking for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-best-picture-editing-dynamic-wallpaper-finder/"><u>[Updated] In 2024, Best Picture Editing Dynamic Wallpaper Finder</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-luts-unlocking-color-grading-in-ar-and-vfx/"><u>[Updated] In 2024, Mastering LUTs Unlocking Color Grading in AR & VFX</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-enhancing-narrative-flow-integrating-chapters-into-your-youtube-content/"><u>2024 Approved Enhancing Narrative Flow Integrating Chapters Into Your YouTube Content</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-hidden-smart-hub-inside-your-apple-devices-is-your-mac-or-ipad-equipped/"><u>Discover the Hidden Smart Hub Inside Your Apple Devices: Is Your Mac or iPad Equipped?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-strategies-for-preventing-pc-gaming-disruptions-and-crashes/"><u>Expert Strategies for Preventing PC Gaming Disruptions and Crashes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/gently-introducing-scene/"><u>Gently Introducing Scene</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-online-video-spinners-rotate-your-clips-with-ease/"><u>New Best Online Video Spinners Rotate Your Clips with Ease</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/no-internet-full-fun-best-offline-gaming-on-mobile-devices-for-2024/"><u>No Internet, Full Fun Best Offline Gaming on Mobile Devices for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-fixing-the-lameencdll-problem-when-using-audacity-for-mp3-files/"><u>Step-by-Step Guide: Fixing the lame_enc.dll Problem When Using Audacity for MP3 Files</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/strategic-music-production-optimal-moments-for-utilizing-remixes-in-your-dj-set/"><u>Strategic Music Production: Optimal Moments for Utilizing Remixes in Your DJ Set</u></a></li>
+</ul></div>
 

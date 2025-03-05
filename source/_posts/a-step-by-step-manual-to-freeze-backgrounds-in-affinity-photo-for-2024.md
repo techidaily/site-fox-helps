@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Manual to Freeze Backgrounds in Affinity Photo for 2024\""
-date: 2024-08-16T07:28:44.147Z
-updated: 2024-08-17T07:28:44.147Z
+date: 2025-03-03T08:16:56.221Z
+updated: 2025-03-05T04:19:06.067Z
 tags: 
   - screen-recording
   - ai video
@@ -26,9 +26,6 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -45,9 +42,6 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -56,9 +50,6 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -128,9 +119,6 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -187,6 +175,23 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-enhancing-historical-value-incorporating-dates-into-images/"><u>[New] 2024 Approved Enhancing Historical Value Incorporating Dates Into Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asterclass-in-effortless-video-acquisition-for-2024/"><u>[New] Masterclass in Effortless Video Acquisition for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quotes-for-a-new-dimension-a-metaverse-visionary-collection/"><u>[New] Quotes for a New Dimension A Metaverse Visionary Collection</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-spectrum-surge-tools-for-sharper-web-videos-for-2024/"><u>[New] Spectrum Surge Tools for Sharper Web Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-creating-a-space-for-feedback-talking-with-your-viewers/"><u>[Updated] 2024 Approved Creating a Space for Feedback Talking with Your Viewers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-chart-a-course-to-success-youtube-studio-blueprint/"><u>[Updated] Chart a Course to Success YouTube Studio Blueprint</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-meticulous-study-of-magix-photo-controls/"><u>[Updated] In 2024, Meticulous Study of MAGIX Photo Controls</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-the-art-of-visual-flow-with-kinemaster/"><u>[Updated] Mastering the Art of Visual Flow with Kinemaster</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-premier-guidance-leading-ringtone-artisans-iphone/"><u>[Updated] Premier Guidance Leading Ringtone Artisans iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-5-best-video-converters-for-macos-sierra-for-2024/"><u>[Updated] Top 5 Best Video Converters for macOS Sierra for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adobes-art-of-amusement-and-jest-for-2024/"><u>Adobe's Art of Amusement and Jest for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/breaking-news-apple-ceases-production-on-watch-series-9-and-upcoming-ultra-edition/"><u>Breaking News: Apple Ceases Production on Watch Series 9 and Upcoming Ultra Edition</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-ios-172-resolves-iphone-connectivity-and-slow-wi-fi-woes-expected-launch-date-insights/"><u>How iOS 17.2 Resolves iPhone Connectivity and Slow Wi-Fi Woes – Expected Launch Date Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-appoint-an-admin-for-your-fb-page/"><u>Step-by-Step: Appoint an Admin for Your FB Page</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-asmrists-aiding-the-nighttime-ritual/"><u>Top ASMRists Aiding the Nighttime Ritual</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-and-repair-missing-ringtones-for-smsmms-alerts-in-ios-15plus/"><u>Troubleshoot and Repair Missing Ringtones for SMS/MMS Alerts in iOS 15+</u></a></li>
+</ul></div>
 

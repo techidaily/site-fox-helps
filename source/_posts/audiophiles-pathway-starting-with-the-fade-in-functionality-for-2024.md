@@ -1,7 +1,7 @@
 ---
 title: "\"Audiophile's Pathway  Starting with the Fade-In Functionality for 2024\""
-date: 2024-08-16T07:26:35.561Z
-updated: 2024-08-17T07:26:35.561Z
+date: 2025-03-01T23:02:08.945Z
+updated: 2025-03-04T19:37:41.106Z
 tags: 
   - screen-recording
   - ai video
@@ -51,9 +51,6 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 * If you click on this yellow line, you can drag it in situ and reshape it any way you want and you can create any kind of stepped fade you want.
 * If you go back into your effects, go back into Amplitude and Compression and this time, Choose Gain envelope. Now, you will get the yellow line flowing right the way through the audio.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gain envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/gain-envelop-adobe-audition.jpg)
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
@@ -81,16 +78,10 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
@@ -122,9 +113,6 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -167,6 +155,22 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-4k-clarity-unleashed-an-intense-study-on-the-31mu97-b-monitor-for-2024/"><u>[New] 4K Clarity Unleashed - An Intense Study on the 31MU97-B Monitor for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-captivating-thumbnails-a-digital-marketers-guidebook-for-2024/"><u>[New] Crafting Captivating Thumbnails A Digital Marketer's Guidebook for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-celebrating-creativity-otu-samples-freepaid/"><u>[New] In 2024, Celebrating Creativity OTU Samples (Free/Paid)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-shot-securement-keeping-cameras-still-on-arms-only/"><u>[New] Shot Securement Keeping Cameras Still on Arms Only</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-15-best-photovideo-downloader-tools-for-instagram/"><u>[Updated] 2024 Approved 15 Best Photo/Video Downloader Tools for Instagram</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-accessing-trendsetting-background-images-for-tiktok/"><u>[Updated] 2024 Approved Accessing Trendsetting Background Images for TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-hdr-portraiture-an-ultimate-guide-for-2024/"><u>[Updated] Mastering HDR Portraiture An Ultimate Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expertly-edit-extravagant-tiktoks-your-key-to-less-overloaded-drafts/"><u>2024 Approved Expertly Edit Extravagant TikToks Your Key to Less Overloaded Drafts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ps5-gaming-setup-top-5-display-recommendations/"><u>2024 Approved PS5 Gaming Setup Top 5 Display Recommendations</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-vivo-x100-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-and-write-on-photos-with-top-tools/"><u>In 2024, Enhance and Write on Photos with Top Tools</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-samsung-galaxy-xcover-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/switch-tactics-why-choose-pc-over-console-games/"><u>Switch Tactics: Why Choose PC Over Console Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-minimalists-guide-to-aerial-imagery-with-dji-spark/"><u>The Minimalist's Guide to Aerial Imagery with DJI Spark</u></a></li>
+<li><a href="https://media-tips.techidaily.com/unveiling-the-advantages-of-hdmi-21-should-your-next-tech-update-include-this-standard/"><u>Unveiling the Advantages of HDMI 2.1 – Should Your Next Tech Update Include This Standard?</u></a></li>
+</ul></div>
 

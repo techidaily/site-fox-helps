@@ -1,7 +1,7 @@
 ---
 title: "Restore Windows Photo Viewer Efficiency on Windows 10 PCs for 2024"
-date: 2025-02-13T05:15:25.458Z
-updated: 2025-02-16T02:49:36.359Z
+date: 2025-03-01T23:10:38.887Z
+updated: 2025-03-04T17:31:28.158Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -66,10 +62,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -81,10 +73,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -103,14 +91,6 @@ Here is the detailed guide –
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -145,18 +125,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-excellent-spots-for-tamil-ringtones-acquisition-guide/"><u>[New] 2024 Approved Excellent Spots for Tamil Ringtones Acquisition Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-frames-to-frequencies-the-video-transformation/"><u>[New] In 2024, From Frames to Frequencies The Video Transformation</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-voice-altering-tool-for-free-enhance-your-valorant-experience/"><u>[New] In 2024, Top Voice Altering Tool for Free - Enhance Your Valorant Experience</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-vector-fundamentals-unpacked-for-novices-categories-and-software/"><u>[New] In 2024, Vector Fundamentals Unpacked for Novices, Categories & Software</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-witness-the-magic-top-14-text-animation-pieces-for-2024/"><u>[New] Witness the Magic Top 14 Text Animation Pieces for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-digital-expression-unleashed-crafting-metaverse-memes-for-2024/"><u>[Updated] Digital Expression Unleashed Crafting Metaverse Memes for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-infusing-action-into-photos-using-illustrators-features/"><u>[Updated] In 2024, Infusing Action Into Photos Using Illustrator's Features</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-techniques-for-restarting-disrupted-live-feeds-fb/"><u>2024 Approved Techniques for Restarting Disrupted Live Feeds (FB)</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-a-sincere-look-at-high-quality-audio-streaming-recordcast/"><u>In 2024, A Sincere Look at High-Quality Audio Streaming RecordCast</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-xiaomi-redmi-a2-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Xiaomi Redmi A2</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-editing-videos-directly-on-youtube-with-sony-vegas-for-2024/"><u>The Ultimate Guide to Editing Videos Directly on YouTube with Sony Vegas for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-13-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 13 Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-guide-to-lgs-27in-widescreen-4k-display/"><u>[New] 2024 Approved The Ultimate Guide to LG's 27in Widescreen 4K Display</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-dji-phantom-3-a-complete-technical-review/"><u>[New] 2024 Approved Unveiling DJI Phantom 3 A Complete Technical Review</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-comprehensive-approach-to-integrating-whiteboards-in-zoom-sessions-for-2024/"><u>[New] Comprehensive Approach to Integrating Whiteboards in Zoom Sessions for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fuel-ambition-with-these-10-movie-masterpieces/"><u>[New] Fuel Ambition with These 10 Movie Masterpieces</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-lustrous-frameworks-structuring-illumination-in-film/"><u>[New] Lustrous Frameworks Structuring Illumination in Film</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-social-storytelling-revolutionized-for-no-charge-for-2024/"><u>[New] Social Storytelling Revolutionized for No Charge for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/each-with-technology-effective-use-of-youtube-in-education-for-2024/"><u>[New] Teach with Technology Effective Use of YouTube in Education for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-the-ultimate-selection-of-transition-apps/"><u>Explore the Ultimate Selection of Transition Apps</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-code-partner-github-copilot-vs-gpt/"><u>The Ultimate Code Partner? GitHub Copilot Vs. GPT</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-rated-mac-maintenance-software-of-2022-expertly-curated-selection/"><u>Top-Rated Mac Maintenance Software of 2022: Expertly Curated Selection</u></a></li>
+<li><a href="https://games-able.techidaily.com/your-guide-to-seamless-sd-installation-in-steam-deck/"><u>Your Guide to Seamless SD Installation in Steam Deck</u></a></li>
 </ul></div>
 

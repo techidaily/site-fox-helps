@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate Guide to Text in After Effects (Top 10)\""
-date: 2024-08-16T07:26:09.506Z
-updated: 2024-08-17T07:26:09.506Z
+date: 2025-03-03T05:11:00.635Z
+updated: 2025-03-04T21:10:32.974Z
 tags: 
   - screen-recording
   - ai video
@@ -68,9 +68,6 @@ If the regular stroke feature is not enough, you have tapered stroke preset that
 
 This is a simple but highly effective text preset that gets the serious attention of the viewers. When you apply the effect, the text turns white to red with fade in effect and viewers are most likely to read the displayed text. There is no keyframe but you change the color as well as the fade-in time.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![stranger things text preset](https://images.wondershare.com/filmora/article-images/2022/09/stranger-things-text-preset.jpg)
 
 ### 6\. Text Styles Preset
@@ -91,9 +88,6 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 
 ![kinetic text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/kinetic-text-animation-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. 30 Universal Text Animation
 
 If you want to keep the text animations simple but you want it to be different than the usual text animations, this is the pack for you. You get 30 standard text animation presets with a geometrical element in each one of them. You can customize the timing, duration, size, and various such parameters to fit them in your video project perfectly.
@@ -122,9 +116,6 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. Alternative Way to Create Text Effects for Video
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
@@ -263,9 +254,6 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
@@ -296,6 +284,24 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-seamless-manipulation-of-iphone-magnification/"><u>[New] 2024 Approved Seamless Manipulation of iPhone Magnification</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-freezing-fun-at-the-beijing-olympics-2022/"><u>[New] In 2024, Freezing Fun at the Beijing Olympics 2022</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-tech-triad-analysis-understanding-the-intersection-of-vr-ar-and-mr/"><u>[New] In 2024, Tech Triad Analysis Understanding the Intersection of VR, AR & MR</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vr-action-cams-face-off-hero5-black-vs-yis-new-release/"><u>[New] VR Action Cams Face-Off Hero5 Black Vs. Yi's New Release</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-beyond-the-veil-of-space-time-the-greatest-sci-fi-films-experiences/"><u>[Updated] 2024 Approved Beyond the Veil of Space-Time The Greatest Sci-Fi Films' Experiences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-effortless-techniques-to-turn-off-youtube-video-previews/"><u>[Updated] 2024 Approved Effortless Techniques to Turn Off YouTube Video Previews</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-picscanner-tricks-uncomplicated-approaches-to-image-anonymity/"><u>[Updated] In 2024, PicScanner Tricks Uncomplicated Approaches to Image Anonymity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-20-unrestricted-zero-cost-pubg-snapshits/"><u>[Updated] Top 20 Unrestricted, Zero-Cost PUBG Snapshits</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-engaging-with-snapchats-trending-personalities/"><u>2024 Approved Engaging with Snapchat's Trending Personalities</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-podcasting-prowess-crafting-a-trendsetting-showcase/"><u>2024 Approved Podcasting Prowess Crafting a Trendsetting Showcase</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-guide-to-harnessing-snapchat-spotlight/"><u>In 2024, The Ultimate Guide to Harnessing Snapchat Spotlight</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-virtual-mastery-top-5-karate-and-taekwondo-games/"><u>In 2024, Virtual Mastery Top 5 Karate and Taekwondo Games</u></a></li>
+<li><a href="https://driver-download.techidaily.com/instantly-upgrade-with-razer-mamba-drivers-free-download-available-now/"><u>Instantly Upgrade with Razer Mamba Drivers - Free Download Available Now</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-fixing-uninstalled-disk-errors-a-win-11-guide/"><u>Mastering the Art of Fixing 'Uninstalled Disk' Errors: A Win 11 Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/secure-and-ethical-methods-for-capturing-chat-calls-for-2024/"><u>Secure and Ethical Methods for Capturing Chat Calls for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-pinnacle-strategies-for-persuasive-client-centered-videography-for-2024/"><u>The Pinnacle Strategies for Persuasive Client-Centered Videography for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-steps-for-creating-collab-videos-with-youtubers/"><u>The Ultimate Steps for Creating Collab Videos with YouTubers</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Effortless Restoration of Windows Photo Viewer - Steps Explained\""
-date: 2025-02-12T18:13:34.271Z
-updated: 2025-02-16T04:36:35.773Z
+date: 2025-02-26T20:12:06.989Z
+updated: 2025-03-05T08:32:53.004Z
 tags: 
   - screen-recording
   - ai video
@@ -60,10 +60,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 ## Method 1 to restore Windows Photo Viewer
@@ -73,10 +69,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
@@ -96,27 +88,15 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -145,20 +125,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-mastering-screen-shots-on-windows-machines/"><u>[New] 2024 Approved Mastering Screen Shots on Windows Machines</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-6-slide-show-creation-apps-on-latest-iphones/"><u>[New] 2024 Approved Top 6 Slide Show Creation Apps on Latest iPhones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-decoding-the-capabilities-of-samsung-photo-studio/"><u>[New] In 2024, Decoding the Capabilities of Samsung Photo Studio</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-photo-editing-essentials-cut-out-unwanted-borders-smoothly/"><u>[New] In 2024, Photo Editing Essentials Cut Out Unwanted Borders Smoothly</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-the-percussion-prospector-find-and-test-free-software-for-2024/"><u>[New] The Percussion Prospector – Find & Test Free Software for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-transform-your-instagram-strategy-with-precision-metrics-monitoring-tools/"><u>[Updated] 2024 Approved Transform Your Instagram Strategy with Precision Metrics Monitoring Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-halls-of-fame-on-reddit-celebrating-best-rated-threads-for-2024/"><u>[Updated] Halls of Fame on Reddit Celebrating Best-Rated Threads for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-5-pro-drones-for-skilled-drone-pilots/"><u>[Updated] In 2024, Essential 5 Pro Drones for Skilled Drone Pilots</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-in-depth-update-the-latest-sony-s6500-model-review/"><u>[Updated] In 2024, In-Depth Update The Latest Sony S6500 Model Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-penning-perfectly-captivating-podcast-descriptions-for-2024/"><u>[Updated] Penning Perfectly Captivating Podcast Descriptions for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-infinix-smart-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-no-cost-voice-altering-app-for-valorant-enthusiasts-for-2024/"><u>Best No-Cost Voice Altering App for Valorant Enthusiasts for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/di-can-create-a-stratified-charge-during-part-load-conditions-improving-fuel-economy-and-reducing-emissions-compared-to-traditional-port-injection-methods.m155/"><u>DI Can Create a Stratified Charge During Part-Load Conditions, Improving Fuel Economy and Reducing Emissions Compared to Traditional Port Injection Methods</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/laughlenslab-pixelpunchers-for-2024/"><u>LaughLensLab PixelPunchers for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/streamers-choice-should-you-opt-for-vlc-or-mpc-for-2024/"><u>Streamer's Choice Should You Opt for VLC or MPC for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-tonal-transformation-for-android-users/"><u>[New] In 2024, The Ultimate Tonal Transformation for Android Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-simple-strategies-for-smooth-underwater-moviemaking/"><u>[New] Simple Strategies for Smooth Underwater Moviemaking</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-duration-calculation-a-20-megabit-video/"><u>[Updated] 2024 Approved Duration Calculation A 20 Megabit Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-reaping-the-benefits-of-hdr-for-professional-videoists/"><u>[Updated] In 2024, Reaping the Benefits of HDR for Professional Videoists</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pinnacle-speed-windows-10-image-browser/"><u>2024 Approved Pinnacle Speed Windows 10 Image Browser</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/conveniently-managing-cash-transactions-with-your-iphone-and-apple-watchs-integrated-apple-pay-feature/"><u>Conveniently Managing Cash Transactions with Your iPhone and Apple Watch's Integrated Apple Pay Feature</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhance-cyber-safety-trustable-domains-on-windows-11/"><u>Enhance Cyber Safety: Trustable Domains on Windows 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/guide-to-uploading-videos-into-youtube-lists/"><u>Guide to Uploading Videos Into YouTube Lists</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unveil-the-power-of-storytelling-in-your-facebook-bio/"><u>In 2024, Unveil the Power of Storytelling in Your Facebook Bio</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-periscope-understanding-features-pricing-and-registration-steps-for-2024/"><u>Navigating Periscope Understanding Features, Pricing & Registration Steps for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/retailer-regret-rescue-how-to-request-refunds-on-xbox/"><u>Retailer Regret Rescue: How to Request Refunds on Xbox</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Harmonizing Your Windows Photos  How to Incorporate Audio-Visual Features\""
-date: 2024-08-23T16:49:18.774Z
-updated: 2024-08-24T16:49:18.774Z
+date: 2025-02-27T08:17:32.359Z
+updated: 2025-03-05T05:08:21.142Z
 tags: 
   - screen-recording
   - ai video
@@ -43,18 +43,12 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 2**: Choose the video you want to add filters. Click **New video** at top > Custom video with music.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
@@ -69,9 +63,6 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 **Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -84,9 +75,6 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -112,8 +100,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-from-monochrome-to-multicolor-learning-about-the-art-of-green-screens/"><u>[New] From Monochrome to Multicolor Learning About the Art of Green Screens</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-essential-facetune-walkthrough-for-stunning-photos/"><u>[New] The Essential Facetune Walkthrough for Stunning Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-essential-srt-compendium-for-all-levels-for-2024/"><u>[New] The Essential SRT Compendium for All Levels for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unleash-the-experience-top-9-streams/"><u>[Updated] 2024 Approved Unleash the Experience Top 9 Streams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-platforms-maximizing-your-youtube-reach-for-2024/"><u>[Updated] Best Platforms Maximizing Your YouTube Reach for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-next-gen-tech-talk-samsungs-bdplus-k850-ultra-review/"><u>[Updated] Next-Gen Tech Talk Samsung's BD+ K850 Ultra Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-transform-your-clips-step-by-step-youtube-end-screen-tutorials/"><u>[Updated] Transform Your Clips Step-by-Step YouTube End Screen Tutorials</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-realme-12-pro-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Realme 12 Pro 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budgeted-bark-box-pet-vids-compendium/"><u>Budgeted Bark-Box: Pet Vids Compendium</u></a></li>
+<li><a href="https://win-tips.techidaily.com/comprehensive-faq-resource-flipbuilders-centralized-knowledge-hub/"><u>Comprehensive FAQ Resource - FlipBuilder's Centralized Knowledge Hub</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/googles-latest-wearable-gets-just-a-triennial-refresh-schedule/"><u>Google's Latest Wearable Gets Just a Triennial Refresh Schedule</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-apple-iphone-13-mini-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your Apple iPhone 13 mini on MetroPCS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-essential-funimate-guidebook-for-2024/"><u>The Essential Funimate Guidebook for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-voice-of-action-crafting-moving-screenplay-conversations/"><u>The Voice of Action Crafting Moving Screenplay Conversations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unveiling-quality-thorough-review-of-apples-ebook-management-system/"><u>Unveiling Quality: Thorough Review of Apple's eBook Management System</u></a></li>
+</ul></div>
 

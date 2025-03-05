@@ -1,7 +1,7 @@
 ---
 title: The Photographer’s Guide to Resolving iPhone Lens Faults - 7 Essential Fixes Revealed
-date: 2025-02-14T02:52:43.816Z
-updated: 2025-02-16T06:24:14.844Z
+date: 2025-02-28T02:22:57.016Z
+updated: 2025-03-05T06:27:30.176Z
 tags:
   - iphone
   - apple
@@ -23,19 +23,11 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. iPhone Camera Shows a Black Screen
 
 ![iPhone Camera not working, showing black screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-Camera-not-working-showing-black-screen.jpg)
 
 ![iPhone Camera not working close apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-Camera-app-from-App-Switcher-view.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -46,10 +38,6 @@ Close
 3. In the Camera app, switch between the front and back cameras to see if both of them are working or not. To do this, tap the camera flip icon on the right side of the screen. If only one camera works, that might indicate a hardware problem.
 4. Restart the Camera app. To do so, swipe up to the middle of the screen on an iPhone X or later, or double-click the Home button on an iPhone 8 or earlier. Then close the Camera app by sliding it off the top of the screen.
 5. Turn off your iPhone by holding the Side button (along with either Volume button on the iPhone X and later), then slide to power off. Wait 30 seconds before pressing the Side button again to restart your iPhone. If that doesn't work,[force restart your iPhone](https://www.makeuseof.com/tag/restart-iphone-recovery-mode/) instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. iPhone Photos Are Blurry or Out of Focus
 
@@ -76,10 +64,6 @@ Close
 2. Make sure you set the flash to**On** or**Auto** in the Camera app. To do this, tap the lightning bolt icon on the left side of the screen to see your flash options (you can't use the flash for panoramic photographs or time-lapse videos).
 3. Be careful when using the flash for long videos or in hot environments. If your iPhone gets too hot, it might disable the flash entirely until it has cooled down again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. iPhone Photos Are Flipped the Wrong Way
 
 ![iPhone photo flipped the wrong way](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-photo-flipped-the-wrong-way.jpg)
@@ -100,10 +84,6 @@ Close
 
 ![Screen Time settings on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Screen-Time-settings-on-iPhone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Allowed Apps in Screen Time restrictions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Allowed-Apps-in-Screen-Time-restrictions.jpg)
 
 Close
@@ -113,10 +93,6 @@ Close
 1. Go to **Settings > Screen Time > Content & Privacy Restrictions** .
 2. Tap on**Allowed Apps** and enter your Screen Time passcode if you have one.
 3. Make sure you turn the**Camera** app on; the toggle should be green.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. General iPhone Camera Software Fixes
 
@@ -133,10 +109,6 @@ Close
 ## 7\. General iPhone Camera Hardware Fixes
 
 ![iPhone 11 camera](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/iPhone-11-camera.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you've tried everything above and your front or back iPhone camera is still not working, you might have a hardware problem instead. Try the troubleshooting steps below to fix it:
 
@@ -167,17 +139,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-toolkit-for-elevating-your-podcast-through-seo/"><u>[New] 2024 Approved The Ultimate Toolkit for Elevating Your Podcast Through SEO</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-distinguished-audible-collection-for-filmmakers-for-2024/"><u>[New] Distinguished Audible Collection for Filmmakers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-best-websites-and-software-to-add-frames-to-photos/"><u>[New] In 2024, Best Websites and Software to Add Frames to Photos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>[New] In 2024, Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-rise-of-a-marketer-top-5-tips-from-the-prosphere/"><u>[New] Rise of a Marketer Top 5 Tips From the Prosphere</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-virality-hacks-leveraging-key-hashtags-on-youtube/"><u>[New] Virality Hacks Leveraging Key Hashtags on YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-control-screen-size-with-swift-iphone-adjustments/"><u>[Updated] 2024 Approved Control Screen Size with Swift iPhone Adjustments</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/emotional-intelligence-bots-safe-counseling-guidelines/"><u>Emotional Intelligence Bots: Safe Counseling Guidelines</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/essential-strategies-overcoming-common-issues-when-skype-fails-to-connect/"><u>Essential Strategies: Overcoming Common Issues When Skype Fails to Connect</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-navigating-the-full-spectrum-of-storage-in-the-adobe-cloud-ecosystem/"><u>In 2024, Step by Step Navigating the Full Spectrum of Storage in the Adobe Cloud Ecosystem</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ng-the-stage-imovies-role-in-video-intro-magic-for-2024/"><u>Setting the Stage IMovie's Role in Video Intro Magic for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unlock-the-power-of-podcasts-15-activities-that-blend-multitasking-and-growth/"><u>[New] 2024 Approved Unlock the Power of Podcasts 15 Activities that Blend Multitasking and Growth</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-digital-broadcast-face-off-facebook-vs-youtube-and-tweetstreams/"><u>[Updated] 2024 Approved Digital Broadcast Face-Off FACEbook Vs. YOUTube & TweetStreams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-balancing-width-and-height-for-ultimate-videography/"><u>[Updated] Balancing Width and Height for Ultimate Videography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-deciding-between-wirecast-and-obs-for-professional-streaming-for-2024/"><u>[Updated] Deciding Between Wirecast & OBS For Professional Streaming for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-smoothly-stitching-images-together/"><u>[Updated] Smoothly Stitching Images Together</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unlocking-the-full-spectrum-of-editing-power-in-polarr/"><u>[Updated] Unlocking the Full Spectrum of Editing Power in Polarr</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-making-the-right-vr-purchase-on-the-go-vs-tethered-tech/"><u>2024 Approved Making the Right VR Purchase On-the-Go Vs. Tethered Tech</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamline-your-footage-iphones-shortening-methods/"><u>2024 Approved Streamline Your Footage IPhone's Shortening Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-ultimate-iphone-playlist-podcast-tips/"><u>2024 Approved The Ultimate iPhone Playlist Podcast Tips</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-v30-pro-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Vivo V30 Pro</u></a></li>
+<li><a href="https://windows11.techidaily.com/becoming-proficient-with-windows-odbc-control-panel/"><u>Becoming Proficient with Windows' ODBC Control Panel</u></a></li>
+<li><a href="https://win-studio.techidaily.com/beenden-sie-die-msvcp1-groovy-dll-ausnahme-auf-ihrem-windows-10-pc-3-effektive-losungen/"><u>Beenden Sie Die MSVCP1 Groovy DLL-Ausnahme Auf Ihrem Windows 10 PC: 3 Effektive Lösungen!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-a-comparative-journey-through-the-top-10-tv-streamers/"><u>In 2024, A Comparative Journey Through the Top 10 TV Streamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-hdri-vs-sdr-a-comparative-analysis-for-filmmakers/"><u>In 2024, HDRI Vs. SDR A Comparative Analysis for Filmmakers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-disabled-apple-iphone-11ipad-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Disabled Apple iPhone 11/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y100i-power-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y100i Power 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unveiling-the-action-potential-of-polaroids-camplus-for-2024/"><u>Unveiling the Action Potential of Polaroid's Cam+ for 2024</u></a></li>
 </ul></div>
 

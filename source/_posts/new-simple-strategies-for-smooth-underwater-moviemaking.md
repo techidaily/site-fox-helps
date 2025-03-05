@@ -1,7 +1,7 @@
 ---
 title: "[New] Simple Strategies for Smooth Underwater Moviemaking"
-date: 2025-02-13T18:53:26.036Z
-updated: 2025-02-16T04:23:10.857Z
+date: 2025-03-03T16:15:37.055Z
+updated: 2025-03-04T18:17:32.780Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -48,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -63,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -76,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4\. Stay steady
 
@@ -100,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/dc0976bf992fc8f3795e090c13f66cb1c6f145591
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -152,24 +132,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-capturing-brilliance-essential-angles-in-iphone-photography/"><u>[New] 2024 Approved Capturing Brilliance Essential Angles in iPhone Photography</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-guide-to-adding-effects-in-tiktok-videos/"><u>[New] 2024 Approved The Ultimate Guide to Adding Effects in TikTok Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-crafting-engaging-instagram-reels-step-by-step/"><u>[New] In 2024, Crafting Engaging Instagram Reels Step-by-Step</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-premier-macos-sierra-tools-for-video-changeovers/"><u>[New] In 2024, Premier macOS Sierra Tools for Video Changeovers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-soundscapes-synopsis-a-guide-to-visual-tunes/"><u>[New] In 2024, Soundscapes Synopsis A Guide to Visual Tunes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-precision-cinematography-closing-in-on-details-for-2024/"><u>[New] Precision Cinematography Closing in on Details for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-quintessential-vr-enhancements-for-players/"><u>[New] Quintessential VR Enhancements for Players</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ise-in-the-rankings-essential-seo-for-video-creators/"><u>[New] Rise in the Rankings Essential SEO for Video Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-critical-number-of-views-for-youtube-earnings/"><u>[New] The Critical Number of Views for YouTube Earnings</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unmarked-image-accumulation-essentials/"><u>[New] Unmarked Image Accumulation Essentials</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/delving-into-history-accessible-copyrighted-canvases/"><u>Delving Into History Accessible, Copyrighted Canvases</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/effortlessly-strengthen-wi-fi-security-on-windows-10781-a-step-by-step-guide/"><u>Effortlessly Strengthen Wi-Fi Security on Windows 10/7/8.1: A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/expertise-in-iphone-the-ultimate-hdr-photo-journey-for-2024/"><u>Expertise in iPhone The Ultimate HDR Photo Journey for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-video-conferencing-with-a-blend-of-skype-and-zoom/"><u>In 2024, Enhance Video Conferencing with a Blend of Skype & Zoom</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-power-of-srt-in-broadcasting/"><u>In 2024, Unveiling the Power of SRT in Broadcasting</u></a></li>
-<li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/venturing-beyond-reality-understanding-vr-basics-for-2024/"><u>Venturing Beyond Reality Understanding VR Basics for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-activating-built-in-recorders-on-mate-and-p-series-phones-mate-1020-p2010-for-2024/"><u>[New] Activating Built-In Recorders on Mate and P Series Phones (Mate 10/20; P20/10) for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-androids-optimal-cloud-savers-updated-list/"><u>[New] In 2024, Android's Optimal Cloud Savers Updated List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-vlc-mastery-understanding-key-mac-settings-and-options/"><u>[New] VLC Mastery Understanding Key Mac Settings and Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-sony-ps-players-voice-modification-techniques/"><u>[Updated] 2024 Approved Sony PS Players' Voice Modification Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-meme-gurus-list-of-the-best-designs-10/"><u>[Updated] The Meme Guru's List of the Best Designs #10</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unleash-your-creative-potential-with-full-length-vivacut-review-24/"><u>2024 Approved Unleash Your Creative Potential with Full-Length VivaCut Review '24</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/de-beste-5-strategieen-voor-het-herstel-van-harddrive-informatie-vanaf-jezelf-aan-de-playstation-4/"><u>De Beste 5 Strategieën Voor Het Herstel Van Harddrive-Informatie Vanaf Jezelf Aan De PlayStation 4</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-ease-overuse-of-cpu-power-by-dropbox-on-pcs/"><u>How to Ease Overuse of CPU Power by Dropbox on PCs</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-reveal-hidden-sd-card-in-file-explorer/"><u>How to Reveal Hidden SD Card in File Explorer?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-xiaomi-14-ultra-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Xiaomi 14 Ultra Phone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/quick-start-tutorial-how-to-implement-auto-gpt-on-ubuntu/"><u>Quick Start Tutorial: How to Implement Auto-GPT on Ubuntu</u></a></li>
 </ul></div>
 

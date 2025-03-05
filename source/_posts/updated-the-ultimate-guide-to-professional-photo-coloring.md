@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Professional Photo Coloring"
-date: 2025-02-10T03:25:59.642Z
-updated: 2025-02-15T18:39:48.384Z
+date: 2025-02-28T01:19:23.435Z
+updated: 2025-03-05T03:45:47.758Z
 tags: 
   - screen-recording
   - ai video
@@ -53,23 +53,11 @@ Now do the tuning by navigating to the layer mask and also select the layers. Af
 
 ![use sliders to black or white](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Tip 3: Add Color to White Object
 
 If you want to add color to your black or white shirt, you can do it by “Hue and Saturation Adjustment Layer.” On this layer, tap on “Colorize” and choose the color you want to add. Another technique is to create a “Fill Adjustment Layer” and then change the blending mode into “Multiple.” Now, click on the “Color Picker,” and you can pick and choose your preferred color. If you want to add a dark color rather than a subtle color, change the mode to “Screen.”
 
 ![ pick the color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Tip 4: Use Direct Selection Color Picker
 
@@ -79,27 +67,15 @@ At the bottom of the options, you can see two points that will tell you about yo
 
 ![ change specific color to another color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Tip 5: Choose Object Color Range
 
 Do you want to change the color of a specific part of the image? You can do this on Adobe Photoshop photo color editor by going to the "Quick Selection Tool" and then applying the colors, but it may leave edges and curves of the object. So, the recommended way is to navigate to the “Select” tab and then click on “Color Range” from its drop-down menu.
 
 ![access color range option](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After clicking on the color range option, a pop-up window will appear from which tap on “Selection.” You can view your image on the preview window and can select the whole back using the “Selection” tool.
 
 ![select complete object](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Afterward, create a group in which add layers, mask, and adjustment layers to change the saturation, color, and brightness of the selected area accurately. To only change the color, drag the sliders of hue to do it instantly.
 
@@ -121,10 +97,6 @@ It helps the user create transparency across the layer. After hiding the layer a
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
 If you don’t have an offline tool like Adobe Photoshop, you can use an online photo color editor to replace the colors quickly. In this part, we will suggest [BeFunky](https://www.befunky.com/) photo color editor change the photo colors efficiently.
@@ -132,10 +104,6 @@ If you don’t have an offline tool like Adobe Photoshop, you can use an online 
 To change the color, navigate to this tool and upload the images. Then, head to the “Replace Color” option from the left section and click on it. On the menu of “Replace Color,” select the box next to “Source Color” to choose the color you want to replace. Use an eyedropper to select any color for your image.
 
 ![select source color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 To increase or decrease the intensity of your color, use the “Tolerance” option, and drag it accordingly. If you want to change the hue of the source color, click on the box next to “Target Color.” If you have accidentally applied any color on some part, you can head to erase tab and can remove the alterations from the brush.
 
@@ -169,18 +137,24 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-guide-to-fixing-rtmp-streams-in-premiere/"><u>[New] 2024 Approved The Ultimate Guide to Fixing RTMP Streams in Premiere</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-accelerating-sound-on-phones-best-free-apps/"><u>[New] In 2024, Accelerating Sound on Phones Best Free Apps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-toolwiz-for-professionals-a-thorough-app-assessment-for-2024/"><u>[New] Toolwiz for Professionals A Thorough App Assessment for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-your-ultimate-guide-to-telegram-web-navigation-for-2024/"><u>[New] Your Ultimate Guide to Telegram Web Navigation for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-optimizing-zoom-hd-quality-clear-methods/"><u>[Updated] In 2024, Optimizing Zoom HD Quality Clear Methods</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-video-frame-rates-explained-why-choose-30-or-60/"><u>[Updated] Video Frame Rates Explained Why Choose 30 or 60?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hp-chromebook-11-review/"><u>HP Chromebook 11 Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-engaging-environments-scenery-that-sells-streaming/"><u>In 2024, Engaging Environments Scenery That Sells Streaming</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-funnyfaces-forum-jokeye-imagez/"><u>In 2024, FunnyFaces Forum Jokeye Imagez</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unveiling-the-top-10-facebook-video-platforms/"><u>In 2024, Unveiling the Top 10 Facebook Video Platforms</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-your-pc-essential-hardware-insights-by-tech-expert-tom/"><u>Mastering Your PC: Essential Hardware Insights by Tech Expert Tom</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-savvy-or-tech-stylish-a-deep-dive-into-the-features-and-performance-of-the-tcl-32s325-2019-with-built-in-roku-smart-technology/"><u>Tech Savvy or Tech Stylish? A Deep Dive Into the Features and Performance of The TCL 32S325 (2019) with Built-In Roku Smart Technology</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-the-premier-10-hexacopters/"><u>[New] 2024 Approved Unveiling the Premier 10 HexaCopters</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-effortless-conversions-selecting-the-10-prime-flv-to-youtubes-options/"><u>[New] Effortless Conversions Selecting the 10 Prime Flv to YouTubes Options</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-strategies-for-enhancing-your-apple-podcast-visibility/"><u>[New] Strategies for Enhancing Your Apple Podcast Visibility</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-2022-speed-skating-spectacle/"><u>[Updated] 2024 Approved 2022 Speed Skating Spectacle</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-quintessential-guide-to-secret-story-viewing/"><u>[Updated] 2024 Approved The Quintessential Guide to Secret Story Viewing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-guffaw-generator-pictorial-mixer-for-2024/"><u>[Updated] Guffaw Generator Pictorial Mixer for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-breathe-new-life-into-your-ig-story-with-simple-animated-text-tips/"><u>[Updated] In 2024, Breathe New Life Into Your IG Story with Simple Animated Text Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-seeking-a-true-witchs-tongue-are-vocal-changer-apps-legit-find-substitutes/"><u>[Updated] In 2024, Seeking a True Witch's Tongue Are Vocal Changer Apps Legit? Find Substitutes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-simplify-multitasking-on-iphone-activatedeactivate-youtubes-pip-feature/"><u>[Updated] In 2024, Simplify Multitasking on iPhone Activate/Deactivate YouTube's PIP Feature</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-maximizing-visibility-in-a-newly-updated-social-platform/"><u>[Updated] Maximizing Visibility in a Newly Updated Social Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-rhythm-discoveries-at-your-fingertips-free-online/"><u>[Updated] Rhythm Discoveries at Your Fingertips (Free, Online)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-zoom-tricks-for-chromebook-users-for-2024/"><u>[Updated] Ultimate Zoom Tricks for Chromebook Users for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unleashing-3d-text-a-photoshop-technique-for-2024/"><u>[Updated] Unleashing 3D Text A Photoshop Technique for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-tips-for-effective-pip-use-on-edge-browser/"><u>Expert Tips for Effective PIP Use on Edge Browser</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/fcpx-hacks-smooth-skin-without-breaking-the-bank-or-using-plugins-for-2024/"><u>FCPX Hacks Smooth Skin without Breaking the Bank (or Using Plugins) for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-6-proven-ways-to-unlock-lava-blaze-2-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Lava Blaze 2 Phone When You Forget the Password</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlock-youtube-ad-revenue-recent-policy-insights-for-2024/"><u>Unlock YouTube Ad Revenue Recent Policy Insights for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150220-9780008667528-your-personal-horoscope-2025/"><u>Your Personal Horoscope 2025 | Free Book</u></a></li>
 </ul></div>
 

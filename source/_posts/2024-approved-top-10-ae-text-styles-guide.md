@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Top 10 AE Text Styles Guide\""
-date: 2024-08-16T07:25:11.418Z
-updated: 2024-08-17T07:25:11.418Z
+date: 2025-03-01T17:12:57.232Z
+updated: 2025-03-05T06:07:28.906Z
 tags: 
   - screen-recording
   - ai video
@@ -40,9 +40,6 @@ After Effects comes with certain pre-loaded text effects but you can always impo
 
 There are unlimited text presets available on After Effects and for a beginner, it can be quite time-consuming to go through all of them and get confused about which one to pick. To make things easier for beginners, we are listing down the best 10 text presets After Effects free and paid for instant selection for their video projects.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ### 1\. Glitch Text Effects
 
 The glitch text effects are extremely common in today's videos as they instantly draw the attention of the viewers and offer a retro feel. In this text presents, you get 30 different glitch text effect animations that you can use for titles as well as in-body texts. You get to choose from 32 glitch maps for creative and refreshing text effects for your videos.
@@ -109,9 +106,6 @@ Now that you know about the text presets you should have in your possession, it 
 
 Step1From your After Effects project, go to Tool panel and click on Type tool. Click on Composition panel and type in your desired text. Adjust the text styles from Characters tab.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![adjust text styles after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-styles-after-effects.jpg)
 
 Step2Go to Effects and Presets panel and you will find all the presets including the imported ones. Search for any desired text effect preset and drag and drop it on the text layer.
@@ -166,9 +160,6 @@ The glitch text effects are extremely common in today's videos as they instantly
 
 ![glitch text effects preset](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effects-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Motion Type Text Animation Preset
 
 You should have simple but effective motion text effects in your video so that certain texts and titles can get the message across clearly to the viewers. In this pack, you get amazing motion text effects with and without keyframes. Besides, you get several useful parameters like in-out mirror, reverse in and out, and overshoot that you can tweak to get the desired text animations.
@@ -253,9 +244,6 @@ Step1Install Wondershare Filmora and launch the application. Click on New Projec
 
 Step2Drop the video clip onto timeline if you want to use it as a background to your text. If you want to use any stock background, go to Stock Media> Pexels/Pixabay> Video and drop any background onto the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![drop the video clip onto timeline](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
@@ -296,6 +284,18 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nfographic-roundup-yts-shocking-reality-of-17/"><u>[New] Infographic Roundup YT's Shocking Reality of '17</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-virtual-worlds-unleashed-predicted-best-psvr-gaming-experiences/"><u>[New] Virtual Worlds Unleashed Predicted Best PSVR Gaming Experiences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mastering-text-superimposition-windows-and-mac-edition/"><u>[Updated] 2024 Approved Mastering Text Superimposition Windows & Mac Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-crafting-engaging-haul-vids-a-step-by-step-guide/"><u>2024 Approved Crafting Engaging Haul Vids A Step-by-Step Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-error-code-0x8024200d-comprehensive-guide-to-resolving-windows-update-issues/"><u>Fixing Error Code 0X8024200D: Comprehensive Guide to Resolving Windows Update Issues</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-resolve-windows-11s-update-error-0x800f0922/"><u>How to Resolve Windows 11'S Update Error 0X800f0922</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-hdr-portraiture-comprehensive-photography-guide/"><u>In 2024, Mastering HDR Portraiture Comprehensive Photography Guide</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/pros-and-cons-of-using-non-original-gpu-drivers-insights-from-yl-computing/"><u>Pros and Cons of Using Non-Original GPU Drivers - Insights From YL Computing</u></a></li>
+<li><a href="https://win-blog.techidaily.com/say-goodbye-to-rdo-crashes-ultimate-troubleshooting-guide-for-players/"><u>Say Goodbye to RDO Crashes: Ultimate Troubleshooting Guide for Players</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/speaking-the-unspoken-writing-subtext-driven-dialogues-for-2024/"><u>Speaking the Unspoken Writing Subtext-Driven Dialogues for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/this-article-introduces-some-of-the-best-video-apps-for-editing-vertical-videos-for-2024/"><u>This Article Introduces some of the Best Video Apps for Editing Vertical Videos for 2024</u></a></li>
+</ul></div>
 

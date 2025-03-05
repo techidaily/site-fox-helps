@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Integrating Microsoft's Azure Transcription Service in Code\""
-date: 2024-08-23T16:49:29.143Z
-updated: 2024-08-24T16:49:29.143Z
+date: 2025-03-01T00:48:50.469Z
+updated: 2025-03-05T08:56:53.979Z
 tags: 
   - screen-recording
   - ai video
@@ -24,9 +24,6 @@ Are you tired of manually typing texts into document editors like Word and Notep
 
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## Part 1: What is Microsoft Azure and Speech Studio?
@@ -51,9 +48,6 @@ Step2After creating a Microsoft Azure portal, you'll see all Azure services. Cli
 
 Step3The program will take a while to deploy an instance. Now tap Keys and endpoints on the left pane and copy the key and region identifier as you may need them later on.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
@@ -96,9 +90,6 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 Select the audio asset in the timeline, and click the "Speech-to-Text" icon in the toolbar; if there is no supported file type on the timeline, it will not be displayed.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
 ##### Step 2
@@ -109,9 +100,6 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ### 2\. Google Docs - Free
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
@@ -173,8 +161,23 @@ In that case, use a more straightforward option like Google Docs to dictate text
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-4k-visionary-review-blades-spectrum-expansion/"><u>[New] 2024 Approved 4K Visionary Review Blade's Spectrum Expansion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-parrot-ar-drone-elite-edition-expert-evaluation/"><u>[New] 2024 Approved Parrot AR Drone Elite Edition – Expert Evaluation</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-ultimate-price-guide-for-cloud-storage-services/"><u>[New] 2024 Approved Ultimate Price Guide for Cloud Storage Services</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-from-simple-to-sophisticated-mastering-zd-softs-video-recording-techniques/"><u>[New] In 2024, From Simple to Sophisticated Mastering ZD Soft's Video Recording Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-gradual-volume-curve-of-audio-reduction-in-fl-studio/"><u>[New] In 2024, The Gradual Volume Curve of Audio Reduction in FL Studio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-conversion-wizardry-zip-to-subrip-transformation/"><u>[Updated] Conversion Wizardry ZIP to SubRip Transformation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-master-your-gaming-auditory-experience-with-this-best-free-app-valorant-edition/"><u>[Updated] Master Your Gaming Auditory Experience with This Best Free App – Valorant Edition</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-comic-relief-in-the-metaverse-meme-basics-unveiled/"><u>Crafting Comic Relief in the Metaverse – Meme Basics Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dwelling-pinpointing-the-top-20-social-media-havens/"><u>Digital Dwelling: Pinpointing the Top 20 Social Media Havens</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/immersive-teaching-transformative-learning-for-2024/"><u>Immersive Teaching, Transformative Learning for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-guide-to-adding-creative-closure-in-vimeo-videos/"><u>In 2024, Guide to Adding Creative Closure in Vimeo Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oneplus-ace-2-pro-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost OnePlus Ace 2 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-top-15-essential-gopro-accessories-for-newbies/"><u>In 2024, Top 15 Essential GoPro Accessories for Newbies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-instatunes-navigating-copyright-laws-for-2024/"><u>Mastering InstaTunes Navigating Copyright Laws for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/monitor-refuses-to-show-fullscreen-win10/"><u>Monitor Refuses to Show Fullscreen Win10</u></a></li>
+</ul></div>
 

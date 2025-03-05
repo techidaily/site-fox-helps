@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Motion Mastery  Top Free AFX Template Collection\""
-date: 2024-08-23T16:49:36.418Z
-updated: 2024-08-24T16:49:36.418Z
+date: 2025-03-01T00:27:40.279Z
+updated: 2025-03-04T20:16:31.482Z
 tags: 
   - screen-recording
   - ai video
@@ -119,9 +119,6 @@ If you would like to add a shape around the title just to make it stand out more
 
 Step1 Select the Rectangle Tool and proceed to draw a shape around the title.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add a shape around title](https://images.wondershare.com/filmora/article-images/2022/07/add-a-shape-around-title.jpg)
 
 Step2 Under “Fill” select “None” and under “Stroke,” set to “Solid Color.”
@@ -206,25 +203,16 @@ This is another minimalistic title template that can be useful for just any vide
 
 ![black white ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/black-white-ae-title-tempalte.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Cyber Brush Titles After Effects Template
 
 This title template is a combination of cyberpunk designs and brush effects to create some of the most unique video titles you will ever see. Because it is so colorful, this title may not be ideal for most projects, but each of the 10 different titles that you will find in this bundle is fully customizable and comes with its unique typography and animations. These titles are ideal for YouTube or Instagram clips whose main aim is to generate engagement.
 
 ![cyber brush ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/cyber-brush-ae-title-tempalte.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Minimal Titles After Effects Templates
 
 If your goal is to get the message across and you don’t want any colors or effects to interfere with the content, the Minimal Titles After Effects template is probably the best way to go. As the name suggests, there isn’t much going on with these templates and they are designed to simply get the message across. It is the perfect template for a corporate promo video or a brand showcase that doesn’t require too much fanfare. It is fully customizable and available in 4K resolution.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![minimal ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/minimal-ae-title-tempalte.jpg)
 
 ### 7\. Masonry Title After Effects Template
@@ -349,8 +337,26 @@ Step4 You can then use the “Effects Window” to change the color as desired.
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-360-vision-showdown-samsung-and-lg-camera-face-off/"><u>[New] 2024 Approved 360 Vision Showdown Samsung & LG Camera Face Off</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-a-primer-on-selecting-superior-free-srt-translator-platforms/"><u>[New] A Primer on Selecting Superior Free SRT Translator Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-breaking-down-the-fundamentals-of-mixed-reality/"><u>[New] In 2024, Breaking Down the Fundamentals of Mixed Reality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discover-top-6-short-video-download-sites-free/"><u>[Updated] Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-youtube-presence-with-these-8-free-courses-for-2024/"><u>[Updated] Elevate Your YouTube Presence with These 8 Free Courses for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ffmpegs-audio-recapture-challenge-for-2024/"><u>[Updated] FFmpeg's Audio Recapture Challenge for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-how-to-shop-for-the-cheapest-cloud-storage-step-by-step-for-2024/"><u>[Updated] How to Shop for the Cheapest Cloud Storage, Step by Step for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-voice-to-text-service-without-a-price-tag/"><u>[Updated] In 2024, Voice-to-Text Service Without a Price Tag</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-thorough-examination-an-in-depth-review-of-gecata-log/"><u>[Updated] Thorough Examination An In-Depth Review of Gecata Log</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-upgrade-your-editing-game-learning-youtube-cuts-in-sony-vegas-basics/"><u>2024 Approved Upgrade Your Editing Game Learning YouTube Cuts in Sony Vegas Basics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-analysis-of-the-anker-usb-30-fast-charger-hub-unleashing-ultimate-connectivity/"><u>Comprehensive Analysis of the Anker USB 3.0 Fast Charger Hub: Unleashing Ultimate Connectivity</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-viewers-from-the-start-mobile-film-techniques-for-thumbnails/"><u>Engage Viewers From the Start Mobile Film Techniques for Thumbnails</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/experience-freedom-in-viewing-free-movie-player-software/"><u>Experience Freedom in Viewing FREE MOVIE PLAYER Software</u></a></li>
+<li><a href="https://driver-download.techidaily.com/find-and-implement-the-latest-drivers-for-intel-graphics-in-windows-11-step-by-step-guide/"><u>Find and Implement the Latest Drivers for Intel Graphics in Windows 11: Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-the-propeller-market-for-top-tier-fpv-drones/"><u>Navigating the Propeller Market for Top-Tier FPV Drones</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-replace-sony-vegas-with-these-powerful-windows-video-editing-tools/"><u>New In 2024, Replace Sony Vegas with These Powerful Windows Video Editing Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-quick-route-from-srt-to-text-txt-files/"><u>The Ultimate, Quick Route From SRT to Text (TXT) Files</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-ultimate-5-video-editing-programs-for-pro-quality-output/"><u>Unveiling the Ultimate 5 Video Editing Programs for Pro-Quality Output</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/virtual-horizons-top-picks-for-vr-enthusiasts/"><u>Virtual Horizons Top Picks for VR Enthusiasts</u></a></li>
+</ul></div>
 

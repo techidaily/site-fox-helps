@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Photography Mastery  Focusing on the Micro & Macro\""
-date: 2025-02-12T03:51:13.721Z
-updated: 2025-02-16T00:41:55.453Z
+date: 2025-02-27T08:30:22.805Z
+updated: 2025-03-05T05:21:21.599Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,6 @@ You May Also Like: [Resizing a Photo without Losing Quality](https://tools.techi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Section 1. What is close-up and macro photography?
 
 Close-up photography and macro photography are all about photographing things in a way that makes them appear larger than they are in real life. It lets us look in detail at the things around us and can be an exciting and dramatic way to shoot images. But is there a difference between close up and macro in photography terms?
@@ -78,10 +74,6 @@ With any photo, focus is crucial to an awesome result. But when you're creating 
 
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: PicMonkey
 
 If you're not ready to go fully manual, you could try using the iPhone's locking feature to lock the focus into place and avoid the photo being ruined by a little wobble on your part. To use this, simply tap and hold the screen at the part of the image you want to be in focus, and you'll see AE/EF Lock appear at the bottom. This means both focus and lighting are fixed until you tap elsewhere on the screen to release it.
@@ -104,10 +96,6 @@ When you're shooting macro images with your iPhone, the intention is to make the
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-distance.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: GCFLearnFree
 
 Make the subject center stage by positioning your composition to give the least cluttered background possible. Use the sky if you can, or experiment with textured backgrounds such as a wall or fence. Think about how far your subject is from the background, as the further away the background is, the more blurry it will become and the greater the contrast of focus on your subject will appear.
@@ -117,10 +105,6 @@ Make the subject center stage by positioning your composition to give the least 
 If you've researched photography in general, you'll already have heard of the ‘rule of thirds'. This rule is super simple to apply when using an iPhone and is just as relevant in macro photography as it is when shooting landscapes or any other composition.
 
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image source: SmashingHub
 
@@ -158,10 +142,6 @@ Explore, experiment, and practice, and you'll soon find your own style and be th
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -189,14 +169,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-social-screen-grabber-kit/"><u>[New] In 2024, Social Screen Grabber Kit</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-realistic-facial-rendering-implementing-motion-blur-in-photo-editing-via-picsart/"><u>[Updated] In 2024, Realistic Facial Rendering Implementing Motion Blur in Photo Editing via Picsart</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-turn-the-last-scenes-first-with-android/"><u>[Updated] In 2024, Turn the Last Scenes First with Android</u></a></li>
-<li><a href="https://fox-links.techidaily.com/artisanarray-pro-online-creation-powerhouse/"><u>ArtisanArray Pro Online Creation Powerhouse</u></a></li>
-<li><a href="https://program-issues.techidaily.com/boost-your-valorant-gameplay-top-strategies-to-improve-frame-rate-and-eliminate-lag-issues-updated/"><u>Boost Your 'Valorant' Gameplay: Top Strategies to Improve Frame Rate and Eliminate Lag Issues (Updated )</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/guide-to-safeguarding-your-assets-unpacking-protection-strategies-or-sauvegarde-choices/"><u>Guide to Safeguarding Your Assets: Unpacking 'Protection Strategies' Or 'Sauvegarde Choices'</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/high-quality-action-recorders-12-enhanced-with-gps-navigation/"><u>High-Quality Action Recorders 12, Enhanced with GPS Navigation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-lava-storm-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Lava Storm 5G Phones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-8-tablets-for-photo-editing-worth-a-try/"><u>Top 8 Tablets for Photo Editing Worth a Try</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-visual-virtuosos-guide-choosing-the-best-6-4k-cameras/"><u>[New] 2024 Approved Visual Virtuosos Guide Choosing the Best 6 4K Cameras</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-capture-chatter-the-new-iphone-2024-feature/"><u>[New] Capture Chatter The New iPhone 2024 Feature</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-beyond-saturation-and-contrast-hdrs-role-in-quality-enhancement/"><u>[New] In 2024, Beyond Saturation and Contrast HDR's Role in Quality Enhancement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-focus-on-you-iphone-and-android-photo-trimmers/"><u>[Updated] Focus On You IPhone & Android Photo Trimmers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-professionals-guide-adding-youtube-to-google-slides/"><u>2024 Approved The Professional's Guide Adding YouTube to Google Slides</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-nokia-g22-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/battlefield-2-groggy-eradicate-directx-errors-with-these-proven-fixes/"><u>Battlefield 2 Groggy? Eradicate DirectX Errors with These Proven Fixes!</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/dvdmp4aviwmvmkv/"><u>DVDフォーマット変換ガイド：MP4、AVI、WMV、MKVへの変換方法</u></a></li>
+<li><a href="https://win-dash.techidaily.com/excel-mastery-advanced-techniques-for-monitoring-virtually-any-data-set/"><u>Excel Mastery: Advanced Techniques for Monitoring Virtually Any Data Set</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-save-money-with-the-right-youtube-tv-plan/"><u>How to Save Money with the Right YouTube TV Plan</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-insightful-guide-to-utilizing-adobe-cloud-plus-non-adobe-strategies/"><u>In 2024, Insightful Guide to Utilizing Adobe Cloud + Non-Adobe Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-premier-8k-capture-the-ultimate-camera-guide/"><u>In 2024, Premier 8K Capture The Ultimate Camera Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teachers-united-the-bett-2022-edition/"><u>Teachers United: The BETT 2022 Edition</u></a></li>
 </ul></div>
 

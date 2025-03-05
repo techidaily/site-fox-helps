@@ -1,7 +1,7 @@
 ---
 title: "\"A Guide to Creative Use of Supplementary Footage (B-Roll)\""
-date: 2024-08-16T07:28:43.027Z
-updated: 2024-08-17T07:28:43.027Z
+date: 2025-03-03T07:56:03.729Z
+updated: 2025-03-04T22:33:11.263Z
 tags: 
   - screen-recording
   - ai video
@@ -48,35 +48,18 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
@@ -125,6 +108,20 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-assembling-visual-slices-photo-montage-techniques-for-2024/"><u>[New] Assembling Visual Slices Photo Montage Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elite-camera-drones-10-unveiling-visuals-like-never-before-for-2024/"><u>[New] Elite Camera Drones #10 Unveiling Visuals Like Never Before for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-merry-media-archive-inspector-for-2024/"><u>[New] Merry Media Archive Inspector for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-design-memes-effortlessly-kapwing-pro/"><u>[Updated] In 2024, Design Memes Effortlessly - Kapwing Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-future-of-action-photography-tomtoms-bandit-review-for-2024/"><u>[Updated] The Future of Action Photography TomTom's Bandit Review for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/combining-youtube-videos-for-seamless-playback-for-2024/"><u>Combining YouTube Videos for Seamless Playback for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/full-evaluation-djis-latest-drone-the-inspire-1-for-2024/"><u>Full Evaluation DJI's Latest Drone, The Inspire 1 for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-depth-analysis-of-vidmas-recording-capabilities-for-2024/"><u>In-Depth Analysis of Vidma's Recording Capabilities for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/optimization-tips-for-uninterrupted-fallout-4-sessions-on-pc/"><u>Optimization Tips for Uninterrupted Fallout 4 Sessions on PC</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-choosing-the-perfect-iphone-1616-pro-case-in-2eby-zdnets-comprehensive-expert-analysis/"><u>Ultimate Guide to Choosing the Perfect iPhone 16/16 Pro Case in 2Eby: ZDNET's Comprehensive Expert Analysis</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+</ul></div>
 

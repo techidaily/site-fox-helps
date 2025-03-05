@@ -1,7 +1,7 @@
 ---
 title: "\"A Canvas of Colors  Advanced Theory & Use\""
-date: 2024-08-16T07:28:01.104Z
-updated: 2024-08-17T07:28:01.104Z
+date: 2025-02-27T06:31:17.009Z
+updated: 2025-03-04T16:32:33.804Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ So, you've heard about color theory but don't know what it is or how to use it a
 
 If you are more selective with your colors in your videos or imagery the viewer will find this aesthetically pleasing and may be more engaged in your content. This includes anything from logo design all the way to props for your shot. When creating your videos within Filmora it is good practice to think about your composition in all aspects including color theory and with the guide hopefully you will have a better understanding of how you can influence your color palette.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
@@ -35,16 +32,10 @@ There are many color wheels out there and all require understanding and research
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
@@ -63,9 +54,6 @@ The corners of the black rectangle land on what is known as tetradic complement 
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -108,6 +96,22 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-advanced-tutorial-embedding-srt-into-mp4-content/"><u>[New] In 2024, Advanced Tutorial Embedding SRT Into MP4 Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-behind-the-scenes-of-carminatis-youtube-earnings/"><u>[New] In 2024, Behind the Scenes of Carminati’s YouTube Earnings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-carving-out-your-place-in-the-design-world/"><u>[Updated] 2024 Approved Carving Out Your Place in the Design World</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-masterful-video-cropping-elevate-your-content-game-on-instagram/"><u>[Updated] 2024 Approved Masterful Video Cropping Elevate Your Content Game on Instagram</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dual-display-delight-mastery-of-floating-window-on-netflix/"><u>[Updated] Dual Display Delight Mastery of Floating Window on Netflix</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-windows-10s-full-potential-with-zoom-services/"><u>[Updated] In 2024, Unveiling Windows 10'S Full Potential with Zoom Services</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-srt-conversion-tactics-for-pc-and-mac/"><u>[Updated] Innovative SRT Conversion Tactics for PC and Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pixtra-photo-editor-deep-dive-for-2024/"><u>[Updated] Pixtra Photo Editor Deep Dive for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-principles-of-creating-inspirational-day-to-day-visual-stories/"><u>[Updated] Principles of Creating Inspirational Day-to-Day Visual Stories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-perspective-ranking-the-top-11-multi-angle-cams/"><u>[Updated] The Ultimate Perspective Ranking the Top 11 Multi-Angle Cams</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-poco-x5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-solving-the-missing-sound-hardware-problem-in-windows-11/"><u>Diagnosing and Solving the Missing Sound Hardware Problem in Windows 11</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/experts-weigh-in-on-top-chromebook-picks-for-students-thoroughly-tested-and-evaluated/"><u>Experts Weigh In on Top Chromebook Picks for Students - Thoroughly Tested and Evaluated</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-unbiased-avs-video-editor-review-is-it-right-for-you/"><u>In 2024, Unbiased AVS Video Editor Review Is It Right for You?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/transform-your-video-presentation-with-updated-covers-for-2024/"><u>Transform Your Video Presentation with Updated Covers for 2024</u></a></li>
+</ul></div>
 

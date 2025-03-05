@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pro Tips for Power Users  Expert WhatsApp Techniques\""
-date: 2025-02-09T21:57:15.290Z
-updated: 2025-02-16T08:11:43.817Z
+date: 2025-03-03T19:35:59.036Z
+updated: 2025-03-04T17:03:22.670Z
 tags: 
   - screen-recording
   - ai video
@@ -53,10 +53,6 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3.Strikethrough
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
@@ -75,19 +71,11 @@ WhatsApp introduced the Blue Tick feature to notify users when their messages ar
 
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6.Pin Prioritized Contacts
 
 Many times, we have just one or a few people whose texts matter the most. So, avoid letting those important message threads from getting pushed down below by message floods. You can pin priority contacts by opening WhatsApp, then tapping and holding the chat thread of the contact without opening it. This will show a new toolbar on the green border at the top of the window. Use the first icon of a pin to freeze the chat thread in the top position.
 
 ![Whatsapp Pin Prioritized Contacts](https://images.wondershare.com/filmora/article-images/whatsapp-pin-prioritized-contacts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: techmesto.com
 
@@ -97,19 +85,11 @@ If you wish to save the chats that you exchanged with someone special, you can e
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -171,10 +151,6 @@ If it is annoying to open a loved one’s story and then automatically sliding i
 
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 9.Reply Privately to Recipients in a WhatsApp Group
 
 This is as simple as it sounds. Tap and hold to select a message in a group and then open the 3-dot button at the top right to access the feature.
@@ -186,10 +162,6 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
 Source: beebom.com
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -208,10 +180,6 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 #### 3.Snip Out a GIF from a Video
 
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -246,19 +214,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-delineating-distinctions-full-angle-vs-immersive-video/"><u>[New] 2024 Approved Delineating Distinctions Full-Angle Vs. Immersive Video</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-flashy-fiddles-short-form-melodic-roles/"><u>[New] 2024 Approved Flashy Fiddles Short Form Melodic Roles</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-elevate-your-tiktok-cinematic-vision/"><u>[New] Elevate Your TikTok Cinematic Vision</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-your-content-10-exceptional-reacting-techniques-for-2024/"><u>[New] Enhancing Your Content 10 Exceptional Reacting Techniques for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-auditory-data-extraction-and-analysis/"><u>[New] In 2024, Auditory Data Extraction & Analysis</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-essential-companion-for-advanced-win10-users/"><u>[New] In 2024, The Essential Companion for Advanced Win10 Users</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-maximizing-impact-in-snapchat-spotlight/"><u>[New] Maximizing Impact in Snapchat Spotlight</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-photogenius-ai-suite-elevate-your-edits/"><u>[Updated] 2024 Approved PhotoGenius AI Suite Elevate Your Edits</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-fundamentals-of-managing-volume-increase-in-projects/"><u>[Updated] Fundamentals of Managing Volume Increase in Projects</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-video-editing-made-simple-using-windows-10s-built-in-features-easily/"><u>[Updated] In 2024, Video Editing Made Simple Using Windows 10'S Built-In Features Easily</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-step-by-step-approach-to-uncovering-favorite-youtube-remarks-for-2024/"><u>[Updated] Step-by-Step Approach to Uncovering Favorite YouTube Remarks for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-what-does-virtual-mean-in-a-world-of-reality-for-2024/"><u>[Updated] What Does 'Virtual' Mean in a World of Reality for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-apple-iphone-xs-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From Apple iPhone XS</u></a></li>
-<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-platforms-a-look-at-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Social Platforms: A Look at Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-in-search-of-excellence-top-10-4k-displays/"><u>[New] In 2024, In Search of Excellence #Top 10 4K Displays</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-become-a-viral-sensation-crafting-impressive-unboxing-videos/"><u>[Updated] 2024 Approved Become a Viral Sensation Crafting Impressive Unboxing Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-exploring-options-a-treasure-hunt-for-your-tiktok-symbol/"><u>[Updated] 2024 Approved Exploring Options A Treasure Hunt for Your TikTok Symbol</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-outro-aesthetics-selecting-templates-any-budget/"><u>[Updated] 2024 Approved Outro Aesthetics Selecting Templates, Any Budget</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-capturing-breathtaking-photos-with-iphone-hdr/"><u>[Updated] In 2024, Capturing Breathtaking Photos with iPhone HDR</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-thriving-amidst-the-world-of-podcasts/"><u>[Updated] In 2024, The Ultimate Guide to Thriving Amidst the World of Podcasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-precision-and-playfulness-building-high-quality-gifs-for-2024/"><u>[Updated] Precision and Playfulness Building High-Quality GIFs for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unprecedented-engagement-reaching-for-a-million-audience-for-2024/"><u>[Updated] Unprecedented Engagement Reaching for a Million Audience for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-youcamease-step-by-steprecording-for-2024/"><u>[Updated] YouCamEase Step-by-StepRecording for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-vivo-y100-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Vivo Y100 Devices</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-13-pro-to-samsung-simplified-guide-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer From Apple iPhone 13 Pro to Samsung Simplified Guide | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/kernel-issue-overcome-nvlddmkm-driver-operational/"><u>Kernel Issue Overcome: Nvlddmkm Driver Operational</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/preserving-your-periscope-content-a-detailed-process-for-2024/"><u>Preserving Your Periscope Content A Detailed Process for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/streaming-screenshots-share-without-twitting/"><u>Streaming Screenshots Share Without Twitting</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/visualizing-time-the-hyperlapse-filmmakers-guide-for-2024/"><u>Visualizing Time The Hyperlapse Filmmaker's Guide for 2024</u></a></li>
 </ul></div>
 

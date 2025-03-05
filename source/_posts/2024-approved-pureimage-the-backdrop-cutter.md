@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  PureImage  The Backdrop Cutter\""
-date: 2024-08-16T07:28:18.405Z
-updated: 2024-08-17T07:28:18.405Z
+date: 2025-03-01T02:22:08.975Z
+updated: 2025-03-05T08:26:20.206Z
 tags: 
   - screen-recording
   - ai video
@@ -34,16 +34,10 @@ Step1 In the first step, install the [Affinity Designer](https://affinity.serif.
 
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
@@ -115,9 +109,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -152,9 +143,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -187,6 +175,21 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-seamless-tweeting-expert-video-conversion-software/"><u>[New] In 2024, Seamless Tweeting Expert Video Conversion Software</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-success-stories-adopting-viral-techniques-from-tiktok-for-2024/"><u>[New] Instagram Success Stories Adopting Viral Techniques From TikTok for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-utilizing-snapchats-prominent-personalities-highlight-for-2024/"><u>[New] Utilizing Snapchat's Prominent Personalities Highlight for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-reigning-tiktoks-on-twitter-a-viral-analysis/"><u>[Updated] 2024 Approved Reigning TikToks on Twitter A Viral Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-live-broadcasts-in-focus-scrutinizing-the-best-6-microphones-available/"><u>[Updated] Live Broadcasts in Focus Scrutinizing the Best 6 Microphones Available</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-personalized-and-no-cost-ending-music-samples-available/"><u>[Updated] Personalized & No-Cost Ending Music Samples Available</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-quick-fixes-the-hands-on-guide-to-generating-timely-captions-on-fb-media/"><u>2024 Approved Quick Fixes The Hands-On Guide to Generating Timely Captions on FB Media</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-tutorial-for-bulk-photo-posts-on-facebook/"><u>Comprehensive Tutorial for Bulk Photo Posts on Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/eight-clever-comic-competitions-to-amuse-your-chat-pals/"><u>Eight Clever Comic Competitions to Amuse Your Chat Pals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/explore-creativity-best-drawing-software-for-ipados-for-2024/"><u>Explore Creativity Best Drawing Software for iPadOS for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/l-footprint-of-mr-beast/"><u>Fiscal Footprint of Mr. Beast</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-create-and-build-a-youtube-channel-today-for-2024/"><u>How to Create and Build A YouTube Channel Today for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-path-to-smooth-transitions-in-inshot-editing-for-2024/"><u>The Path to Smooth Transitions in Inshot Editing for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-12-mini-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 12 mini With Forgotten Passcode Different Methods You Can Try</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "A Beginner's Tutorial on Using LUTs in AR"
-date: 2024-08-16T07:28:24.831Z
-updated: 2024-08-17T07:28:24.831Z
+date: 2025-02-26T06:05:24.051Z
+updated: 2025-03-05T02:45:58.829Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
 Color LUTs (Lookup Textures) are tables of RGB color values. In Spark AR, you can use color LUTs to quickly create color gradation effects throughout the scene. Go through the article and create your color LUT effect.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. What are Luts in Spark AR used for?
 
 To create a color filter effect in [Spark AR](https://sparkar.facebook.com/ar-studio/), you need a color LUT in Spark AR.
@@ -31,9 +28,6 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. How to use LUTs in Spark AR?
 
 **How to apply a color LUT to the whole scene in Spark AR:**
@@ -74,9 +68,6 @@ Here are the best free LUTs resources for Spark AR:
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
 ### 2\. Fur
@@ -98,9 +89,6 @@ Even while using large image sequences is frequently discouraged, you can still 
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
@@ -151,6 +139,24 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-av1-versus-vp9-the-ultimate-codec-showdown/"><u>[New] 2024 Approved AV1 Versus VP9 The Ultimate Codec Showdown</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-amplify-your-chat-status-with-melodies-for-2024/"><u>[New] Amplify Your Chat Status with Melodies for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-endless-display-recorder-app-for-2024/"><u>[New] Endless Display Recorder App for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-maximize-your-mobile-podcast-experience-on-iphone/"><u>[New] In 2024, Maximize Your Mobile Podcast Experience on iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-essential-funimate-guidebook/"><u>[New] In 2024, The Essential Funimate Guidebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlock-your-films-potential-top-11-color-grading-and-correction-methods/"><u>[New] In 2024, Unlock Your Film's Potential Top 11 Color Grading and Correction Methods</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pixel-perfection-best-video-cameras-for-extended-recording-times/"><u>[New] Pixel Perfection Best Video Cameras for Extended Recording Times</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-essential-guide-to-custom-voices-how-to-alter-game-character-sounds-in-free-fire-no-cost/"><u>[New] The Essential Guide to Custom Voices How to Alter Game Character Sounds in Free Fire (No Cost!)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expert-iphoneandroid-blur-application-guide/"><u>[Updated] Expert iPhone/Android Blur Application Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-1-to-10-superior-4k-screen-selections/"><u>[Updated] In 2024, 1 to #10 Superior 4K Screen Selections</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exclusive-insights-viewing-nba-games-remotely/"><u>Exclusive Insights Viewing NBA Games Remotely</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/expert-advice-how-to-share-your-imovie-videos-on-vimeo/"><u>Expert Advice How to Share Your iMovie Videos on Vimeo</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-free-video-editing-learn-to-blur-videos-online-in-minutes/"><u>New 2024 Approved Free Video Editing Learn to Blur Videos Online in Minutes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/setting-and-changing-personalized-iphone-tones-for-2024/"><u>Setting & Changing Personalized iPhone Tones for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/stay-chilled-with-a-bargain-a-detailed-examination-of-the-effective-topmate-c302-laptop-fan-stand/"><u>Stay Chilled with a Bargain: A Detailed Examination of the Effective TopMate C302 Laptop Fan Stand</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-oppo-a1-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Oppo A1 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/troubleshooting-inaccessible-boot-media-on-your-pc-a-step-by-step-guide-by-yl-software/"><u>Troubleshooting Inaccessible Boot Media on Your PC: A Step-by-Step Guide by YL Software</u></a></li>
+</ul></div>
 

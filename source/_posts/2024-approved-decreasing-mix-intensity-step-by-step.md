@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Decreasing Mix Intensity Step by Step\""
-date: 2024-08-23T16:49:04.055Z
-updated: 2024-08-24T16:49:04.055Z
+date: 2025-02-26T04:26:00.901Z
+updated: 2025-03-04T19:34:05.726Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,6 @@ It can create new sounds through drum machines as a result you can show your cre
 
 Step1 The first and foremost task to do is the successful installation of FL Studio. Getting the latest version of this will be useful for you as it has a lot of new features.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open fl studio](https://images.wondershare.com/filmora/article-images/2022/07/open-fl-studio.jpg)
 
 Step2 Open your FL Studio window on your pc or mac. Then, choose the right volume parameter for the creation of automation in your FL studio. You can do it using the mixer channel method.
@@ -61,9 +58,6 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
@@ -100,16 +94,10 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 ## Related FAQs of FL Studio Audio Editing
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
@@ -140,8 +128,19 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-premier-programs-designing-animated-3d-worlds/"><u>[New] 2024 Approved Premier Programs Designing Animated 3D Worlds</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-auditory-ambiance-within-visual-mediums-for-2024/"><u>[New] Auditory Ambiance Within Visual Mediums for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-transforming-text-the-illustrator-3d-approach-for-2024/"><u>[New] Transforming Text The Illustrator 3D Approach for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unbeatable-5-photo-backdrop-switchers-for-x8-series/"><u>[New] Unbeatable 5 Photo Backdrop Switchers for X/8 Series</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-exploring-video-file-limits-in-64128gb/"><u>[Updated] 2024 Approved Exploring Video File Limits in 64/128GB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-scan-for-collective-shared-content-on-messenger-for-2024/"><u>[Updated] Scan for Collective Shared Content on Messenger for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/behind-the-lens-nikon-d500s-4k-innovation/"><u>Behind the Lens Nikon D500's 4K Innovation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-cutting-edge-image-vault-websites/"><u>In 2024, Cutting-Edge Image Vault Websites</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mass-movement-mastery-the-drone-top-list/"><u>In 2024, Mass Movement Mastery The Drone Top List</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mastering-the-art-of-capturing-youtube-videos-with-sound-a-comprehensive-guide-for-mac-users/"><u>Mastering the Art of Capturing YouTube Videos With Sound: A Comprehensive Guide for Mac Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725285347760-windows-mac-android-iphone/"><u>다양한 장치(Windows, Mac, Android, iPhone)에서 스ム업을 유지하는 기술</u></a></li>
+</ul></div>
 
